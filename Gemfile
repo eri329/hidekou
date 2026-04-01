@@ -35,3 +35,5 @@ gem "http_parser.rb", "~> 0.6.0", :platforms => [:jruby]
 # Add theme
 gem "jekyll-theme-console"
 
+
+gem "webrick", "~> 1.9"
