@@ -18,21 +18,45 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 
-title: Your awesome title
-email: your-email@example.com
+title: 秀洸建設档案室
+email: lieri1457@gmail.com
 description: >- # this means to ignore newlines until "baseurl:"
-  Write an awesome description for your new site here. You can edit this
-  line in _config.yml. It will appear in your document head meta (for
-  Google search results) and in your feed.xml site description.
-baseurl: "" # the subpath of your site, e.g. /blog
-url: "" # the base hostname & protocol for your site, e.g. http://example.com
-twitter_username: jekyllrb
-github_username:  jekyll
+  关于《修学旅行被分到了不熟的小组》(渡会x日置/简洸cp)的时间线、正剧、小说、二创作品等导航/存档汇总
+url: "https://eri329.github.io" # the base hostname & protocol for your site, e.g. http://example.com
+baseurl: "/hidekou" # the subpath of your site, e.g. /blog
+github_username: "eri329"
+
+markdown: kramdown
+highlighter: rouge
+javascript_enabled: true
+#google_analytics: UA-NNNNNNNN-N
+
+header_pages:
+  - index.md
+  - drama.md
+  - novel.md
+  - fanwork.md
+  - gallery.md
+  - more.md
+  - about.md
+
+# collections:
+#   novels:
+#     title: Novels
+#     default_open: true
+#     output: true
+#   galleries:
+#     title: Galleries
+#     default_open: true
+#     output: true
 
 # Build settings
 theme: jekyll-theme-console
+
+style: light # dark (default) or light
+#listen_for_clients_preferred_style: true # true or false (default)
+
 plugins:
-  - jekyll-feed
   - jekyll-seo-tag
 
 # Exclude from processing.

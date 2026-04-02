@@ -1,0 +1,29 @@
+<!DOCTYPE html>
+<html lang="{{ page.lang | default: site.lang | default: 'zh' }}">
+<meta http-equiv="Content-Security-Policy" content="script-src 'self'" />
+<meta http-equiv="X-XSS-Protection"  content="1;mode=block" always>
+<meta http-equiv="Referrer-Policy" content="no-referrer, strict-origin-when-cross-origin">
+
+  {%- include head.html -%}
+
+  <body>
+    <div class="container">
+
+      {%- include header.html -%}
+
+    <main>
+      <h1> / {{ page.title }} / </h1>
+      {{ content }}
+    </main>
+
+    {%- include footer.html -%}
+
+    </div>
+
+    {% if site.javascript_enabled %}
+      <script src="{{ '/assets/newTab.js' | relative_url }}"></script>
+      <script type="text/javascript" src="{{ '/assets/lightbox.js' | relative_url }}"></script>
+    {% endif %}
+
+  </body>
+</html>
