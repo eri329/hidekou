@@ -9,9 +9,13 @@ layout: default
   <ul>
     {%- for post in site.posts -%}
     <li>
-      {%- assign date_format = "%Y-%m-%d" -%}
-      [ {{ post.date | date: date_format }} ] <a href="{{ post.url | relative_url }}">{{ post.title | escape }}</a>
+      <span class="post-date-list-iso" data-date="{{ post.date | date: "%Y-%m-%dT%H:%M:%S%z" }}">
+        [ <span class="post-date-display">{{ post.date | date: "%Y-%m-%d" }}</span> ]
+      </span>
+      <a href="{{ post.url | relative_url }}">{{ post.title | escape }}</a>
     </li>
     {%- endfor -%}
   </ul>
 {%- endif -%}
+
+<script src="{{ '/assets/post-date.js' | relative_url }}"></script>
