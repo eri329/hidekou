@@ -246,6 +246,17 @@ h5 {
 }
 
 /**
+ * Blockquotes
+ */
+blockquote {
+	font-size: 14px;
+	border-left: 4px solid #1779ca;
+	padding-left: 16px;
+	margin: 10px 0;
+	font-style: normal; /* Remove default italic if unwanted */
+}
+
+/**
  * Header/Navigation
  */
 .menu {
