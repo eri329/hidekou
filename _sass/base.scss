@@ -255,12 +255,29 @@ blockquote {
 	font-style: normal; /* Remove default italic if unwanted */
 }
 
-.note {
+/* Target blockquotes that are descendants of .sublist */
+.sublist blockquote {
+    margin: 0 0 0 20px;      /* Move it to the right to look like an indent */
+    padding: 0;              /* Remove the default theme padding */
+    border-left: none;       /* Remove the vertical line if your theme has one */
+    background: transparent; /* Remove background color */
+    color: inherit;          /* Keep the text color the same as the list */
+}
+
+/* Optional: Add a custom bullet point before the blockquote text */
+.sublist blockquote p::before {
+    content: "⇨";            /* Add a bullet or a hyphen "-" */
+    margin-right: 8px;
+    color: var(--text-color);
+}
+
+.timeline-content h4 {
 	/* orange:  #ee5222; 
 	yellow: #ee8122;*/
+	font-weight: inherit;
+	font-size:inherit;
 	color: #ee5b9f;
-	margin-top: 10px;
-	display: block;
+	margin-top: -10px;
 }
 
 .text-blue{

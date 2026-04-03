@@ -59,6 +59,9 @@ style: light # dark (default) or light
 plugins:
   - jekyll-seo-tag
 
+# Disable search engine indexing via the SEO plugin
+robots: noindex
+
 # Exclude from processing.
 # The following items will not be processed, by default.
 # Any item listed under the `exclude:` key here will be automatically added to
