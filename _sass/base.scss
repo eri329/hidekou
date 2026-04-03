@@ -151,8 +151,7 @@ main {
 
 h1 {
 	font-size: 18px;
-	/*	color: #337016;
-*/
+	/*	color: #337016; */
 	color: #1779ca;
 	font-weight: bold;
 	margin-bottom: 20px;
@@ -250,10 +249,22 @@ h5 {
  */
 blockquote {
 	font-size: 14px;
-	border-left: 4px solid #1779ca;
+	border-left: 4px solid #46bae8;
 	padding-left: 16px;
 	margin: 10px 0;
 	font-style: normal; /* Remove default italic if unwanted */
+}
+
+.note {
+	/* orange:  #ee5222; 
+	yellow: #ee8122;*/
+	color: #ee5b9f;
+	margin-top: 10px;
+	display: block;
+}
+
+.text-blue{
+	color: #1779ca;
 }
 
 /**

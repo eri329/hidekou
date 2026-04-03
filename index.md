@@ -24,13 +24,14 @@ permalink: /
 ## 2026
 ### 2026.4
 
+* **260402【杂志｜双人】Preppy(プレッピー) 6月号互选衣服+互拍花絮**
+> 双人封面+20P杂志，5/1发售;小简小猪的快拍都有发 ➡ [𝕏花絮](https://x.com/preppy_magazine/status/2039644006225731734)
+> <span>互拍合集:[📕喜欢上了全世界最爱互相拍照的小情侣](https://www.xiaohongshu.com/discovery/item/69ce71f30000000023024d61?source=webshare&xhsshare=pc_web&xsec_token=ABdKm4LmwsaFacnF0PbW7YMt3tLGI9Xp0QcXysE6yWRRg=&xsec_source=pc_share)</span>{: .note}
+
 * **260402【修学旅行】DXTEEN「両片思い」Youtube播放量突破500万🥳**
 > [DXTEEN '両片想い' Official MV](https://youtu.be/esiaDnFotXQ?si=01Ml2V3zK93cD1_l)
 
 * **260401【修学旅行｜双人】修学旅行获得HUB Award 2025两项大赏🎖️**
 > Best Japanese BL & Japan Highlight of the Year
 > [𝕏获奖小视频](https://x.com/hubboyslove/status/2039136807770616301)/[ins](https://www.instagram.com/p/DWkbOQzCZrF/) ｜ [𝕏合照](https://x.com/BoysLoveHubENG/status/2039520472576971137) | 颁奖-[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/), [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)
-{: #dummy}
-> 点击就看超萌的狐猪合体比心，一颗大大的半心biu~~地贴上小猪~
-{: .happy-note}
-
+> <span>点击就看超萌的狐猪合体比心，一颗大大的半心biu~~地贴上小猪~</span>{: .note}
