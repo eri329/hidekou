@@ -251,25 +251,33 @@ blockquote {
 	font-size: 14px;
 	border-left: 4px solid #46bae8;
 	padding-left: 16px;
-	margin: 10px 0;
+	margin: 5px 10px 10px 40px;
 	font-style: normal; /* Remove default italic if unwanted */
 }
 
 /* Target blockquotes that are descendants of .sublist */
 .sublist blockquote {
     margin: 0 0 0 20px;      /* Move it to the right to look like an indent */
-    padding: 0;              /* Remove the default theme padding */
+    padding-left: 10px;
     border-left: none;       /* Remove the vertical line if your theme has one */
     background: transparent; /* Remove background color */
     color: inherit;          /* Keep the text color the same as the list */
+	border-left: 2px solid #393939;
 }
 
-/* Optional: Add a custom bullet point before the blockquote text */
-.sublist blockquote p::before {
-    content: "⇨";            /* Add a bullet or a hyphen "-" */
-    margin-right: 8px;
-    color: var(--text-color);
+/* Remove the annoying gap caused by "Loose Lists" */
+li p {
+    margin-bottom: 0 !important;
+    margin-top: 0 !important;
+    display: inline; /* This makes the paragraph behave like plain text */
 }
+
+// /* Optional: Add a custom bullet point before the blockquote text */
+// .sublist blockquote p::before {
+//     content: "⇨";            /* Add a bullet or a hyphen "-" */
+//     margin-right: 8px;
+//     color: var(--text-color);
+// }
 
 .timeline-content h4 {
 	/* orange:  #ee5222; 
@@ -277,7 +285,6 @@ blockquote {
 	font-weight: inherit;
 	font-size:inherit;
 	color: #ee5b9f;
-	margin-top: -10px;
 }
 
 .text-blue{
