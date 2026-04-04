@@ -4,18 +4,21 @@ layout: page
 permalink: /about/
 ---
 
-- 此网站陈列关于**《修学旅行时被分到了不熟的小组》/渡日/简洸(秀洸/狐猪)cp**{: .text-blue}的各种物料、嗑点、二创等索引及存档。
-- 大部分物料以直链的形式呈现, 所有官方物料站长会做线下备份。
-- 仅供个人收藏、查阅、同担交流用，cp不拆不逆，所有排序均以左右顺位排序。
+- 此站陈列关于**《修学旅行时被分到了不熟的小组》/渡日/简洸(秀洸/狐猪)cp**{: .text-blue}的各种物料、嗑点、二创等索引及存档。
+- 大部分物料以直链的形式呈现, 收录的同时本站也对所有狐猪物料做了备份。
+- 本站已设置为无法被搜索引擎检索。
+- 仅供个人收藏、查阅、同担交流用，cp不拆不逆，所有排序以左右位排列。
 - 站长的称呼习惯：渡日，狐猪，小简，洸大，小猪（被萌倒时用），检修机(被帅晕或吐槽用)
-- 资源失效/勘误/联系站长：[小红书](https://www.xiaohongshu.com/user/profile/6029aa8d0000000001005607)｜[邮箱](mailto:lieri1457@gmail.com)
+- 本站推荐科学上网，也推荐用手机观看，各平台跳转非常丝滑。
+- 链接失效/勘误/联系我：[小红书](https://www.xiaohongshu.com/user/profile/6029aa8d0000000001005607)｜[邮箱](mailto:lieri1457@gmail.com)
 
 ## 关于时间线
 - 原则上以收录修学旅行/狐猪**强相关**事件为主。
 - 单人物料如果提到对方一定会揪出来收录（笑）
-- 所有平台原链接会尽量收录，加一个中字版本，优先字幕组版本。
+- 所有平台原链接会尽量收录，考虑到工作量和授权问题暂不收录中字版本(反正也只有站长一个人在看)
 - 粉色文字是站长的嗑糖碎碎念+领嗑帖导航。
-- 关于单人弱相关物料收录范围站长也在苦恼中……暂时收录在[【单人物料】]({{ site.baseurl }}/solo/)中，大概率收录不全。
+- 关于单人弱相关物料收录范围站长也在苦恼中……暂时收录在[【单人物料】]({{ site.baseurl }}/solo/)中且以狐猪相遇起点为界往后收录，可能收录不全。
+- 关于事件合并：明显没有强时间属性的事件(比如官方零零散散发的物料)会合并收录，因此时间线并不是完全线性的，也会出现往回补录的情况。
 
 <!-- - 非公开链接(暂定)
     -   🔒: 站长自用存档(notion/onedrive)，如有需要可以联系站长。
@@ -38,12 +41,14 @@ permalink: /about/
 - [其他账号/告知](https://profcard.info/u/dl75fLfvmiU3oJHVwAvGI7GX6iE3)
 
 #### 简 秀吉
+* 2002年10月23日
 * 官网/FC：[簡秀吉 Official Site](https://kan-hideyoshi.com/)
 * Instagram: [hideyoshi_kan_official](https://www.instagram.com/hideyoshi_kan_official/) 
 * X：[kan_hideyoshi](https://x.com/kan_hideyoshi)
 * 微博：[簡秀吉_1023](https://weibo.com/u/7984735683)
 
 #### 藤本 洸大
+* 2005年10月6日
 * Instagram: [kodai_fujimoto_official](https://www.instagram.com/kodai_fujimoto_official)
 * TopCoat/FC: [藤本洸大](https://sp.tcland.jp/kodai_fujimoto)
 
