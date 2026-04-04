@@ -5,12 +5,14 @@ permalink: /solo/
 ---
 
 #### 索引
-* [简 秀吉](#简-秀吉)
-* [藤本 洸大](#藤本-洸大)
+* [简 秀吉](#kan)
+* [藤本 洸大](#kodai)
 
 <div class="sublist" markdown="1">
 
 ## 简 秀吉
+{: #kan}
+
 * **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
 * **260401 [Preppy5月号(4/1)]杂志发售 & 海报展告知**
     > [文字采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
@@ -24,23 +26,25 @@ permalink: /solo/
     > [ins](https://www.instagram.com/p/DV5p_dXgRfH/)
     > **Kan Hideyoshi FC 2nd Anniversary Event宣布举行** 2026.5.9 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2032795150213361728)｜[ins](https://www.instagram.com/p/DV3Vn0kk78_/)
     > **260315 小简的感谢推** ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2033120587661639877)
-    > **260124 FM配信决定！** ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2015030271628984688)｜[𝕏购票](https://x.com/kan_hideyoshi/status/2015030692657365138) 检修机我只能说你是个天使!!
+    > **260124 FM全三场配信决定！** ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2015030271628984688)｜[𝕏购票](https://x.com/kan_hideyoshi/status/2015030692657365138) 检修机我只能说你是个天使!!
     > 周边通贩开始 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2032788930429648988)
-* **260309 [Preppy5月号(4/1)]宣传视频3 LOOK RED** ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏小简](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲小简](https://www.instagram.com/p/DVqOxLtAd3q/)
-* **260306 [Preppy5月号(4/1)]宣传视频2 LOOK BLACK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029859539722371361)｜[𝕏照片](https://x.com/kan_hideyoshi/status/2029861175610200232)｜[𝓲小简](https://www.instagram.com/p/DVifz6UgSqE/)
+* **260309 [Preppy5月号(4/1)]宣传视频3 LOOK RED** ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲简(照片)](https://www.instagram.com/p/DVqOxLtAd3q/)
+* **260306 [Preppy5月号(4/1)]宣传视频2 LOOK BLACK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029859539722371361)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2029861175610200232)｜[𝓲简(照片)](https://www.instagram.com/p/DVifz6UgSqE/)
 * **260304 [Preppy5月号(4/1)]宣传视频1 LOOK PINK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029134769234014703)
 * **260303 [Preppy5月号(4/1)]预约特典** ⇨ [𝕏日亚特典](https://x.com/preppy_magazine/status/2028757275197026603)｜[𝕏heritage特典](https://x.com/preppy_magazine/status/2028757279659692532)
-* **260227 [Preppy5月号(4/1)]封面解禁** 樱花粉小简太美了！⇨ [𝕏](https://x.com/preppy_magazine/status/2027307721079615656)｜[𝕏小简](https://x.com/kan_hideyoshi/status/2027307750846591088)｜[𝓲小简](https://www.instagram.com/p/DVQWq7wATbY/)
+* **260227 [Preppy5月号(4/1)]封面解禁** 樱花粉小简太美了！⇨ [𝕏](https://x.com/preppy_magazine/status/2027307721079615656)｜[𝕏简](https://x.com/kan_hideyoshi/status/2027307750846591088)｜[𝓲简](https://www.instagram.com/p/DVQWq7wATbY/)
 * **260218 [Preppy5月号(4/1)]登场** 封面＆16P ３LOOK ⇨ [𝕏](https://x.com/preppy_magazine/status/2023958811040502198)
 * **260209~260302 舞台剧『ピーターとアリス』公演**
-    > ⇨ [𝕏小简](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲小简](https://www.instagram.com/p/DVYRSt1gR4O/)
+    > ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲简](https://www.instagram.com/p/DVYRSt1gR4O/)
     > 東京公演／東京芸術劇場 プレイハウス 2026年2月9日（月）～2月23日（月・祝）
     > 大阪公演 ／梅田芸術劇場シアター・ドラマシティ 2026年2月28日（土）～3月2日（月）
 
 ## 藤本 洸大
-* **260409 19:00〜NATSLIVE「洸大のサイコロジーアート」配信**
+{: #kodai}
+
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [ins](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
-* **260412 4月12日(日)10:15PM~ ABC电视剧「マエラー」播出** 洸大出演 塩野春樹役 ⇨ [ins](https://www.instagram.com/p/DWYkRviFET7)｜[官网](https://www.asahi.co.jp/drama_error/)
+* **260412 4月12日(日)22:15~ ABC电视剧「マエラー」播出** 洸大出演 塩野春樹役 ⇨ [ins](https://www.instagram.com/p/DWYkRviFET7)｜[官网](https://www.asahi.co.jp/drama_error/)
+* **260409 19:00〜NATSLIVE「洸大のサイコロジーアート」配信**
 * **260403 [Fineboys4月号(3/9)] 拍摄采访** ⇨ [ins](https://www.instagram.com/reel/DWqelsChh_S/)
     > 喜欢吃的寿司种类是虾🍤，回到老家会想吃妈妈做的土豆炖肉和蛋包饭。
 * **260401 [Fineboys4月号(3/9)] 特典亲签拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2038994738989375816)
