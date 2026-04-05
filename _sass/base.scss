@@ -291,10 +291,18 @@ li p {
 	color: #ee5b9f;
 }
 
+.sublist h4 {
+	/* orange:  #ee5222; 
+	yellow: #ee8122;*/
+	font-weight: inherit;
+	font-size:inherit;
+	color: #28aa67;
+	display: inline;
+}
+
 .text-blue{
 	color: #1779ca;
 }
-
 
 .text-pink{
 	color: #ee5b9f;
@@ -302,6 +310,10 @@ li p {
 
 .text-red{
 	color: #ff1818;
+}
+
+.text-green{
+	color: #28aa67;
 }
 
 /**

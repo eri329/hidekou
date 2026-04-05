@@ -60,9 +60,9 @@ permalink: /
     > ⇨ 17:17 关于交换穿搭: 小简一整个藤本洸大全肯定，甚至夸到吃螺丝，只有小猪在认真答题
     > ⇨ 19:07 中国风穿搭: 小简想定住小猪是要干嘛...他甚至说了要定住一辈子??何意味?? 小猪:对小简的charming point了如指掌甚至进行指导ing
     > ⇨ 23:54 小猪cue了中国粉丝和自己的昵称“小猪”^^
-    > #### 还是中杂会问敢问会嗑好嗑……  
+    > #### 还是中杂会问敢问会嗑好嗑……又一个包浆视频^^
 * **260404【杂志｜双人】Preppy6月号(5/1)宣传视频** ⇨ [𝕏黑白look(手相又回来了)](https://x.com/manga10_tw/status/2040368791100555489)
-* **260403【杂志｜双人】Starside#2 Spring 2026杂志发售**{: .text-red} 
+* **260403【杂志｜双人】Starside#2 Spring 2026(4/3)杂志发售**{: .text-red} 
     > 配置: 四个封面+实体周边+电子海报+5分钟BTS视频+25分钟采访视频+10分钟mini corner视频 ⇨ [官网](https://www.starsidemagazine.com/)
     > 除BTS以外的视频要4月11日才会发出
     > #### 80p内页爽看中!!沙发上的小连续剧甜死，已严肃品鉴小简眼神的热度；BTS在原来的公开花絮上增加了三分钟，开饭吧狐猪妹!
@@ -84,7 +84,7 @@ permalink: /
 * **260330【修学旅行｜双人】狐猪给福田步汰送上生日小视频**
     > [𝕏](https://x.com/dramal_abc/status/2038544523421479420)/[ins](https://www.instagram.com/p/DWgMuVpE3Ql/) <span>蹦蹦跳跳可爱得要命的两个人!</span>{: .text-pink}
     > [𝕏步汰的回应](https://x.com/official_DXTEEN/status/2038626898897735909) 
-* **260330【杂志｜双人】GIANNA BOYFRIEND 11 杂志发售** 
+* **260330【杂志｜双人】GIANNA BOYFRIEND 11(3/30)杂志发售** 
     > ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2038578169800949784) <span>打码的手机壳👀</span>{: .text-pink}
     > ⇨ [𝓲简:很多图](https://www.instagram.com/p/DWgb3NkARjo/)
     > ⇨ [𝕏双人宣传视频](https://x.com/GIANNABOYFRIEND/status/2038452659821395996) <span>超绝盯人小简侧颜大放送中😊</span>{: .text-pink}
@@ -106,7 +106,7 @@ permalink: /
     > (两个人在桌前小猪打喷嚏的物料正在寻找中)
     > [𝕏后台退场小视频](https://x.com/dramal_abc/status/2038211119618392247)/[ins](https://www.instagram.com/p/DWd1Thjkwwk/) <span>洸->简「それ何それ」然后对工作人员小小声点头鞠躬实在太萌了...</span>{: .text-pink}
 * **260328【杂志｜双人】Preppy6月号(5/1)宣传视频** ⇨ [𝕏蓝白look(消失的手相)](https://x.com/preppy_magazine/status/2037832076054147102)
-* **260324【杂志｜双人】中国首封Lemon凝眸＜This Moment's Youth＞ 杂志发售**{: .text-red}
+* **260324【杂志｜双人】中国首封Lemon凝眸＜This Moment's Youth＞(3/24)杂志发售**{: .text-red}
     > [📕lemon](https://www.xiaohongshu.com/discovery/item/69c1566200000000220027eb?source=webshare&xhsshare=pc_web&xsec_token=ABR4DcXXBvwzbSc1WkEZa5TDGboFPaZhncWXoaCZkzBuY=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5279981879428619)/[𝕏](https://x.com/lemon_mag_cn/status/2036310539857486216)/[ins](https://www.instagram.com/p/DWQU3QdiNPS) <span>每一张都好品…还是中国同人女会嗑</span>{: .text-pink}
     > [𝕏简-怼脸照](https://x.com/kan_hideyoshi/status/2036381740957311207)
     > [𝓲简-多图版](https://www.instagram.com/p/DWQ05_XgSGF/) <span>救命了有一张小猪给他拍照的照片还被他挑出来发快拍</span>{: .text-pink}
@@ -127,24 +127,24 @@ permalink: /
     > #### 角川官方已带上#ひでこう建設tag，是会嗑的😇
     > **260403 手渡会场贩周边已开通贩** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2039991414986326114)
     > **260319 手渡会周边情报** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2034555487333810403)
-* **260325 洸大ins发了大量疑似修学旅行片场风景照** ⇨ [ins](https://www.instagram.com/p/DV5_H11FI6u/)
+* **260325【修学旅行｜藤本洸大】洸大ins发了大量疑似修学旅行片场风景照** ⇨ [𝓲洸](https://www.instagram.com/p/DV5_H11FI6u/)
     > #### 小猪你也在想念修仲了吗？
 * **260315【修学旅行｜双人】上线韩国Heavenly** ⇨ [𝕏宣传视频](https://x.com/heavenly_pick/status/2033151232098054342)
 * **260314~260320 Starside新宿大屏宣传@Shinjuku YUNIKA VISION** ⇨ [𝕏-1](https://x.com/starside_x/status/2028425218809868712)｜[𝕏-2](https://x.com/starside_x/status/2032461713547923858)
-* **260312【杂志】CYAN MAN 4月号 杂志发售**
+* **260312【杂志｜简秀吉｜藤本洸大】CYAN MAN 4月号(3/12)杂志发售**
     > CYAN MAN照片N连发: 洸大: [𝕏1-黄蓝](https://x.com/CYANMANMAGAZINE/status/2031747145708286255), [𝕏2-粉](https://x.com/CYANMANMAGAZINE/status/2031747154801517025), [𝕏3-白](https://x.com/CYANMANMAGAZINE/status/2031747162615472264)｜小简: [𝕏-1](https://x.com/CYANMANMAGAZINE/status/2031747204998943139), [𝕏2](https://x.com/CYANMANMAGAZINE/status/2031747209545584908), [𝕏3](https://x.com/CYANMANMAGAZINE/status/2031747214767542545), [𝕏4](https://x.com/CYANMANMAGAZINE/status/2031747227484627428)
     > [𝕏简](https://x.com/kan_hideyoshi/status/2032038875829584196)|[𝓲简](https://www.instagram.com/p/DVx-HeQgb26/)
     > [𝓲洸](https://www.instagram.com/p/DVyITpTFAbX)
-    > **260328~260402 洸大拍摄花絮** ⇨ [𝓲-白](https://www.instagram.com/reel/DWbCY7GTXYa/)｜[𝓲-粉](https://www.instagram.com/reel/DWiwulJTDII/) | [𝓲-黄蓝](https://www.instagram.com/reel/DWn6XZOTA-M/)
+    > **260328~260402 洸大拍摄花絮** ⇨ [𝓲-白(3/28)](https://www.instagram.com/reel/DWbCY7GTXYa/)｜[𝓲-粉(3/31)](https://www.instagram.com/reel/DWiwulJTDII/) | [𝓲-黄蓝(4/2)](https://www.instagram.com/reel/DWn6XZOTA-M/)
     > #### 被第3条的笑容击倒!!为什么小猪的花絮全是躺倒的hhh他真的随地大小躺☺️
-    > **260318~260325 小简拍摄花絮** ⇨ [𝓲-1](https://www.instagram.com/reel/DWBSY58Tbcs/)｜[𝓲-2](https://www.instagram.com/reel/DWLlpbdT08S/) | [𝓲-3](https://www.instagram.com/reel/DWQvKWkT1fk/) | [𝓲-4](https://www.instagram.com/reel/DWV40H8z5t1/)
+    > **260318~260325 小简拍摄花絮** ⇨ [𝓲(3/18)](https://www.instagram.com/reel/DWBSY58Tbcs/)｜[𝓲(3/22)](https://www.instagram.com/reel/DWLlpbdT08S/) | [𝓲(3/2(3/25)](https://www.instagram.com/reel/DWV40H8z5t1/)
     > #### 超大一只狐狸犬(什)又帅又可爱>//<
-    > **260327~260404 CYAN MAN ins洸大9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWYdGqoml8T/?img_index=1)
-    > **260318~260326 CYAN MAN ins小简9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWBR5OfGt3I/?img_index=1)
+    > **260327~260404 CYAN MAN 洸大9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWYdGqoml8T/?img_index=1)
+    > **260318~260326 CYAN MAN 小简9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWBR5OfGt3I/?img_index=1)
     > #### 和小简自己发的图有重叠，小简自己发的比较高清hhh
     > **260302【杂志】CYAN MAN 4月号(3/12)简洸特别版书店活动告知** 3/12~3/14
     > [𝕏](https://x.com/CYANMANMAGAZINE/status/2028410109609832634),[𝕏(简)](https://x.com/CYANMANMAGAZINE/status/2028417549122347396), [𝕏(洸)](https://x.com/CYANMANMAGAZINE/status/2028417763421921652), [ins](https://www.instagram.com/reel/DVYL-eXEyPN/)
-* **260308【修学旅行】蓝光box追加特典台湾making** ⇨ [𝕏](https://x.com/dramal_abc/status/2030312524504027431)/[ins](https://www.instagram.com/p/DVltM0Rkyld/)｜[260313-711](https://x.com/7_netshopping/status/2032328299972620599) ｜ [蓝光box情报](https://www.asahi.co.jp/schooltrip/goods/)
+* **260308【修学旅行】蓝光box追加特典台湾making** ⇨ [𝕏](https://x.com/dramal_abc/status/2030312524504027431)/[ins](https://www.instagram.com/p/DVltM0Rkyld/)｜[711(3/13)](https://x.com/7_netshopping/status/2032328299972620599) ｜ [蓝光box情报](https://www.asahi.co.jp/schooltrip/goods/)
 * **260302【修学旅行】纪伊国屋书店2026/2/23～3/1best seller** ⇨ [𝕏](https://x.com/Kinokuniya/status/2028363528592400861)
 * **260301【修学旅行】4/18举办台湾粉丝见面会** ⇨ [𝕏](https://x.com/dramal_abc/status/2027783353915625940)/[ins](https://www.instagram.com/p/DVTvCWpEUWP/)
 
@@ -158,28 +158,34 @@ permalink: /
 * **260220【修学旅行】Modelpress修仲喜爱场景排行榜公布** ⇨ [𝕏](https://x.com/modelpress/status/2024756184604168642)
 * **260220【杂志｜双人】Starside#2 Spring 2026(4/3)开启预约**{: .text-red}
     > [𝕏官方封面更高清-D](https://x.com/starside_x/status/2024801568231747936)/[𝕏官方封面C](https://x.com/starside_x/status/2024801564037439495)/[𝕏官方封面A](https://x.com/starside_x/status/2024801555904647388)|[𝕏配置一览](https://x.com/starside_x/status/2024829552514748858)
-    > 小简发照片狂魔(感谢他): [𝕏简-花絮照](https://x.com/kan_hideyoshi/status/2025176815598534842)｜[ins!简-花絮照有小猪](https://www.instagram.com/p/DVBNnpWAT03/)｜[𝕏简-封面](https://x.com/kan_hideyoshi/status/2024801299074863610)｜[ins!简-封面](https://www.instagram.com/p/DU-i2pdAZdW/) <span>这个人在为能和小猪继续工作而感谢大家的应援🥹</span>{: .text-pink}
-    > **260221「Over the Moon」2分钟BTS视频** ⇨ [𝕏视频很糊](https://x.com/starside_x/status/2025163611123884147)/[官网-清晰版](https://www.starsidemagazine.com/)｜[𝕏歌手留言](https://x.com/asAhi_staff111/status/2025169467089846310) <span>
+    > 小简发照片狂魔(感谢他): [𝕏简-花絮照](https://x.com/kan_hideyoshi/status/2025176815598534842)｜[𝓲简-花絮照有小猪](https://www.instagram.com/p/DVBNnpWAT03/)｜[𝕏简-封面](https://x.com/kan_hideyoshi/status/2024801299074863610)｜[𝓲简-封面](https://www.instagram.com/p/DU-i2pdAZdW/) <span>这个人在为能和小猪继续工作而感谢大家的应援🥹</span>{: .text-pink}
+    > **260221「Over the Moon」2分钟BTS视频** ⇨ [𝕏视频很糊](https://x.com/starside_x/status/2025163611123884147)/[官网-清晰版](https://www.starsidemagazine.com/)｜[𝕏歌手留言](https://x.com/asAhi_staff111/status/2025169467089846310)
     > #### 特别地好嗑!!已成为我的人生视频。谁懂1:30小简的眼神……
-    > 官博零零散散发的图: [𝕏2-23](https://x.com/starside_x/status/2025888510402855356)｜[𝕏2-25](https://x.com/starside_x/status/2026613942446075916)｜[𝕏3-2](https://x.com/starside_x/status/2028425218809868712)｜[𝕏3-6](https://x.com/starside_x/status/2029877634600247763)｜[𝕏3-10](https://x.com/starside_x/status/2031325253859705220)｜[𝕏3-29](https://x.com/starside_x/status/2037950821854552381)
+    > 官博零零散散发的图: [𝕏(2/23)](https://x.com/starside_x/status/2025888510402855356)｜[𝕏(2/25)](https://x.com/starside_x/status/2026613942446075916)｜[𝕏(3/2)](https://x.com/starside_x/status/2028425218809868712)｜[𝕏(3/6)](https://x.com/starside_x/status/2029877634600247763)｜[𝕏(3/10)](https://x.com/starside_x/status/2031325253859705220)｜[𝕏(3/29)](https://x.com/starside_x/status/2037950821854552381)
 * **260218【修学旅行】登上雅虎新闻** ⇨ [関西ローカルから放送終了後も続く余波。『修学旅行で仲良くないグループに入りました』が人気を呼んだ理由](https://news.yahoo.co.jp/expert/articles/0839a7d093cd7b7cd61c02643d5920b5b26531f3)
-* **260216【杂志】CYAN MAN 4月号(3/12)封面解禁+宣传视频**
+* **260216【杂志｜简秀吉｜藤本洸大】CYAN MAN 4月号(3/12)封面解禁+宣传视频**
     > [𝕏双封面(简)](https://x.com/CYANMANMAGAZINE/status/2023306422604476833)/[ins](https://www.instagram.com/reel/DUz7qN8k55J/), [𝕏双封面(洸)](https://x.com/CYANMANMAGAZINE/status/2023306428979847311)/[ins](https://www.instagram.com/reel/DUz8UElkxEs/)
     > [𝕏宣传视频(简)](https://x.com/CYANMANMAGAZINE/status/2023344761428750541)/[ins](https://www.instagram.com/reel/DU0Cmlck45h/), [𝕏宣传视频(洸)](https://x.com/CYANMANMAGAZINE/status/2023344981830963306)/[ins](https://www.instagram.com/reel/DU0DIdok34o/)
-    > [𝕏简](https://x.com/kan_hideyoshi/status/2023306544390234237)｜[ins!简](https://www.instagram.com/p/DUz7EttgYfX/?)
+    > [𝕏简](https://x.com/kan_hideyoshi/status/2023306544390234237)｜[𝓲简](https://www.instagram.com/p/DUz7EttgYfX/?)
     > **260311** [𝓲简-封面图](https://www.instagram.com/p/DVvQ4x3mijM/?img_index=1), [𝓲洸-封面图](https://www.instagram.com/p/DVvRZ-KmvzA/?img_index=1)
 * **260216【杂志｜双人】GIANNA BOYFRIEND 11(3/30) 双人W封面定档** ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/2022140463030141249)
 * **260215【修学旅行】蓝光Box PR解禁**{: .text-red}
     > 特典包括: 修学旅行making, 圣诞上映会，最终回双人reaction
-    > [𝕏PR视频](https://x.com/dramal_abc/status/2022702374196846893) <span>看完无人会不想买bo𝕏!感觉此视频已被狐猪妹盘包浆</span>{: .text-pink}
+    > [𝕏PR视频](https://x.com/dramal_abc/status/2022702374196846893) <span>看完无人会不想买box！感觉此视频已被狐猪妹盘包浆</span>{: .text-pink}
 * **260214~260220【杂志｜双人】Starside#2 Spring 2026(4/3)双人特辑定档**
-    > BTS小片段: [𝕏2-14](https://x.com/starside_x/status/2022626930152083514)｜[𝕏2-15](https://x.com/starside_x/status/2022989272928993404)｜[𝕏2-16](https://x.com/starside_x/status/2023351960829923740)
-    > [𝕏2-17双人宣传](https://x.com/starside_x/status/2023714055425524197)｜[𝕏2-18洸大宣传](https://x.com/starside_x/status/2024076465948823908)｜[𝕏2-19小简宣传](https://x.com/starside_x/status/2024438940678164525) <span>很久没见面的两个宝宝💕</span>{: .text-pink}
-* **260214【修学旅行】渡会生日快乐!**
-> [𝕏修仲官博](https://x.com/dramal_abc/status/2022445686730653799)｜[ins!修仲官博](https://www.instagram.com/p/DUtzwBpEz4m/)｜[𝕏简-渡会推](https://x.com/kan_hideyoshi/status/2022508379491700766)｜[𝕏简-个人推](https://x.com/kan_hideyoshi/status/2022639391639036152)｜[ins!简-个人推](https://www.instagram.com/p/DUvLp6ygV_Z/)  <span>小简说希望可以再次饰演渡会🥹</span>{: .text-pink}
+    > BTS小片段: [𝕏(2/14)](https://x.com/starside_x/status/2022626930152083514)｜[𝕏(2/15)](https://x.com/starside_x/status/2022989272928993404)｜[𝕏(2/16)](https://x.com/starside_x/status/2023351960829923740)
+    > [𝕏双人宣传(2/17)](https://x.com/starside_x/status/2023714055425524197)｜[𝕏洸大宣传(2/18)](https://x.com/starside_x/status/2024076465948823908)｜[𝕏小简宣传(2/19)](https://x.com/starside_x/status/2024438940678164525) <span>很久没见面的两个宝宝💕</span>{: .text-pink}
+* **260214【修学旅行｜藤本洸大】web采访 推し楽:** ⇨ [采访](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
+    > #### 讲了很多修仲，值得一读!!
+    > 1.对修仲大火的实感
+    > 2.对女装很上头的小猪，日置是最接近自己的角色
+    > 3.小猪自己剪修仲的宣传视频特意把小简的「ホニョ」挑出来打上字幕，说简桑真的很有趣
+    > 4.公式书趣事，和小简平时会聊什么，时尚方面的差异
+* **260214【修学旅行｜简秀吉】渡会生日快乐!**
+> [𝕏修仲官博](https://x.com/dramal_abc/status/2022445686730653799)｜[𝓲修仲官博](https://www.instagram.com/p/DUtzwBpEz4m/)｜[𝕏简-渡会推](https://x.com/kan_hideyoshi/status/2022508379491700766)｜[𝕏简-个人推](https://x.com/kan_hideyoshi/status/2022639391639036152)｜[𝓲简-个人推](https://www.instagram.com/p/DUvLp6ygV_Z/)  <span>小简说希望可以再次饰演渡会🥹</span>{: .text-pink}
 * **260213~260308【修学旅行】漫画展快闪店in上海** ⇨ [𝕏告知](https://x.com/manga10_torico/status/2019712680421208450)｜[𝕏店铺展示](https://x.com/manga10_torico/status/2022166826118234357)
 * **260213【修学旅行】漫画展at台湾决定举办** 4/3～5/3 ⇨ [𝕏](https://x.com/manga10_tw/status/2022249397178786247)
-* **260206【杂志】CYAN MAN 4月号特别版(3/12) 简秀吉藤本洸大分别W封面定档** 
+* **260206【杂志｜简秀吉｜藤本洸大】CYAN MAN 4月号特别版(3/12) 简秀吉藤本洸大分别W封面定档** 
     > 纯文字预热推: 简:[ins](https://www.instagram.com/reel/DUaLxmYiS7A/)/[𝕏](https://x.com/CYANMANMAGAZINE/status/2019683113593602546), 洸:[ins](https://www.instagram.com/reel/DUaL5E9CS5B/)/[𝕏](https://x.com/CYANMANMAGAZINE/status/2019683447497978235)
     > #### 因为是一起宣的所以被揪来当双人物料了，好配！
 
@@ -193,7 +199,7 @@ permalink: /
 
 * **251207【修学旅行｜双人】漫画展手渡会at涉谷** ⇨ [活动详细](https://x.com/manga10_torico/status/2022166826118234357)
 * **251205~260131【修学旅行】漫画展at天王寺** ⇨ [官网+周边](https://x.com/manga10_torico/status/2022166826118234357)｜[𝕏结束日](https://x.com/manga10_torico/status/2017561168773099937)
-* **251205~260118【修学旅行】漫画展at涉谷** ⇨ [官网+周边](https://x.com/manga10_torico/status/2022166826118234357)｜[𝕏相关推文](https://x.com/search?q=from%3Amanga10_torico%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query)
+* **251205~260118【修学旅行】漫画展at涉谷** ⇨ [官网+周边](https://x.com/manga10_torico/status/2022166826118234357)｜[𝕏相关推文](https://x.com/search?q=from%3Amanga10_torico%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query)｜[𝕏(1/18)](https://x.com/manga10_torico/status/2012858512137965687) | [𝕏步汰去了漫画展(1/14)](https://x.com/official_DXTEEN/status/2011388435786056010)
     > 关于漫画展的各种情报告知略过
 
 </div>
