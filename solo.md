@@ -133,4 +133,6 @@ permalink: /solo/
 
 [test](https://www.xiaohongshu.com/explore/69720375000000000a02e841?xsec_token=ABeKi32Oy9xEWGGcWfQSyMm3NvsF_Hfzrejd7UAicp1Aw=&xsec_source=pc_user)
 [test2](https://www.xiaohongshu.com/discovery/item/69720375000000000a02e841?source=webshare&xhsshare=pc_web&xsec_token=ABeKi32Oy9xEWGGcWfQSyMm3NvsF_Hfzrejd7UAicp1Aw=&xsec_source=pc_share)
+
+[test3](https://www.xiaohongshu.com/explore/6974a89e000000000903911a?xsec_token=ABwdB5lljCVLPxtLRfWoq1R_LTaPghf1hQz3rujkoBWek=&xsec_source=pc_user)
 </div>
