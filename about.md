@@ -51,6 +51,7 @@ permalink: /about/
 * 2005年10月6日
 * Instagram: [kodai_fujimoto_official](https://www.instagram.com/kodai_fujimoto_official)
 * TopCoat/FC: [藤本洸大](https://sp.tcland.jp/kodai_fujimoto)
+* TopCoat: [Kodai Schedule](https://topcoat.co.jp/kodai_fujimoto/contents/schedule)
 
 <!-- This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
 
