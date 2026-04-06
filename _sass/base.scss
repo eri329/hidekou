@@ -265,6 +265,18 @@ blockquote {
 	border-left: 2px solid #393939;
 }
 
+.drama-quote blockquote {
+	font-size: 14px;
+	border: 2px solid #46bae8;
+	padding: 20px;
+	margin: 5px;
+	font-style: normal; /* Remove default italic if unwanted */
+}
+
+.drama-quote p {
+	margin: 0;
+}
+
 .sublist li {
 	line-height: 1.5 !important;
 }

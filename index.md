@@ -23,6 +23,8 @@ permalink: /
 * [2026.1](#jan2026)
 ### [2025](#year2025)
 * [2026.12](#dec2025)
+* [2026.11](#nov2025)
+* [2026.10](#oct2025)
 
 <div class="line"></div>
 
@@ -35,6 +37,7 @@ permalink: /
 {: #may2026}
 
 * **260508【修学旅行｜双人】蓝光box发售**
+    > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)
 
 ### 2026.4
 {: #apr2026}
@@ -64,10 +67,10 @@ permalink: /
     > #### 还是中杂会问敢问会嗑好嗑……又一个包浆视频^^
 * **260404【杂志｜双人】Preppy6月号(5/1)宣传视频** ⇨ [𝕏黑白look(手相又回来了)](https://x.com/manga10_tw/status/2040368791100555489)
 * **260403【杂志｜双人】Starside#2 Spring 2026(4/3)杂志发售**{: .text-red} 
-    > 配置: 四个封面+实体周边+电子海报+5分钟BTS视频+25分钟采访视频+10分钟mini corner视频 ⇨ [官网](https://www.starsidemagazine.com/)
+    > 配置: 四个封面+实体周边+电子海报+5分钟BTS视频+25分钟采访视频+10分钟mini corner视频 ⇨ [官网有公开的BTS视频](https://www.starsidemagazine.com/)
     > 除BTS以外的视频要4月11日才会发出
     > #### 80p内页爽看中!!沙发上的小连续剧甜死，已严肃品鉴小简眼神的热度；BTS在原来的公开花絮上增加了三分钟，开饭吧狐猪妹!
-* **260403～260503【修学旅行】漫画展at台湾** ⇨ [𝕏](https://x.com/manga10_tw/status/2040006475196838279)
+* **260403～260503【修学旅行】快闪店in台湾** ⇨ [𝕏](https://x.com/manga10_tw/status/2040006475196838279)
 * **260402【杂志｜双人】Preppy6月号(5/1)花絮 互相挑衣服+拍照**
     > 小简洸大的快拍都有发 ⇨ [𝕏花絮](https://x.com/preppy_magazine/status/2039644006225731734)
     > #### 一起笑着挑衣服真是太养眼了，互拍合集有:[📕喜欢上了全世界最爱互相拍照的小情侣](https://www.xiaohongshu.com/discovery/item/69ce71f30000000023024d61?source=webshare&xhsshare=pc_web&xsec_token=ABdKm4LmwsaFacnF0PbW7YMt3tLGI9Xp0QcXysE6yWRRg=&xsec_source=pc_share)
@@ -185,15 +188,15 @@ permalink: /
 * **260214【修学旅行｜简秀吉】渡会生日快乐!**
 > [𝕏修仲官博](https://x.com/dramal_abc/status/2022445686730653799)｜[𝓲修仲官博](https://www.instagram.com/p/DUtzwBpEz4m/)｜[𝕏简-渡会推](https://x.com/kan_hideyoshi/status/2022508379491700766)｜[𝕏简-个人推](https://x.com/kan_hideyoshi/status/2022639391639036152)｜[𝓲简-个人推](https://www.instagram.com/p/DUvLp6ygV_Z/)
 > #### 小简说希望可以再次饰演渡会🥹
-* **260213~260308【修学旅行】漫画展快闪店in上海** ⇨ [𝕏告知](https://x.com/manga10_torico/status/2019712680421208450)｜[𝕏店铺展示](https://x.com/manga10_torico/status/2022166826118234357)
-* **260213【修学旅行】漫画展at台湾决定举办** 4/3～5/3 ⇨ [𝕏](https://x.com/manga10_tw/status/2022249397178786247)
+* **260213~260308【修学旅行】快闪店in上海** ⇨ [𝕏告知](https://x.com/manga10_torico/status/2019712680421208450)｜[𝕏店铺展示](https://x.com/manga10_torico/status/2022166826118234357)
+* **260213【修学旅行】台湾快闪店开设决定** 4/3～5/3 ⇨ [𝕏](https://x.com/manga10_tw/status/2022249397178786247)
 * **260206【杂志｜简秀吉｜藤本洸大】CYAN MAN 4月号特别版(3/12) 简秀吉藤本洸大分别W封面定档** ⇨ 纯文字预告: 简:[ins](https://www.instagram.com/reel/DUaLxmYiS7A/)/[𝕏](https://x.com/CYANMANMAGAZINE/status/2019683113593602546), 洸:[ins](https://www.instagram.com/reel/DUaL5E9CS5B/)/[𝕏](https://x.com/CYANMANMAGAZINE/status/2019683447497978235)
     > #### 因为是一起宣的所以被揪来当双人物料了，好配！
 
 ### 2026.1
 {: #jan2026}
 
-* **260125【修学旅行｜双人】Gagaoolala上线修仲番外+狐猪宣传视频** ⇨ [𝕏](https://x.com/gagaoolala/status/2015243225624142260)
+* **260125【修学旅行｜双人】GagaOOLala上线修仲番外+狐猪宣传视频** ⇨ [𝕏](https://x.com/gagaoolala/status/2015243225624142260)
 * **260123【采访｜藤本洸大】STORY Web采访+拍立得应募** ⇨ [𝕏](https://x.com/story_web/status/2014646920023802170)
     > 前篇 [話題の俳優・藤本洸大さん簡秀吉さんとの関係「ドラマと素は全く逆!？」](https://storyweb.jp/lifestyle/680244/)
     >  ⇨ 「イケメンに愛される役のちょっとした特別感、ドラマ内での立ち位置や、徐々に膨らんでいく恋心まで、绝妙な塩梅感を出すことは难しかったように思います。」<span>小猪表演日置时思考的东西真的都特别好…</span>{: .text-pink}
@@ -213,7 +216,7 @@ permalink: /
 * **260107【修学旅行】OST上线** ⇨ [𝕏](https://x.com/dramal_abc/status/2008690855469891897)｜[Youtube Music](https://music.youtube.com/playlist?list=OLAK5uy_nABGX9DWKvssj5OQtduPBQL5oi5qnA29Y)｜[各平台一览](https://nex-tone.link/A00209589)
     > 作者鈴木ヤスヨシ感谢OST进入iTunes trend ⇨ [𝕏](https://x.com/Yasu_coda/status/2008853925462773796) <span>我们修仲就是全方面优秀没有短板!</span>{: .text-pink}
 * **260105【修学旅行｜双人】公式书宣传视频** ⇨ [𝓲洸](https://www.instagram.com/p/DTIN0hKiRPT/)
-* **260104【修学旅行｜正片】After Story 番外后篇播出** ⇨ [FOD](https://x.com/fujitvplus/status/2007469527031033957)｜[PR视频(1/3)](https://x.com/dramal_abc/status/2007365349776494940)
+* **260104【修学旅行｜正片】番外篇后篇播出**{: .text-red} ⇨ [FOD](https://x.com/fujitvplus/status/2007469527031033957)｜[PR视频(1/3)-和前篇的PR是一样的](https://x.com/dramal_abc/status/2007365349776494940)
 * **260103【修学旅行｜简秀吉】和渡会道别的小简&F5集体比心照片** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2007419176093372798)
 * **260102【双人】狐猪祝大家新年快乐+宣传番外2** ⇨ [𝕏](https://x.com/dramal_abc/status/2006968702458290387)/[ins](https://www.instagram.com/p/DS_1mS7ExD0/)
 
@@ -221,12 +224,67 @@ permalink: /
 
 ## 2025
 {: #year2025}
+*由于剧播期间官方发物料的时间不具备参考意义, 官方物料都尽量收在正片条目下面, 发出日期不作记录。有些物料也放得比较随意orz*
+
 
 ### 2025.12
 {: #dec2025}
 
-* **251207【修学旅行｜双人】漫画展手渡会at涉谷** ⇨ [活动详细](https://x.com/manga10_torico/status/2022166826118234357)
-* **251205~260131【修学旅行】漫画展at天王寺** ⇨ [官网+周边](https://x.com/manga10_torico/status/2022166826118234357)｜[𝕏结束日](https://x.com/manga10_torico/status/2017561168773099937)
-* **251205~260118【修学旅行】漫画展at涉谷** ⇨ [官网+周边](https://x.com/manga10_torico/status/2022166826118234357)｜[𝕏相关推文](https://x.com/search?q=from%3Amanga10_torico%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query)｜[𝕏(1/18)](https://x.com/manga10_torico/status/2012858512137965687) | [𝕏步汰打卡(1/14)](https://x.com/official_DXTEEN/status/2011388435786056010)
+* **251228【修学旅行｜正片】番外篇前篇「息もできない」播出**{: .text-red}
+    > [𝕏花絮照-F5](https://x.com/dramal_abc/status/2005202069683122330)｜[𝕏剧照-舞台角落](https://x.com/dramal_abc/status/2004931168844828935)｜[𝕏剧照-日置家的合照](https://x.com/dramal_abc/status/2004839676809519535)｜[𝕏剧照-前三集剧照-旋转木马神图有](https://x.com/dramal_abc/status/2004492385892659279)｜[𝕏剧照-圣诞聚会](https://x.com/dramal_abc/status/2004175298628050959)
+    > **251229 TVguide repo** ⇨ [「恋人になってってことだよ」日置が渡会に思いを告げた「修学旅行」最終回](https://www.tvguide.or.jp/feature/feature-4248910/)/[𝕏剧照4张](https://x.com/TVGweb/status/2005603669920841788)
+    > **251225 番外篇前篇配信PR** ⇨ [𝕏PR视频](https://x.com/dramal_abc/status/2004145410814943333)
+    > **251224【双人】狐猪小视频** ⇨ [𝕏圣诞祝贺+番外宣传](https://x.com/dramal_abc/status/2003752510910050698)
+    > **【双人】杀青视频** ⇨ [𝕏杀青](https://x.com/dramal_abc/status/2004750622177067291)｜[𝕏拥抱](https://x.com/dramal_abc/status/2004887669407649897) <span>到底是谁先张开手准备拥抱的呀～</span>{: .text-pink}
+* **251225【修学旅行】公式书手渡会开催决定** 3.22东京&3.29大阪 ⇨ [𝕏特典周边](https://x.com/dramal_abc/status/2004026193285468563)
+* **251225【修学旅行】上海快闪店开设决定** ⇨ [𝕏](https://x.com/dramal_abc/status/2004122446576996684)
+* **251223【修学旅行】最终回纪念应募活动** 特典简洸亲签拍立得 ⇨ [𝕏](https://x.com/dramal_abc/status/2003322514584535516)
+* **251223【修学旅行｜双人】最终回简洸Reaction片段视频**
+    > [𝕏Re渡会的暴言](https://x.com/dramal_abc/status/2003430622577217897)｜[𝕏-不想结束的小简](https://x.com/dramal_abc/status/2003413286663127474)
+    > #### 特别能共鸣小简；；全体狐猪妹会跟小简一起哭
+* **251221【修学旅行｜简秀吉】小简祝贺最终回**{: .text-red} ⇨ [𝕏简](https://x.com/dramal_abc/status/2002683589016875250)｜[𝕏公式杀青照(2/20)](https://x.com/dramal_abc/status/2002378462150230299)
+    > #### 有被感动到😭最美杀青照……
+* **251221【修学旅行】亲妈祝贺最终回** ⇨ [𝕏](https://x.com/dramal_abc/status/2002504401987277245)
+* **251221【修学旅行｜双人】宣传番外篇+内容透露** ⇨ [𝕏](https://x.com/dramal_abc/status/2002472816457990256) <span>满脑子只有射击的小简……</span>{: .text-pink}
+* **251220【修学旅行｜正片】最终回!25:00～ 第10话「一生心に残り続けていく日々」播出**{: .text-red}
+    > [𝕏简](https://x.com/kan_hideyoshi/status/2002330290451366047) <span>「射撃祭り是非楽しんで下さい🏹💗」修仲有你了不起^^</span>{: .text-pink}
+    > [𝕏剧照-日置被扑倒](https://x.com/dramal_abc/status/2003072585316418039)｜[𝕏剧照-渡日喂食](https://x.com/dramal_abc/status/2002757172573462869)｜[𝕏剧照-圣诞大合照](https://x.com/dramal_abc/status/2002710909349937176)｜[𝕏剧照-渡日背影@教室](https://x.com/dramal_abc/status/2002409115205968189)｜[𝕏剧照-五天王并排走](https://x.com/dramal_abc/status/2002406135710482686)｜[𝕏剧照-射击直前](https://x.com/dramal_abc/status/2002393556963529093)｜[𝕏剧照-公园](https://x.com/dramal_abc/status/2002363358314381516)｜[𝕏剧照-圣诞聚会](https://x.com/dramal_abc/status/2002333162030940267)｜[𝕏剧照-最后一幕放学路](https://x.com/dramal_abc/status/2002303247030321648)｜[𝕏剧照-可能有重复的](https://x.com/TVGweb/status/2002152212466970787)｜[𝕏剧照-渡会背影@教室](https://x.com/dramal_abc/status/2002259391014396182)
+    > [𝕏花絮-渡日牵手@学校](https://x.com/dramal_abc/status/2002696450745266310)｜[𝕏花絮-渡日牵手@公园](https://x.com/dramal_abc/status/2002680981422256443)｜[𝕏花絮-渡日的笑容@公园](https://x.com/dramal_abc/status/2002499380868444439)｜[𝕏花絮-番外2床上的渡日2shot](https://x.com/dramal_abc/status/2002426267929620511)｜[𝕏花絮-意味不明的场记板](https://x.com/dramal_abc/status/2002408660677603464)｜[𝕏花絮-三天王毕业照](https://x.com/dramal_abc/status/2002348260938150374)｜[𝕏花絮-羽毛球社毕业](https://x.com/dramal_abc/status/2002318194053423544)｜[𝕏花絮-绝美射击直前](https://x.com/dramal_abc/status/2001593284666294546)
+    > [𝕏未公开公式照渡日2shot](https://x.com/dramal_abc/status/2002607019854082398)
+    > [𝕏9话拍摄花絮-学手势舞的简洸](https://x.com/dramal_abc/status/2002288276405674462)｜[𝕏推しと写真を撮りたい](https://x.com/dramal_abc/status/2002244046069309892) <span>痴汉小简wwwwww引用一下精彩评论「ドラマとは別に洸大姫に翻弄される溺愛ヘタレわんこ🐶さんにみえます」</span>{: .text-pink}
+    > [𝕏FOD](https://x.com/dramal_abc/status/2002416220277276918)｜[𝕏GagaOOLala](https://x.com/gagaoolala/status/2002544552192954431)
+    > [𝕏最终回PR](https://x.com/dramal_abc/status/2002136868729565220)
+* **251219【修学旅行｜双人】最终回先行上映会**{: .text-red}
+    > 影院同步放映 19:30～@ライブビューイング会場 ⇨ [𝕏](https://x.com/dramal_abc/status/2001224879123915057)
+    > [𝕏步汰-五天王合照](https://x.com/official_DXTEEN/status/2002021833449857494)｜相关人员发的推:[𝕏步汰](https://x.com/official_DXTEEN/status/2001991063339466886),[𝕏MC](https://x.com/mori_haruka_/status/2002007338870559057)
+    > [𝕏后台问候+最终回宣传(12/20)](https://x.com/dramal_abc/status/2002215378483834949) <span>好可爱好元气的祈祷小简!!</span>{: .text-pink}
+    > [𝕏后台准备花絮(12/26)](https://x.com/dramal_abc/status/2004527359027016165) <span>怼脸小猪+射击小简有, 小猪笑到直不起身www</span>{: .text-pink}
+* **251219【修学旅行】蓝光box发售决定&开始预约** ⇨ [𝕏特典情报](https://x.com/dramal_abc/status/2001942876432076937)
+* **251219【修学旅行】番外篇放送决定** 12/28前篇, 1/4后篇
+* **251213【修学旅行｜正片】25:00～ 第9话播出**{: .text-red}
+* **251207【修学旅行｜双人】快闪店手渡会at涉谷**{: .text-red} ⇨ [活动详细](https://www.manga10.com/event/3619)｜[𝕏狐猪打卡签名视频](https://x.com/dramal_abc/status/2004479472825975230)
+* **251206【修学旅行｜正片】25:00～ 第8话播出**{: .text-red}
+* **251205~260131【修学旅行】快闪店in天王寺** ⇨ [官网+周边](https://www.manga10.com/event/3619)｜[𝕏结束日](https://x.com/manga10_torico/status/2017561168773099937)
+* **251205~260118【修学旅行】快闪店in涉谷** ⇨ [官网+周边](https://www.manga10.com/event/3619)｜[𝕏相关推文](https://x.com/search?q=from%3Amanga10_torico%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query)｜[𝕏(1/18)](https://x.com/manga10_torico/status/2012858512137965687)｜[𝕏步汰打卡(1/14)](https://x.com/official_DXTEEN/status/2011388435786056010)
+* **251205【修学旅行】『BeLuck COMICS』创刊 修学旅行漫画版第1话公开** ⇨ [第1话](https://r.voyager.co.jp/epm/e1_576507_27112025180112/)｜[2话~连载中](https://www.cmoa.jp/title/346216/)
+
+
+### 2025.11
+{: #nov2025}
+* **251129【修学旅行｜正片】25:00～ 第7话播出**{: .text-red}
+* **251122【修学旅行｜正片】25:00～ 第6话播出**{: .text-red}
+* **251115【修学旅行｜正片】25:00～ 第5话播出**{: .text-red}
+* **251108【修学旅行｜正片】25:00～ 第4话播出**{: .text-red}
+* **251101【修学旅行｜正片】25:00～ 第3话播出**{: .text-red}
+
+### 2025.10
+{: #oct2025}
+
+* **261025【双人】藤本洸大×簡秀吉采访** ⇨ [emomiu](https://emomiu.jp/news/244577/)｜[𝓲宣传视频](https://www.instagram.com/reels/DRo7oSLgbpz/)
+    > 2shot 拍立得萌萌萌!是一个内容很丰富的采访! 小简原来从这里开始就说喜欢海鲜了，小简喜欢牡蛎小猪喜欢虾，但是小简居然还喜欢吃皮蛋👀 
+    > (宣传视频里)说せーの的小简太可爱了!(稀有的年上时刻)
+    > #### 这套拍得太好看先嗑一大口…身高差的神……一些因为你才做的事:(猪)开始和共演者出去玩了,(简)开始喜欢古着了(⬅️总觉得一个洁癖突然喜欢古着是另有所图)
+* **251025【修学旅行｜正片】25:00～ 第2话播出**{: .text-red}
+* **251018【修学旅行｜正片】修学旅行开播! 25:00～ 第1话播出**{: .text-red}
 
 </div>

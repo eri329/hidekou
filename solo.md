@@ -14,7 +14,7 @@ permalink: /solo/
 {: #kan}
 
 * **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
-* **260401 [Preppy5月号(4/1)]杂志发售 & 海报展告知**
+* **260401 [Preppy5月号(4/1)]杂志发售 & 海报展告知**{: .text-red}
     > [文字采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
     > 会自己做饭、控制饮食、吃玄米和优质脂肪的超绝自律贤惠的小简。
     > 春日歌单：《春泥棒》《夢追いベンガル》《ハルコイ》
@@ -22,7 +22,7 @@ permalink: /solo/
     > 喜欢看的油管搞笑频道：ジャルジャルアイランド
     > [𝕏海报展告知](https://x.com/preppy_magazine/status/2039281619069247671): 4/18~4/19
 * **260326 公园夜游** ⇨ [𝓲简](https://www.instagram.com/p/DWWKZqkAcnX/) 可能是存货
-* **260314 簡秀吉FM3.14 in WhiteDay**
+* **260314 簡秀吉FM3.14 in WhiteDay**{: .text-red}
     > [𝓲简](https://www.instagram.com/p/DV5p_dXgRfH/)
     > **Kan Hideyoshi FC 2nd Anniversary Event宣布举行** 2026.5.9 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2032795150213361728)｜[𝓲简](https://www.instagram.com/p/DV3Vn0kk78_/)
     > **260315 小简的感谢推** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2033120587661639877)
@@ -87,7 +87,7 @@ permalink: /solo/
 * **260314 19:00〜NATSLIVE「藤本洸大ホワイトデーSP」配信** 初次料理直播！
 * **260314 第39回 JUNON SUPER BOY CONTEST藤本洸大寄语** ⇨ [𝕏](https://x.com/JUNON_jp/status/2032743543177904293)｜[𝕏今昔对比](https://x.com/JUNON_jp/status/2032652939605561641) 变化太大了变美太多了小猪!!
 * **260312 [JUNON4月5月合并号(2/20)]抽赏活动开始** 3/12~4/2 ⇨ [𝕏](https://x.com/JUNON_jp/status/2032018870941466918)｜[𝕏告知(2/20)](https://x.com/JUNON_jp/status/2024740820927336548)
-* **260310 [Fineboys4月号(3/9)] 定档** ⇨ [ins告知小视频](https://www.instagram.com/reel/DVs5MzUEd3A/)
+* **260310 [Fineboys4月号(3/9)]登场&杂志发售** ⇨ [ins宣传视频](https://www.instagram.com/reel/DVs5MzUEd3A/)
 * **260302 浅草寺抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DVYaIroFN1G/)
 * **260228 [Men's Preppy4月号(2/28)]杂志发售+照片展(2/28-3/1)** ⇨ [𝕏照片展情报(2/28)](https://x.com/MensPREPPY/status/2027575734475047011)｜[𝕏照片展情报(3/1)](https://x.com/MensPREPPY/status/2027881506861895943)｜[𝕏照片物料(2/27)](https://x.com/MensPREPPY/status/2027330370614518041)｜[𝕏照片物料(2/26)](https://x.com/MensPREPPY/status/2026854744182964407)
 * **260228 ins直播 GREEN SPOON吃播** ⇨ [𝓲洸](https://www.instagram.com/p/DVTXkltiRFe/)
