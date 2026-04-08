@@ -62,6 +62,9 @@ permalink: /solo/
 {: #kodai}
 
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
+    > **260407 赤城神社祈願** ⇨ [𝕏](https://x.com/drama_share_tv/status/2041712653899571301)｜[🆈マイナビニュース活动报道](https://www.youtube.com/watch?v=2XZyxoRuqcU)(小猪片段1:55~, 6:44~, 10:50, 13:50~, 14:30~)｜[🆈另外一个](https://www.youtube.com/watch?v=GJDOH-1s2Us)(00:37~, 3:27~, 4:17~提到在给共演过的人做衣服, 8:40~)｜[𝕏照片](https://x.com/mn_enta/status/2041418260034502856)｜[𝕏照片](https://x.com/oricon/status/2041405140465598523)|[𝕏照片](https://x.com/modelpress/status/2041397825729396994)｜[𝕏活动入场-超萌小猪](https://x.com/drama_share_tv/status/2041420106513940822)
+    > **260324 预告** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036186240224206939)
+    > **260325 角色解禁** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036639226549473296)
 * **260412 4月12日(日)22:15~ ABC电视剧「マエラー」播出** 洸大出演 塩野春樹役 ⇨ [𝓲洸(3/27)](https://www.instagram.com/p/DWYkRviFET7)｜[官网](https://www.asahi.co.jp/drama_error/)
 * **260409 19:00〜NATSLIVE「洸大のサイコロジーアート」配信**
 * **260403 [Fineboys4月号(3/9)] 拍摄采访** ⇨ [ins](https://www.instagram.com/reel/DWqelsChh_S/)
@@ -77,7 +80,7 @@ permalink: /solo/
     > 洸大穿了Retro里的小香风王子外套(肯定是我们投票选出来的对吧!)
 * **260319 19:00〜NATSLIVE「洸大のサイコロジーアート」配信**
     > [𝓲洸-回顾+咖啡厅活动告知](https://www.instagram.com/p/DWEMJkxFOhV/) 有很萌的黑衣兔兔洸大和他的炸鸡块
-* **260317 [S Cawaii!5月号(3/17)] 发售** ⇨ [𝓲洸](https://www.instagram.com/p/DV-9MwvlCpb/)｜[X!](https://x.com/mag_scawaii/status/2034223292773810418)｜[X!宣传视频(3/13)](https://x.com/mag_scawaii/status/2032411353298719226)｜[X!特典贴纸](https://x.com/mag_scawaii/status/2031641931152007436) 很萌的毛茸茸猪
+* **260317 [S Cawaii!5月号(3/17)] 发售** ⇨ [𝓲洸](https://www.instagram.com/p/DV-9MwvlCpb/)｜[𝕏](https://x.com/mag_scawaii/status/2034223292773810418)｜[𝕏宣传视频(3/13)](https://x.com/mag_scawaii/status/2032411353298719226)｜[𝕏特典贴纸](https://x.com/mag_scawaii/status/2031641931152007436) 很萌的毛茸茸猪
 * **260316｜260320 AI短剧「びっくりあいらんど」出演**
     > 3月16日（月）配信「好きぴに気に入られたい三人」篇　
     > 3月20日（祝・金）配信「三人組ってむずかしくない？」篇
@@ -92,7 +95,7 @@ permalink: /solo/
 * **260228 [Men's Preppy4月号(2/28)]杂志发售+照片展(2/28-3/1)** ⇨ [𝕏照片展情报(2/28)](https://x.com/MensPREPPY/status/2027575734475047011)｜[𝕏照片展情报(3/1)](https://x.com/MensPREPPY/status/2027881506861895943)｜[𝕏照片物料(2/27)](https://x.com/MensPREPPY/status/2027330370614518041)｜[𝕏照片物料(2/26)](https://x.com/MensPREPPY/status/2026854744182964407)
 * **260228 ins直播 GREEN SPOON吃播** ⇨ [𝓲洸](https://www.instagram.com/p/DVTXkltiRFe/)
 * **260227 Hulu「時計館の殺人」出演** 1-6话配信 渡辺涼介役
-* **260220 [S Cawaii!5月号(3/17)]登场情报解禁** ⇨ [X!](https://x.com/mag_scawaii/status/2024757003177119788)
+* **260220 [S Cawaii!5月号(3/17)]登场情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2024757003177119788)
 * **260220 [JUNON4月5月合并号(2/20)]杂志发售** ⇨ [情报](https://www.junon-tv.jp/articles/4215) 给洸大安排的是「藤本洸大 × あざと顔」栏目😇
 * **260218 [JUNON4月5月合并号(2/20)]登场情报解禁** ⇨ [𝕏宣传视频](https://x.com/JUNON_jp/status/2023955645746250055) 超级可爱超级あざとい的小猪和狗狗!
 * **260217 19:00～NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DU3EDxGFETv/)
