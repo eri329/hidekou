@@ -49,9 +49,10 @@ permalink: /
 
 * **260406【直播｜简秀吉】小简FC电台直播**
 * **260406【杂志｜双人】Retro(4/20)双人封面特辑情报解禁**  
-    > ⇨ [📕十指相扣宣图](https://www.xiaohongshu.com/discovery/item/69d37ace000000001a036dde?source=webshare&xhsshare=pc_web&xsec_token=AB8qff5uYmsWwovWaJlXTPtY87RmUxhwOxcZkI4D3zLoo=&xsec_source=pc_share)｜[微博](https://weibo.com/7956654733/5284754858705925)
+    > ⇨ [📕十指相扣宣图](https://www.xiaohongshu.com/discovery/item/69d37ace000000001a036dde?source=webshare&xhsshare=pc_web&xsec_token=AB8qff5uYmsWwovWaJlXTPtY87RmUxhwOxcZkI4D3zLoo=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5284754858705925)
     > #### 狐猪妹是不是在天天过年!? Retro宣图是在18:20, 2分钟后小简在fc说18:30要直播, 直播里超绝不经意提Retro;此图某人很故意很明显夹住另一人的手指(这个手势很有压迫感好吗);小简发快拍带了🕊️🤍emoji, 狐猪妹就品吧越品越有……<br />
-    > **260407** [📕某人的掌上明猪](https://www.xiaohongshu.com/discovery/item/69d4cc570000000022028819?source=webshare&xhsshare=pc_web&xsec_token=AByXZnB0LgVwUgJtd6Fgffe_OJ46dgOBIuXFc3Ph1iMFY=&xsec_source=pc_share)｜[微博](https://weibo.com/7956654733/5285117242638417) <span>咱就是说是不是可爱得太过分了……检修机你是吃得真好啊……</span>{: .text-pink}
+    > **260407** [📕掌上狐猪-猪](https://www.xiaohongshu.com/discovery/item/69d4cc570000000022028819?source=webshare&xhsshare=pc_web&xsec_token=AByXZnB0LgVwUgJtd6Fgffe_OJ46dgOBIuXFc3Ph1iMFY=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5285117242638417) <span>咱就是说是不是可爱得太过分了……检修机你是吃得真好啊……</span>{: .text-pink}
+    > **260408** [📕掌上狐猪-狐](https://www.xiaohongshu.com/discovery/item/69d61ddb000000001f0008a2?source=webshare&xhsshare=pc_web&xsec_token=ABqPoYXStg0PeR67Rlz0yd6kgY7GlQFPtDYqStMgsqdHs=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5285479664847891)|[摄影师第三视角花絮](https://www.xiaohongshu.com/discovery/item/69d649c8000000001b003bc2?source=webshare&xhsshare=pc_web&xsec_token=ABqPoYXStg0PeR67Rlz0yd6q2-FVcQ-CK46aHf-r8BfWg=&xsec_source=pc_share) <span>检修机这个优越的颜值+害羞的回头笑+小猪即使站到沙发上伸手还是不够高太萌了两位……像在拍结婚典礼新人介绍</span>{: .text-pink} [test](https://xhslink.com/o/1GZJulynuBY)
 * **260404【杂志｜双人】中国首封Lemon超长采访视频**{: .text-red} ⇨ [📕25min采访](https://www.xiaohongshu.com/discovery/item/69d09ddc000000001d019b26?source=webshare&xhsshare=pc_web&xsec_token=ABAfgeciMiKy6dVoGxgAmUU7G3zGAkiBEsjZOVjyZqnz8=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5284030057548657)/[ins](https://www.instagram.com/p/DWtFvt5B8mA/)
     > ⇨ 小简这套造型太好看了他太适合橙色西装了🦊(小猪也)
     > ⇨ 第一印象:简->洸“脸很可爱”，洸->简“个子高”
