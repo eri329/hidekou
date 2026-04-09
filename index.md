@@ -47,6 +47,8 @@ permalink: /
 
 <div class="line"></div>
 
+* **260408【杂志｜双人】Preppy6月号(5/1)三版特典情报** B5相卡 ⇨ [X!Heritage](https://x.com/preppy_magazine/status/2041818345859613154)｜[X!Amazon](https://x.com/preppy_magazine/status/2041822553187217615)｜[X!HMV](https://x.com/preppy_magazine/status/2041823123046379940)
+    > #### 制服狐猪……把腿伸到小简腿上的猪……谁能忍住不买……
 * **260406【直播｜简秀吉】小简FC电台直播**
 * **260406【杂志｜双人】Retro(4/20)双人封面特辑情报解禁**  
     > ⇨ [📕十指相扣宣图](https://www.xiaohongshu.com/discovery/item/69d37ace000000001a036dde?source=webshare&xhsshare=pc_web&xsec_token=AB8qff5uYmsWwovWaJlXTPtY87RmUxhwOxcZkI4D3zLoo=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5284754858705925)
