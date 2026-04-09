@@ -5,15 +5,19 @@ layout: page
 
 #### 建设中
 
+*目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight), 直播, modelpress报道, FC, manager日记*
+
+[ 2026-04-09 ] 2025年12月补档: abc公式ins至11/30，找不同很有趣！
+
 [ 2026-04-08 ] 2025年12月补档: abc公式X至11/30
 
-[ 2026-04-07 ] 2025年12月补档: abc公式X至12/10 原来剧播期间一天只能更十天公式X(苦笑)
+[ 2026-04-07 ] 2025年12月补档: abc公式X至12/10 原来剧播期间站长一天只能过十天公式X(苦笑)
 
-[ 2026-04-06 ] 2026年1月补档: abc公式X, abc公式ins, 小简X, 小简ins, TC schedule, 小猪ins; 2025年12月补档: abc公式X至12/18 公式疯了一样地发推!
+[ 2026-04-06 ] 2026年1月补档: abc公式X, abc公式ins, 小简X, 小简ins, TC(schedule), 小猪ins; 2025年12月补档: abc公式X至12/18 公式疯了一样地发推!
 
-[ 2026-04-05 ] 2026年2月补档: 小简X, 小简ins, abc公式X, abc公式ins, TC schedule, 小猪ins
+[ 2026-04-05 ] 2026年2月补档: abc公式X, abc公式ins, 小简X, 小简ins, TC(schedule), 小猪ins
 
-[ 2026-04-04 ] 2026年3月补档: 小简X, abc公式X, abc公式ins, TC schedule, 小猪ins, 小简ins｜Hold: 小简FC, 小猪/manager日记。由于涉及付费内容，暂时没想好怎么收录比较合适。
+[ 2026-04-04 ] 2026年3月补档: abc公式X, abc公式ins, 小简X, 小简ins, TC(schedule), 小猪ins
 
 [ 2026-04-03 ] 继续调整样式，添加【单人物料】页面。
 
