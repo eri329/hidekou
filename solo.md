@@ -12,7 +12,8 @@ permalink: /solo/
 
 ## 简 秀吉
 {: #kan}
-
+* **260409 [Preppy5月号(4/1)]拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
+* **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
 * **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
 * **260401 [Preppy5月号(4/1)]杂志发售 & 海报展告知**{: .text-red}
     > [文字采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
@@ -62,11 +63,11 @@ permalink: /solo/
 {: #kodai}
 
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
-    > **260407 赤城神社祈願** ⇨ [𝓲洸](https://www.instagram.com/p/DW1QzKolPOc/)｜[𝕏](https://x.com/drama_share_tv/status/2041712653899571301)｜[🆈マイナビニュース活动报道](https://www.youtube.com/watch?v=2XZyxoRuqcU)(小猪片段1:55~, 6:44~, 10:50, 13:50~, 14:30~)｜[🆈另外一个](https://www.youtube.com/watch?v=GJDOH-1s2Us)(00:37~, 3:27~, 4:17~提到在给共演过的人做衣服, 8:40~)｜[𝕏照片](https://x.com/mn_enta/status/2041418260034502856)｜[𝕏照片](https://x.com/oricon/status/2041405140465598523)|[𝕏照片](https://x.com/modelpress/status/2041397825729396994)｜[𝕏活动入场-超萌小猪](https://x.com/drama_share_tv/status/2041420106513940822)
+    > **260407 赤城神社祈願+记者见面会** ⇨ [𝓲洸](https://www.instagram.com/p/DW1QzKolPOc/)｜[𝕏](https://x.com/drama_share_tv/status/2041712653899571301)｜[🆈マイナビニュース活动报道](https://www.youtube.com/watch?v=2XZyxoRuqcU)(小猪片段1:55~, 6:44~, 10:50, 13:50~, 14:30~)｜[🆈另外一个](https://www.youtube.com/watch?v=GJDOH-1s2Us)(00:37~, 3:27~, 4:17~提到在给共演过的人做衣服, 8:40~)｜[𝕏照片](https://x.com/mn_enta/status/2041418260034502856)｜[𝕏照片](https://x.com/oricon/status/2041405140465598523)|[𝕏照片](https://x.com/modelpress/status/2041397825729396994)｜[𝕏活动入场-超萌小猪](https://x.com/drama_share_tv/status/2041420106513940822)｜[ins!照片](https://www.instagram.com/p/DW3WfJakn27/)
     > **260324 预告** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036186240224206939)
     > **260325 角色解禁** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036639226549473296)
 * **260412 4月12日(日)22:15~ ABC电视剧「マエラー」播出** 洸大出演 塩野春樹役 ⇨ [𝓲洸(3/27)](https://www.instagram.com/p/DWYkRviFET7)｜[官网](https://www.asahi.co.jp/drama_error/)
-* **260409 19:00〜NATSLIVE「洸大のサイコロジーアート」配信**
+* **260409 19:00〜NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [ins!洸](https://www.instagram.com/p/DW6P-rNlJA8/)
 * **260403 [Fineboys4月号(3/9)] 拍摄采访** ⇨ [ins](https://www.instagram.com/reel/DWqelsChh_S/)
     > 喜欢吃的寿司种类是虾🍤，回到老家会想吃妈妈做的土豆炖肉和蛋包饭。
 * **260401 [Fineboys4月号(3/9)] 特典亲签拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2038994738989375816)
@@ -180,7 +181,7 @@ permalink: /solo/
     > **大屏案内** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2031572634966831344)｜[快拍合集](https://www.instagram.com/stories/highlights/17999715503889522/)
   * **260108 19:00〜NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DTP8089FBwZ/)
   * **260107 ins直播** ⇨ [𝓲洸](https://www.instagram.com/p/DTNhoUziWmG/)
-  * **260102 新年帖** ⇨ [𝓲洸](https://www.instagram.com/p/DTAju6clMOh/)
+  * **260102 新年抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DTAju6clMOh/)
   * **260101 [日每(1/1)] Instagram Magazine 2026年1月**{: .text-red}
     > 视频: [宣传视频（1/2）](https://www.instagram.com/reel/DS_wXH0k5Uw/)｜[BTS1(1/7)](https://www.instagram.com/reel/DTM-fF1E6_8/)｜[BTS2(1/30)](https://www.instagram.com/reel/DUIRCZSE3Rk/)|[快拍](https://www.instagram.com/stories/highlights/18143485852445431/)
     > 杂志: [1/1](https://www.instagram.com/p/DS91aNqk9PM/)｜[1/3(正月如何度过)](https://www.instagram.com/p/DTDIYbnE-SJ/)｜[1/5](https://www.instagram.com/p/DTH42BmE4LC/)｜[1/9](https://www.instagram.com/p/DTSIX8SE51a/)｜[1/12](https://www.instagram.com/p/DTZzP0Lk-1e/)｜[1/16(终点的少女采访)](https://www.instagram.com/p/DTkGgFUEqXw/)｜[1/19(钟表馆采访)](https://www.instagram.com/p/DTr04AKEnNg/)｜[1/22(服装改造采访)](https://www.instagram.com/p/DTzmoiUky1c/)｜[1/27(拍摄采访)](https://www.instagram.com/p/DUAwg4xEy-Q/)

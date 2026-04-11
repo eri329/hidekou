@@ -43,10 +43,11 @@ permalink: /
 {: #apr2026}
 
 * **260418【修学旅行｜双人】粉丝见面会in台湾** ⇨ [情报](https://x.com/manga10_tw/status/2037471140638310839)
-* **260411【杂志｜双人】Starside Spring 2026追加视频发送**
-
 <div class="line"></div>
 
+* **260411【杂志｜双人】Starside Spring 2026追加视频发送**
+    > **260410** [𝕏采访切片](https://x.com/starside_x/status/2042559090891854159) <span>简:想演坏人被洸大逮捕，洸:想演身高差刑警搭档</span>{: .text-pink}
+    > **260410** [𝕏妄想告白1分前](https://x.com/starside_x/status/2042559086756249636) <span>在小简面前给小猪害羞成啥样了☺️小简疑似解错题233</span>{: .text-pink}
 * **260408【杂志｜双人】Preppy6月号(5/1)三版特典情报** B5相卡 ⇨ [𝕏Heritage](https://x.com/preppy_magazine/status/2041818345859613154)｜[𝕏Amazon](https://x.com/preppy_magazine/status/2041822553187217615)｜[𝕏HMV](https://x.com/preppy_magazine/status/2041823123046379940)
     > #### 制服狐猪&把腿伸到小简腿上的猪😇检修机你是西装的神……就用这套造型直接去拍修仲第二季好吗好的
 * **260406【直播｜简秀吉】小简FC电台直播**
@@ -55,6 +56,8 @@ permalink: /
     > #### 狐猪妹是不是在天天过年!? Retro宣图是在18:20, 2分钟后小简在fc说18:30要直播, 直播里超绝不经意提Retro;此图某人很故意很明显夹住另一人的手指(这个手势很有压迫感好吗);小简发快拍带了🕊️🤍emoji, 狐猪妹就品吧越品越有……<br />
     > **260407** [📕掌上狐猪-猪](https://www.xiaohongshu.com/discovery/item/69d4cc570000000022028819?source=webshare&xhsshare=pc_web&xsec_token=AByXZnB0LgVwUgJtd6Fgffe_OJ46dgOBIuXFc3Ph1iMFY=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5285117242638417)/[ins](https://www.instagram.com/p/DW00WY4Feom/) <span>咱就是说是不是可爱得太过分了……检修机你是吃得真好啊……</span>{: .text-pink}
     > **260408** [📕掌上狐猪-狐](https://www.xiaohongshu.com/discovery/item/69d61ddb000000001f0008a2?source=webshare&xhsshare=pc_web&xsec_token=ABqPoYXStg0PeR67Rlz0yd6kgY7GlQFPtDYqStMgsqdHs=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5285479664847891)/[ins](https://www.instagram.com/p/DW3Y8ERj3H9/)|[📕摄影师第三视角花絮](http://xhslink.com/o/7Ief5Mn9SIx) <span>检修机这个优越的颜值+害羞的回头笑+小猪即使站到沙发上伸手还是不够高太萌了两位……像在拍结婚典礼新人介绍</span>{: .text-pink}
+    > **260409** [📕少男心事](https://www.xiaohongshu.com/discovery/item/69d76f52000000001f0073a3?source=webshare&xhsshare=pc_web&xsec_token=ABz7Gj_VjEU_dBX1sr8xHALKwexj7hM_QkKL0l9OrU9iA=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/QA18RhwGz) <span>洸->简箭头大放送🥹三套look的花絮都有，肉眼可见地亲密了很多</span>{: .text-pink}
+    > **260410** [📕狐兔问候](https://www.xiaohongshu.com/discovery/item/69d8c232000000002301f114?source=webshare&xhsshare=pc_web&xsec_token=ABsyWOL_E8Hb-qV7qH5749p5Fs2klKwYdiOfgd7DREDmk=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/QAaznhd2X) <span>检修机你终于戴上狐耳了啊啊啊绝配，原来某人cue尼克狐完全是定向狙击</span>{: .text-pink}
 * **260404【杂志｜双人】中国首封Lemon超长采访视频**{: .text-red} ⇨ [📕25min采访](https://www.xiaohongshu.com/discovery/item/69d09ddc000000001d019b26?source=webshare&xhsshare=pc_web&xsec_token=ABAfgeciMiKy6dVoGxgAmUU7G3zGAkiBEsjZOVjyZqnz8=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5284030057548657)/[ins](https://www.instagram.com/p/DWtFvt5B8mA/)
     > ⇨ 小简这套造型太好看了他太适合橙色西装了🦊(小猪也)
     > ⇨ 第一印象:简->洸“脸很可爱”，洸->简“个子高”
@@ -114,7 +117,7 @@ permalink: /
     > [𝕏简-狐猪合照有](https://x.com/kan_hideyoshi/status/2038217612426154171)
     > [𝓲简-合照有](https://www.instagram.com/p/DWd352wgbcs/) <span>帅到吐血...</span>{: .text-pink}
     > [𝓲洸-鬼脸+狐猪合照有](https://www.instagram.com/p/DWd8EG-lOM0)
-    > (两个人在桌前小猪打喷嚏的物料正在寻找中)
+    > 两个人在桌前道别小猪打喷嚏的视频疑似只发了[快拍]
     > [𝕏后台退场小视频](https://x.com/dramal_abc/status/2038211119618392247)/[ins](https://www.instagram.com/p/DWd1Thjkwwk/) <span>洸->简「それ何それ」然后对工作人员小小声点头鞠躬实在太萌了...</span>{: .text-pink}
 * **260328【杂志｜双人】Preppy6月号(5/1)宣传视频** ⇨ [𝕏蓝白look(消失的手相)](https://x.com/preppy_magazine/status/2037832076054147102)
 * **260324【杂志｜双人】中国首封Lemon凝眸＜This Moment's Youth＞(3/24)杂志发售**{: .text-red}
@@ -140,6 +143,7 @@ permalink: /
     > **260319 手渡会周边情报** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2034555487333810403)
 * **260325【修学旅行｜藤本洸大】洸大ins发了大量疑似修学旅行片场风景照** ⇨ [𝓲洸](https://www.instagram.com/p/DV5_H11FI6u/)
     > #### 小猪你也在想念修仲了吗？
+* **260319【行程｜双人】Preppy6月号(5/1)拍摄**{: .text-grey}
 * **260315【修学旅行｜双人】上线韩国Heavenly** ⇨ [𝕏宣传视频](https://x.com/heavenly_pick/status/2033151232098054342)
 * **260314~260320 Starside新宿大屏宣传@Shinjuku YUNIKA VISION** ⇨ [𝕏-1](https://x.com/starside_x/status/2028425218809868712)｜[𝕏-2](https://x.com/starside_x/status/2032461713547923858)
 * **260312【杂志｜简秀吉｜藤本洸大】CYAN MAN 4月号(3/12)杂志发售**
