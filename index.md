@@ -42,24 +42,30 @@ permalink: /
 ### 2026.4
 {: #apr2026}
 
+* **260420【杂志｜双人】Retro(4/20)双人封面特辑杂志发售**{: .text-red}
+    > **260406** [📕十指相扣宣图](https://xhslink.com/o/AZeQ7dSSuxT)/[微博](https://weibo.com/7956654733/5284754858705925)/[ins](https://www.instagram.com/p/DWyPmGNFktD/)
+    > **260407** [📕掌上狐猪-猪](https://xhslink.com/o/AxiWQyddLk8)/[微博](https://weibo.com/7956654733/5285117242638417)/[ins](https://www.instagram.com/p/DW00WY4Feom/) <span>咱就是说是不是可爱得太过分了……检修机你是吃得真好啊……</span>{: .text-pink}
+    > **260408** [📕掌上狐猪-狐](https://xhslink.com/o/9VXD6W2bsDB)/[微博](https://weibo.com/7956654733/5285479664847891)/[ins](https://www.instagram.com/p/DW3Y8ERj3H9/)|[📕摄影师第三视角花絮](https://xhslink.com/o/7Ief5Mn9SIx) <span>检修机这个权威的脸配上害羞的回头笑+小猪即使站到沙发上伸手还是不够高简直太萌了两位……像在拍结婚典礼新人介绍</span>{: .text-pink}
+    > **260409** [📕少男心事](https://xhslink.com/o/5kSCp3tnVC5)/[微博](https://weibo.com/7956654733/QA18RhwGz) <span>洸->简箭头大放送🥹对不起某个小孩实在太像暗恋家庭教师的男高了……三套look的花絮都有，肉眼可见地亲密了很多</span>{: .text-pink}
+    > **260410** [📕狐兔问候](https://xhslink.com/o/8upfY2z6eti)/[微博](https://weibo.com/7956654733/QAaznhd2X)/[ins](https://www.instagram.com/p/DW8jQzkD0WB/) <span>第四套look出现。小简你终于戴上狐耳了啊啊啊,你俩用狐尼克调情多少次了(。</span>{: .text-pink}
+    > **260411** [📕封面](https://xhslink.com/o/6mtK6yP74xU)/[微博](https://weibo.com/7956654733/5286566809305299)/[ins](https://www.instagram.com/p/DW_H2YOjyCm/)/[小简FC博文]*retro封面*｜[📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/) *ins的图最大*
 * **260418【修学旅行｜双人】粉丝见面会in台湾** ⇨ [情报](https://x.com/manga10_tw/status/2037471140638310839)
 <div class="line"></div>
 
+* **260412【杂志｜双人】中国首封Lemon游戏视频**{: .text-red} ⇨ [📕不准笑挑战+5秒问答+唱歌](http://xhslink.com/o/1kEFWfx8Srd)
+    > #### 震撼首发，平地一声雷带来核弹级的威力……小猪，就决定是这个人了吗？(我的老天奶小猪好主动好腹黑好钓啊啊啊🤯🤯🤯检修机一款撒娇少女攻跺跺脚就什么都得到了……)
 * **260411【杂志｜双人】Starside Spring 2026追加视频发送**
+    > #### 严肃品鉴中！[coner video-即兴表演]:讲关西腔的狐猪太可爱了!!小简大概是天生眼神就饱含深情吧对小猪的表演完全是100%focus给出很多反应(而且都是他在喊start～)……第二个题目小简超级让人心动啊❤️第二个题目看完我已经不行了给我上呼吸机吧……站长每看十秒停下来捂嘴大笑+深呼吸，特别特别萌的漫才夫夫……抓着小猪求吐槽的小简和懵懵的小猪太萌了……
+    > #### [interview]: 基本上就是杂志文字采访的真人版，偶尔问出了很好的问题！小简的箭头是真的粗啊…两个人聊天的感觉特别放松自然，小简天马行空，小猪就淡淡地或follow或吐槽或被逗得大笑；小猪讲一些自己的小事，小简就会注视着他认真地听。互相说喜欢的对方的小动作也特别萌……真的特别幸福……
     > **260410** [𝕏采访切片](https://x.com/starside_x/status/2042559090891854159)
     > #### 简:想演坏人被洸大逮捕，洸:想演身高差刑警搭档。小猪也cue了身高差，之前小简就对公式书拍的身高差赞不绝口，合着你俩相见第一眼就很满意这个身高差是吧☺️
-    > **260410** [𝕏妄想告白1分前](https://x.com/starside_x/status/2042559086756249636) <span>在小简面前给小猪害羞成啥样了☺️小简疑似解错题233</span>{: .text-pink}
+    > **260410** [𝕏妄想告白1分前](https://x.com/starside_x/status/2042559086756249636) <span>在小简面前给小猪害羞+笑场成啥样了☺️两个人对1分前的理解不太一样呢很有意思^^</span>{: .text-pink}
 * **260408【杂志｜双人】Preppy6月号(5/1)三版特典情报** B5相卡 ⇨ [𝕏Heritage](https://x.com/preppy_magazine/status/2041818345859613154)｜[𝕏Amazon](https://x.com/preppy_magazine/status/2041822553187217615)｜[𝕏HMV](https://x.com/preppy_magazine/status/2041823123046379940)
     > #### 制服狐猪&把腿伸到小简腿上的猪😇检修机你是西装的神……就用这套造型直接去拍修仲第二季好吗好的
 * **260406【直播｜简秀吉】小简FC电台直播**
-* **260406【杂志｜双人】Retro(4/20)双人封面特辑情报解禁**{: .text-red}
-    > ⇨ [📕十指相扣宣图](https://www.xiaohongshu.com/discovery/item/69d37ace000000001a036dde?source=webshare&xhsshare=pc_web&xsec_token=AB8qff5uYmsWwovWaJlXTPtY87RmUxhwOxcZkI4D3zLoo=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5284754858705925)/[ins](https://www.instagram.com/p/DWyPmGNFktD/)
+* **260406【杂志｜双人】Retro(4/20)双人封面特辑情报解禁** ⇨ [📕十指相扣宣图](https://xhslink.com/o/AZeQ7dSSuxT)/[微博](https://weibo.com/7956654733/5284754858705925)/[ins](https://www.instagram.com/p/DWyPmGNFktD/)
     > #### 狐猪妹是不是在天天过年!? Retro宣图是在18:20, 2分钟后小简在fc说18:30要直播, 直播里超绝不经意提Retro;此图某人很故意很明显夹住另一人的手指(这个手势很有压迫感好吗);小简发快拍带了🕊️🤍emoji, 狐猪妹就品吧越品越有……<br />
-    > **260407** [📕掌上狐猪-猪](https://www.xiaohongshu.com/discovery/item/69d4cc570000000022028819?source=webshare&xhsshare=pc_web&xsec_token=AByXZnB0LgVwUgJtd6Fgffe_OJ46dgOBIuXFc3Ph1iMFY=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5285117242638417)/[ins](https://www.instagram.com/p/DW00WY4Feom/) <span>咱就是说是不是可爱得太过分了……检修机你是吃得真好啊……</span>{: .text-pink}
-    > **260408** [📕掌上狐猪-狐](https://www.xiaohongshu.com/discovery/item/69d61ddb000000001f0008a2?source=webshare&xhsshare=pc_web&xsec_token=ABqPoYXStg0PeR67Rlz0yd6kgY7GlQFPtDYqStMgsqdHs=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/5285479664847891)/[ins](https://www.instagram.com/p/DW3Y8ERj3H9/)|[📕摄影师第三视角花絮](http://xhslink.com/o/7Ief5Mn9SIx) <span>检修机这个权威的脸配上害羞的回头笑+小猪即使站到沙发上伸手还是不够高简直太萌了两位……像在拍结婚典礼新人介绍</span>{: .text-pink}
-    > **260409** [📕少男心事](https://www.xiaohongshu.com/discovery/item/69d76f52000000001f0073a3?source=webshare&xhsshare=pc_web&xsec_token=ABz7Gj_VjEU_dBX1sr8xHALKwexj7hM_QkKL0l9OrU9iA=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/QA18RhwGz) <span>洸->简箭头大放送🥹对不起某个小孩实在太像暗恋家庭教师的男高了……三套look的花絮都有，肉眼可见地亲密了很多</span>{: .text-pink}
-    > **260410** [📕狐兔问候](https://www.xiaohongshu.com/discovery/item/69d8c232000000002301f114?source=webshare&xhsshare=pc_web&xsec_token=ABsyWOL_E8Hb-qV7qH5749p5Fs2klKwYdiOfgd7DREDmk=&xsec_source=pc_share)/[微博](https://weibo.com/7956654733/QAaznhd2X) <span>检修机你终于戴上狐耳了啊啊啊，你俩用尼克狐调情多少次了(。</span>{: .text-pink}
-* **260404【杂志｜双人】中国首封Lemon超长采访视频**{: .text-red} ⇨ [📕25min采访](https://www.xiaohongshu.com/discovery/item/69d09ddc000000001d019b26?source=webshare&xhsshare=pc_web&xsec_token=ABAfgeciMiKy6dVoGxgAmUU7G3zGAkiBEsjZOVjyZqnz8=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5284030057548657)/[ins](https://www.instagram.com/p/DWtFvt5B8mA/)
+* **260404【杂志｜双人】中国首封Lemon超长采访视频**{: .text-red} ⇨ [📕25min采访](https://xhslink.com/o/jCsPSaag5h)/[微博](https://weibo.com/7176134584/5284030057548657)/[ins](https://www.instagram.com/p/DWtFvt5B8mA/)
     > ⇨ 小简这套造型太好看了他太适合橙色西装了🦊(小猪也)
     > ⇨ 第一印象:简->洸“脸很可爱”，洸->简“个子高”
     > ⇨ 时不时蹦出英文韩文的小简，以及想和小简演情敌、给小简仔细建议了一整套穿搭、想看小简穿旗袍的小猪(想法很丰富XD)
@@ -122,13 +128,13 @@ permalink: /
     > [𝕏后台退场小视频](https://x.com/dramal_abc/status/2038211119618392247)/[ins](https://www.instagram.com/p/DWd1Thjkwwk/) <span>洸->简「それ何それ」然后对工作人员小小声点头鞠躬实在太萌了...</span>{: .text-pink}
 * **260328【杂志｜双人】Preppy6月号(5/1)宣传视频** ⇨ [𝕏蓝白look(消失的手相)](https://x.com/preppy_magazine/status/2037832076054147102)
 * **260324【杂志｜双人】中国首封Lemon凝眸＜This Moment's Youth＞(3/24)杂志发售**{: .text-red}
-    > 宣图:[📕lemon](https://www.xiaohongshu.com/discovery/item/69c1566200000000220027eb?source=webshare&xhsshare=pc_web&xsec_token=ABR4DcXXBvwzbSc1WkEZa5TDGboFPaZhncWXoaCZkzBuY=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5279981879428619)/[𝕏](https://x.com/lemon_mag_cn/status/2036310539857486216)/[ins](https://www.instagram.com/p/DWQU3QdiNPS) <span>每一张都好品…还是中国同人女会嗑</span>{: .text-pink}
+    > 宣图:[📕lemon](https://xhslink.com/o/5co6jG0kSJx)/[微博](https://weibo.com/7176134584/5279981879428619)/[𝕏](https://x.com/lemon_mag_cn/status/2036310539857486216)/[ins](https://www.instagram.com/p/DWQU3QdiNPS) <span>每一张都好品…还是中国同人女会嗑</span>{: .text-pink}
     > [𝕏简-怼脸照](https://x.com/kan_hideyoshi/status/2036381740957311207)
     > [𝓲简-多图版](https://www.instagram.com/p/DWQ05_XgSGF/) <span>救命了有一张小猪给他拍照的照片还被他挑出来发快拍</span>{: .text-pink}
     > [𝓲洸](https://www.instagram.com/p/DWRDSvAFLy1/) <span>玫瑰花瓣那张小猪发的这个版本也太牙白了...</span>{: .text-pink}
-    > **260326 2nd video** ⇨ [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69c42d2c000000001a029976?source=webshare&xhsshare=pc_web&xsec_token=ABrhFd4Y9BqHsjSGAOM2_OiBPfjpRjFRA3I6gH6xdw6OQ=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5280706657782128)/[𝕏](https://x.com/lemon_mag_cn/status/2037035315567919213)/[ins](https://www.instagram.com/p/DWVehTxI5DP/)
+    > **260326 2nd video** ⇨ [📕lemon高清](https://xhslink.com/o/9Cm1YfNB6wc)/[微博](https://weibo.com/7176134584/5280706657782128)/[𝕏](https://x.com/lemon_mag_cn/status/2037035315567919213)/[ins](https://www.instagram.com/p/DWVehTxI5DP/)
     > #### 看完这个我满脑子都是ABO PWP对不起……;小猪背后抱小简结果被紧紧抓住挣脱不出手也太甜了;这个鬼脸片段被某人截出来直接炸FC有点太疯了吧??(此处有同人女被看扁表情包);检修机的射击太蛊了; 小猪你是萌萌小猫射击对不起有点过于瓜花分明了
-    > **260323 1st video** ⇨ [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bfea66000000001a0206a5?source=webshare&xhsshare=pc_web&xsec_token=AB_2xvB62-nf_nUnGOKv2jvMU_nJRHCfAvrHyQR14P65M=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5279619495231875)/[𝕏](https://x.com/lemon_mag_cn/status/2035948152067588396)/[ins](https://www.instagram.com/p/DWNwGihIWsI/)
+    > **260323 1st video** ⇨ [📕lemon高清](https://xhslink.com/o/8euabC2zWq5)/[微博](https://weibo.com/7176134584/5279619495231875)/[𝕏](https://x.com/lemon_mag_cn/status/2035948152067588396)/[ins](https://www.instagram.com/p/DWNwGihIWsI/)
     > #### 本狐猪妹的第二个人生视频...小简的眼神跟随真的一绝...腐神降临🙏🏻大概会因为这个眼神永远思念着狐猪吧
     > **260322 手势舞** ⇨ [ins](https://www.instagram.com/p/DWLLY-NhELg/)
     > **260321 中日双语宣传视频** ⇨ 中文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1ac7000000001a0298dc?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqBb2iJpIj3EByI5l8xIN_hU=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278894718455769)/[𝕏](https://x.com/lemon_mag_cn/status/2035223376311009408)/[ins](https://www.instagram.com/p/DWInuNXoMwr/) | 日文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1f33000000001a032598?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqO1jkY0BvS-m50u8ZqgWjMc=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278906296044419)/[𝕏](https://x.com/lemon_mag_cn/status/2035234956515954831)/[ins](https://www.instagram.com/p/DWIt7TwBh6m/) <span>小简这个中文太烫嘴了哈哈哈</span>{: .text-pink}
@@ -270,7 +276,7 @@ permalink: /
     > [𝕏未公开公式照渡日2shot](https://x.com/dramal_abc/status/2002607019854082398)/[ins-渡](https://www.instagram.com/p/DSg1sTWk0lK/)/[ins-日](https://www.instagram.com/p/DSg1qP-E4Ur/)
     > **辻谷的相册？** ⇨ [𝕏羽毛球社休日照1](https://x.com/dramal_abc/status/1995463705056690629)｜[𝕏背辻谷的日置](https://x.com/dramal_abc/status/1995115695835840543)/[ins](https://www.instagram.com/p/DRrneqJE2nr/)｜[𝓲羽毛球社休日照2](https://www.instagram.com/p/DRuGB5TE45Y/)
     > **公式PPT** ⇨ [𝕏](https://x.com/dramal_abc/status/2002423751888060777)/[ins](https://www.instagram.com/p/DSfi0Y_E1KM/)
-    > [𝕏最终回PR](https://x.com/dramal_abc/status/2002136868729565220)/[ins](https://www.instagram.com/p/DSNhRRIk5TK/)｜[𝕏FOD](https://x.com/dramal_abc/status/2002416220277276918)｜[𝕏GagaOOLala](https://x.com/gagaoolala/status/2002544552192954431)
+    > **PR** ⇨ [𝕏最终回PR](https://x.com/dramal_abc/status/2002136868729565220)/[ins](https://www.instagram.com/p/DSNhRRIk5TK/)｜[𝕏FOD](https://x.com/dramal_abc/status/2002416220277276918)｜[𝕏GagaOOLala](https://x.com/gagaoolala/status/2002544552192954431)
 * **251219【修学旅行｜双人】最终回先行上映会**{: .text-red}
     >【1部】16:30 START 【2部】19:30 START @ユナイテッド・シネマ 豊洲; 影院同步放映 ⇨ [详情](https://liveviewing.jp/schooltrip/)
     > [𝕏步汰-F5合照](https://x.com/official_DXTEEN/status/2002021833449857494)｜相关人员发的推:[𝕏步汰](https://x.com/official_DXTEEN/status/2001991063339466886),[𝕏MC](https://x.com/mori_haruka_/status/2002007338870559057)
@@ -295,7 +301,7 @@ permalink: /
     > [𝕏小猪宣传with女仆装影子](https://x.com/dramal_abc/status/1999726160306114844)
     > [𝕏小简迷之剧透花絮视频](https://x.com/dramal_abc/status/1999449523853361399)/[ins](https://www.instagram.com/p/DSKaQXEE9BR/) <span>出现了!梦到哪句讲哪句的检修机……</span>{: .text-pink}
     > [𝕏9话拍摄途中-练习恋风手势舞的狐猪](https://x.com/dramal_abc/status/2002288276405674462)/[ins](https://www.instagram.com/p/DSelMbrk1c5/) <span>小猪的大笑好可爱☺️</span>{: .text-pink}｜[𝕏推しと写真を撮りたい](https://x.com/dramal_abc/status/2002244046069309892)/[ins](https://www.instagram.com/p/DSeQi67k50a/) <span>痴汉小简wwwwww引用一下精彩评论「ドラマとは別に洸大姫に翻弄される溺愛ヘタレわんこ🐶さんにみえます」</span>{: .text-pink}
-    > [𝕏9话PR](https://x.com/dramal_abc/status/1997350322931437824)/[ins](https://www.instagram.com/p/DR7fvuQE3R5/)｜[𝕏FOD宣](https://x.com/fujitvplus/status/1999879516773404977)/[ins](https://www.instagram.com/p/DSNe_bbk4Kk/)｜[DXTEEN笑太郎步汰宣传](https://x.com/official_DXTEEN/status/1999816539105534127)
+    > **PR** ⇨ [𝕏9话PR](https://x.com/dramal_abc/status/1997350322931437824)/[ins](https://www.instagram.com/p/DR7fvuQE3R5/)｜[𝕏FOD宣](https://x.com/fujitvplus/status/1999879516773404977)/[ins](https://www.instagram.com/p/DSNe_bbk4Kk/)｜[DXTEEN笑太郎步汰宣传](https://x.com/official_DXTEEN/status/1999816539105534127)
 * **251213【修学旅行｜双人】最终回先行上映影院版开始售票** 12/19 19:30～@ライブビューイング会場 ⇨ [𝕏](https://x.com/dramal_abc/status/2001224879123915057)｜[𝕏(12/13开售)](https://x.com/LVJ_culture/status/1999766242111160762)｜[ins宣传(12/16)](https://www.instagram.com/p/DSUx9p7E0pD/)｜[𝕏狐猪宣传](https://x.com/dramal_abc/status/1999763723972420023)｜[𝕏上映会贩售周边](https://x.com/LVJ_culture/status/1999358806007116283)
 * **251208【修学旅行｜直播｜藤本洸大】洸大的第8话同时视听大会(Reaction)直播**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DSASI2QAVPJ/)｜[𝓲洸(12/7)](https://www.instagram.com/p/DR9rOIVAcO8/) <span>本来想直播但是睡过头了，慌慌张张开的临时直播XD</span>{: .text-pink}
 * **251207【修学旅行｜双人】快闪店手渡会at涉谷**{: .text-red} ⇨ [活动详细](https://www.manga10.com/event/3619)
@@ -305,12 +311,12 @@ permalink: /
     > #### 这个手渡明信片太好看了，上面甚至写了「きらりふたり両片思い」和名台词「俺は日置が良い　渡会より」(晕倒)
 * **251206【修学旅行｜正片】25:00～ 第8话「泣いてさらけ出す恋心」播出**{: .text-red}
     > [𝕏简](https://x.com/kan_hideyoshi/status/1997263984299569607)/[𝓲简](https://www.instagram.com/p/DR64WbSgQa7/) <span>天选校草……</span>{: .text-pink}
+    > [𝕏狐猪8话回顾](https://x.com/dramal_abc/status/1997549785373642849)/[ins](https://www.instagram.com/p/DR86aUvE2jf/) <span>在线看小简现场品最喜欢的第8话和脸颊吻，零帧起手射击，小猪笑到发抖的甜蜜回顾❤️</span>{: .text-pink}
+    > [𝕏美术教室拍摄花絮](https://x.com/dramal_abc/status/1999419390543167923)/[ins](https://www.instagram.com/p/DSKMkcFEx8Z/)/[𝕏简(12/12)](https://x.com/kan_hideyoshi/status/1999432973628895488) <span>脸颊吻的试行错误+害羞check。嗯？谁能告诉我检修机一开始说的是「彼女」吗!?(破案了他说的应该是「カット中」) 本人转推还加上一句『射撃練習』</span>{: .text-pink}
     > **剧照** ⇨ [𝕏教室告白后](https://x.com/dramal_abc/status/1999676814093091209)｜[𝕏渡日@教室](https://x.com/TVGweb/status/1999615497525178580)｜[𝕏令人嫉妒的笑容](https://x.com/dramal_abc/status/1998709281085075951)/[ins](https://www.instagram.com/p/DSFJp8XEqoK/)｜[𝕏美术教室抱抱](https://x.com/dramal_abc/status/1997342772118892583)/[ins](https://www.instagram.com/p/DR43aY9E81b/)｜[𝕏南瓜](https://x.com/dramal_abc/status/1997332705453732272)/[ins](https://www.instagram.com/p/DR7XtnUE8kQ/)｜[𝕏美术教室](https://x.com/dramal_abc/status/1997320130796089838)/[ins](https://www.instagram.com/p/DR7R-BtE7e5/)｜[𝕏递信](https://x.com/dramal_abc/status/1997290054495166541)/[ins](https://www.instagram.com/p/DR7EMFBk3Q5/)｜[𝕏求婚](https://x.com/dramal_abc/status/1997259726954893330)/[ins](https://www.instagram.com/p/DR62dYZE4-s/)｜[𝕏超甜的一张抵额头](https://x.com/asahi_tv/status/1997154033211998695)｜[𝕏量尺寸](https://x.com/dramal_abc/status/1997229654537875463)/[ins](https://www.instagram.com/p/DR6ouX6EyhI/)｜[𝕏7-8话剧照超大图](https://x.com/TVGweb/status/1997124080890531921)｜[𝕏渡日画画](https://x.com/dramal_abc/status/1996550774923608374)/[ins](https://www.instagram.com/p/DR10P1Pkwut/)｜[𝕏求婚2](https://x.com/dramal_abc/status/1996520145959653401)/[ins](https://www.instagram.com/p/DR1mCRzkwNG/)
     > **花絮照** ⇨ [𝕏四天王vs三地王](https://x.com/dramal_abc/status/1998694179988513004)/[ins](https://www.instagram.com/p/DSFC1JzkuSW/)｜[𝕏风和日丽的渡日2shot](https://x.com/dramal_abc/status/1998512991889699257)/[ins](https://www.instagram.com/p/DSDwbqPEp0y/)｜[𝕏F5万圣节合照](https://x.com/dramal_abc/status/1997954801553100881)/[ins](https://www.instagram.com/p/DR_y2rak74u/)｜[𝕏指尖发光的渡会](https://x.com/dramal_abc/status/1997622119132209253)/[ins](https://www.instagram.com/p/DR9bVHgE8qN/)｜[𝕏日置和某只手](https://x.com/dramal_abc/status/1997594147704971291)|[𝓲教室后方](https://www.instagram.com/p/DR9RxmWEwJ8/?) <span>这一套X和ins也不一样!</span>{: .text-pink}｜[𝕏窗台的F3&反手剪刀手日置](https://x.com/dramal_abc/status/1997427738031063387)｜[𝕏新四天王](https://x.com/dramal_abc/status/1996886049663193285)/[ins](https://www.instagram.com/p/DR4Me8Ok5V7/)｜[𝓲F3+wink日置](https://www.instagram.com/p/DR8FeZjkxOj/)｜[𝕏脸颊吻](https://x.com/dramal_abc/status/1997352837937009017)/[ins](https://www.instagram.com/p/DR7g4G2kzWz/)｜[𝕏渡会画画](https://x.com/dramal_abc/status/1997138940004794758)/[ins](https://www.instagram.com/p/DR5_kAcE-Z-/)｜[𝕏日置待機ちゅう](https://x.com/dramal_abc/status/1996935087615889777)/[ins](https://www.instagram.com/p/DR4i074E3v1/) <span>萌得我心脏有点不行了</span>{: .text-pink}｜[𝕏抓手腕笑得很开心的狐猪](https://x.com/dramal_abc/status/1995130796022374430)/[ins](https://www.instagram.com/p/DRruT-ykwpO/)｜[𝕏握手画画](https://x.com/dramal_abc/status/1995983817023393840)/[ins](https://www.instagram.com/p/DRxyPEPExV5/)｜[𝕏仲里守崎](https://x.com/dramal_abc/status/1997607905907155115)/[ins](https://www.instagram.com/p/DR9U44Dk-1v/)｜[𝕏步汰](https://x.com/official_DXTEEN/status/1997342774346338593)｜[𝕏仲里背影](https://x.com/dramal_abc/status/1996919953942106137)/[ins](https://www.instagram.com/p/DR4b_vbkwEq/)
-    > [𝕏美术教室拍摄花絮](https://x.com/dramal_abc/status/1999419390543167923)/[ins](https://www.instagram.com/p/DSKMkcFEx8Z/)/[𝕏简(12/12)](https://x.com/kan_hideyoshi/status/1999432973628895488) <span>脸颊吻的试行错误+害羞check。嗯？谁能告诉我检修机一开始说的是「彼女」吗!? 何意味？本人转推还加上一句『射撃練習』太甜了……</span>{: .text-pink}
-    > [𝕏狐猪8话回顾](https://x.com/dramal_abc/status/1997549785373642849)/[ins](https://www.instagram.com/p/DR86aUvE2jf/) <span>在线看小简现场品最喜欢的第8话和脸颊吻，零帧起手射击，小猪笑到发抖的甜蜜回顾❤️</span>{: .text-pink}
-    > [𝓲F3助攻组回放](https://www.instagram.com/p/DSHs-O-ExEe/)
-    > [𝕏8话PR](https://x.com/dramal_abc/status/1994813607868088819)｜[𝕏FOD宣-脸颊吻直前](https://x.com/fujitvplus/status/1997342797184336168)/[ins](https://www.instagram.com/p/DR43aqhE95B/)｜[𝕏求婚剧透切片](https://x.com/dramal_abc/status/1998377597047365898)/[ins](https://www.instagram.com/p/DSCtlLmAref/)｜[𝕏转交情书剧透切片](https://x.com/dramal_abc/status/1998377536771052004)/[ins](https://www.instagram.com/p/DSCyrilAon1/)
+    > **切片** ⇨ [𝓲F3助攻组回放](https://www.instagram.com/p/DSHs-O-ExEe/)｜[𝕏求婚剧透切片](https://x.com/dramal_abc/status/1998377597047365898)/[ins](https://www.instagram.com/p/DSCtlLmAref/)｜[𝕏转交情书剧透切片](https://x.com/dramal_abc/status/1998377536771052004)/[ins](https://www.instagram.com/p/DSCyrilAon1/)
+    > **PR** ⇨ [𝕏8话PR](https://x.com/dramal_abc/status/1994813607868088819)｜[𝕏FOD宣-脸颊吻直前](https://x.com/fujitvplus/status/1997342797184336168)/[ins](https://www.instagram.com/p/DR43aqhE95B/)
 * **251206~【藤本洸大】Higoto采访修学旅行全程跟进式采访** 
     > **251206** [𝓲接到修仲offer的心情](https://www.instagram.com/p/DR6gdmkk0Eb/) <span>小猪第一想法是猫猫叹气“又要卖身下海了……”(意译)哈哈哈哈哈哈哈。总感觉日腐演员惨惨的，一次下海不火还会有第二次，仿佛一个站街文(不是)，遇到好本子好相方火了就不用下海了XD</span>{: .text-pink}
     > **251213** [𝓲对简桑的印象)](https://www.instagram.com/p/DSMlKp2E_ls/) <span>又大只又亲切(关西人)又可靠又轻飘飘^^</span>{: .text-pink}
@@ -330,16 +336,32 @@ permalink: /
     > #### 「はい、さいこうです。」(复读) 这一帖全是场外渡日/狐猪的胶片风合照，幸福品味中……
     > [𝓲简(11/29)-渡会打羽毛球](https://www.instagram.com/p/DRowBKogZjx/)｜[𝓲简(12/1)-加入羽毛球社失败](https://www.instagram.com/p/DRt-A2iAaET/)
     > #### 笑得想死2333又抽象又可爱的小简www此段经常和检修机打台球的名场面放在一起wwww
-    > **剧照** ⇨ [𝕏海边拥抱](https://x.com/dramal_abc/status/1994813613400371300)｜[𝕏分组表](https://x.com/dramal_abc/status/1994795990470049793)｜[𝕏日置的回应](https://x.com/dramal_abc/status/1994783407205953845)
-    > **花絮照** ⇨ [𝕏羽毛球社](https://x.com/dramal_abc/status/1994966415691096103)｜[𝕏海边的笑颜](https://x.com/dramal_abc/status/1994889511311217111)｜[𝕏仲里](https://x.com/official_DXTEEN/status/1994806057668153622)｜[𝕏旅馆夜晚的目光](https://x.com/dramal_abc/status/1995484427359789181)/[ins](https://www.instagram.com/p/DRuPHYmkwit/)｜[𝕏守护日置睡颜的人](https://x.com/dramal_abc/status/1995055521423134802)
     > [𝕏海边拥抱彩排花絮](https://x.com/dramal_abc/status/1996173037356359819)/[ins](https://www.instagram.com/p/DRzITOrk7Z6/) <span>就这样萌萌地公费抱了又抱的狐猪…疑似同款外套出现👀</span>{: .text-pink}
-    > [𝓲渡会心动切片](https://www.instagram.com/p/DR4SqQAk9Ri/)
-    > [𝕏海边告白切片](https://x.com/dramal_abc/status/1995842128078086547)/[ins](https://www.instagram.com/p/DRwxsthES0U/)｜[𝕏有了在意的人切片](https://x.com/dramal_abc/status/1995795083309031638)/[ins](https://www.instagram.com/p/DRwyLigkXFZ/)
+    > **剧照** ⇨ [𝕏海边拥抱](https://x.com/dramal_abc/status/1994813613400371300)｜[𝕏分组表](https://x.com/dramal_abc/status/1994795990470049793)｜[𝕏日置的回应](https://x.com/dramal_abc/status/1994783407205953845)
+    > **花絮照** ⇨ [𝕏羽毛球社](https://x.com/dramal_abc/status/1994966415691096103)/[ins](https://www.instagram.com/p/DRqjqdFEzx9/)｜[𝕏海边的笑颜](https://x.com/dramal_abc/status/1994889511311217111)/[ins](https://www.instagram.com/p/DRqAnh8E-8v/)｜[𝕏仲里](https://x.com/official_DXTEEN/status/1994806057668153622)｜[𝕏旅馆夜晚的目光](https://x.com/dramal_abc/status/1995484427359789181)/[ins](https://www.instagram.com/p/DRuPHYmkwit/)｜[𝕏守护日置睡颜的人](https://x.com/dramal_abc/status/1995055521423134802)/[ins](https://www.instagram.com/p/DRrMHRhE3iZ/)
+    > **切片** ⇨ [𝓲渡会心动](https://www.instagram.com/p/DR4SqQAk9Ri/)｜[𝕏海边告白](https://x.com/dramal_abc/status/1995842128078086547)/[ins](https://www.instagram.com/p/DRwxsthES0U/)｜[𝕏有了在意的人](https://x.com/dramal_abc/status/1995795083309031638)/[ins](https://www.instagram.com/p/DRwyLigkXFZ/)
+    > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251122【修学旅行｜正片】25:00～ 第6话播出**{: .text-red}
+    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **切片** ⇨ []()｜[]()｜[]()｜[]()
+    > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251115【修学旅行｜正片】25:00～ 第5话播出**{: .text-red}
+    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ [ins!F3@体育馆](https://www.instagram.com/p/DRrZurnE8Nz/)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **切片** ⇨ []()｜[]()｜[]()｜[]()
+    > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251108【修学旅行｜正片】25:00～ 第4话播出**{: .text-red}
+    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **切片** ⇨ []()｜[]()｜[]()｜[]()
+    > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251101【修学旅行｜正片】25:00～ 第3话播出**{: .text-red}
+    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **旋转木马特辑** ⇨ [𝕏白马公主日置](https://x.com/dramal_abc/status/1995100565362401671)｜[𝓲白马公主日置2](https://www.instagram.com/p/DRrglGME_ji/)｜[𝕏F3](https://x.com/dramal_abc/status/1995085516413551083)
+    > **切片** ⇨ []()｜[]()｜[]()｜[]()
+    > **PR** ⇨ []()｜[]()｜[]()｜[]()
 
 ### 2025.10
 {: #oct2025}
@@ -358,8 +380,16 @@ permalink: /
     > (宣传视频里)说せーの的小简太可爱了!(稀有的年上时刻)
     > #### 这套拍得太好看先嗑一大口…身高差的神……一些因为你才做的事:(猪)开始和共演者出去玩了,(简)开始喜欢古着了(⬅️总觉得一个洁癖突然喜欢古着是另有所图)
 * **251025【修学旅行｜正片】25:00～ 第2话播出**{: .text-red}
+    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **切片** ⇨ []()｜[]()｜[]()｜[]()
+    > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251018【修学旅行｜正片】修学旅行开播! 25:00～ 第1话播出**{: .text-red}
-    > **花絮照** ⇨ [𝕏扑倒练习中](https://x.com/dramal_abc/status/1995070376817336434)｜[𝕏教室里的两人](https://x.com/dramal_abc/status/1994801957865996501)
+    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ [𝕏扑倒练习中](https://x.com/dramal_abc/status/1995070376817336434)/[ins](https://www.instagram.com/p/DRrS3LRk5OO/)｜[𝕏教室里的两人](https://x.com/dramal_abc/status/1994801957865996501)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **切片** ⇨ []()｜[]()｜[]()｜[]()
+    > **PR** ⇨ []()｜[]()｜[]()｜[]()
+* **教室公式照** [教室1(11/30)](https://x.com/dramal_abc/status/1994816122642919500/)|[教室2(11/30)](https://www.instagram.com/p/DRpfTABE2Lb/)
 
 
 ## 2024
