@@ -37,6 +37,7 @@ permalink: /drama/
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
 ## 修学旅行榜单排行&受赏
+* 260406～250412 FOD Premium周榜9位
 * 260401 HUB Award 2025: Best Japanese BL & Japan Highlight of the Year ⇨ [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)｜[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/)
 * 260330～250405 FOD Premium周榜8位⇨ [𝕏](https://x.com/fujitvplus/status/2041108724975325445) 小修学又冲上来了!
 * 260316～260322 FOD Premium周榜10位⇨ [𝕏](https://x.com/fujitvplus/status/2036374967533842463)

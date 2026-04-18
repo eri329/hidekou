@@ -138,17 +138,19 @@ permalink: /
     > [𝕏后台退场小视频](https://x.com/dramal_abc/status/2038211119618392247)/[ins](https://www.instagram.com/p/DWd1Thjkwwk/) <span>洸->简「それ何それ」然后对工作人员小小声点头鞠躬实在太萌了...</span>{: .text-pink}
 * **260328【杂志｜双人】Preppy6月号(5/1)宣传视频** ⇨ [𝕏蓝白look(消失的手相)](https://x.com/preppy_magazine/status/2037832076054147102)
 * **260324【杂志｜双人】中国首封Lemon凝眸＜This Moment's Youth＞(3/24)杂志发售**{: .text-red}
-    > 宣图:[📕lemon](https://xhslink.com/o/5co6jG0kSJx)/[微博](https://weibo.com/7176134584/5279981879428619)/[𝕏](https://x.com/lemon_mag_cn/status/2036310539857486216)/[ins](https://www.instagram.com/p/DWQU3QdiNPS) <span>每一张都好品…还是中国同人女会嗑</span>{: .text-pink}
-    > [𝕏简-怼脸照](https://x.com/kan_hideyoshi/status/2036381740957311207)
-    > [𝓲简-多图版](https://www.instagram.com/p/DWQ05_XgSGF/) <span>救命了有一张小猪给他拍照的照片还被他挑出来发快拍</span>{: .text-pink}
-    > [𝓲洸](https://www.instagram.com/p/DWRDSvAFLy1/) <span>玫瑰花瓣那张小猪发的这个版本也太牙白了...</span>{: .text-pink}
+    > **260320 Lemon中国首封情报解禁** ⇨ 定档: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab886000000001b003a8c?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY_wMA8ddo0Hy73gP42Nmvas=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278594249265385)/[𝕏](https://x.com/lemon_mag_cn/status/2034922896926310502)/[ins](https://www.instagram.com/p/DWGdtXBiG3W/)｜预热: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab6b70000000023012550?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY7Bob8RJM2UbEmMgJKbNa0w=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278532347364342)/[ins](https://www.instagram.com/p/DWGBuoXiC0B/)
+    > **260321 中日双语宣传视频** ⇨ 中文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1ac7000000001a0298dc?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqBb2iJpIj3EByI5l8xIN_hU=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278894718455769)/[𝕏](https://x.com/lemon_mag_cn/status/2035223376311009408)/[ins](https://www.instagram.com/p/DWInuNXoMwr/) | 日文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1f33000000001a032598?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqO1jkY0BvS-m50u8ZqgWjMc=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278906296044419)/[𝕏](https://x.com/lemon_mag_cn/status/2035234956515954831)/[ins](https://www.instagram.com/p/DWIt7TwBh6m/) <span>小简这个中文太烫嘴了哈哈哈</span>{: .text-pink}
+    > **260322 手势舞** ⇨ [ins](https://www.instagram.com/p/DWLLY-NhELg/)
     > **260326 2nd video** ⇨ [📕lemon高清](https://xhslink.com/o/9Cm1YfNB6wc)/[微博](https://weibo.com/7176134584/5280706657782128)/[𝕏](https://x.com/lemon_mag_cn/status/2037035315567919213)/[ins](https://www.instagram.com/p/DWVehTxI5DP/)
     > #### 看完这个我满脑子都是ABO PWP对不起……;小猪背后抱小简结果被紧紧抓住挣脱不出手也太甜了;这个鬼脸片段被某人截出来直接炸FC有点太疯了吧??(此处有同人女被看扁表情包);检修机的射击太蛊了; 小猪你是萌萌小猫射击对不起有点过于瓜花分明了
     > **260323 1st video** ⇨ [📕lemon高清](https://xhslink.com/o/8euabC2zWq5)/[微博](https://weibo.com/7176134584/5279619495231875)/[𝕏](https://x.com/lemon_mag_cn/status/2035948152067588396)/[ins](https://www.instagram.com/p/DWNwGihIWsI/)
     > #### 本狐猪妹的第二个人生视频...小简的眼神跟随真的一绝...腐神降临🙏🏻大概会因为这个眼神永远思念着狐猪吧
-    > **260322 手势舞** ⇨ [ins](https://www.instagram.com/p/DWLLY-NhELg/)
-    > **260321 中日双语宣传视频** ⇨ 中文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1ac7000000001a0298dc?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqBb2iJpIj3EByI5l8xIN_hU=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278894718455769)/[𝕏](https://x.com/lemon_mag_cn/status/2035223376311009408)/[ins](https://www.instagram.com/p/DWInuNXoMwr/) | 日文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1f33000000001a032598?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqO1jkY0BvS-m50u8ZqgWjMc=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278906296044419)/[𝕏](https://x.com/lemon_mag_cn/status/2035234956515954831)/[ins](https://www.instagram.com/p/DWIt7TwBh6m/) <span>小简这个中文太烫嘴了哈哈哈</span>{: .text-pink}
-    > **260320 Lemon中国首封情报解禁** ⇨ 定档: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab886000000001b003a8c?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY_wMA8ddo0Hy73gP42Nmvas=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278594249265385)/[𝕏](https://x.com/lemon_mag_cn/status/2034922896926310502)/[ins](https://www.instagram.com/p/DWGdtXBiG3W/)｜预热: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab6b70000000023012550?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY7Bob8RJM2UbEmMgJKbNa0w=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278532347364342)/[ins](https://www.instagram.com/p/DWGBuoXiC0B/)
+    > **260324 杂志发售**
+    > 宣图:[📕lemon](https://xhslink.com/o/5co6jG0kSJx)/[微博](https://weibo.com/7176134584/5279981879428619)/[𝕏](https://x.com/lemon_mag_cn/status/2036310539857486216)/[ins](https://www.instagram.com/p/DWQU3QdiNPS) <span>每一张都好品…还是中国同人女会嗑</span>{: .text-pink}
+    > [𝕏简-怼脸照](https://x.com/kan_hideyoshi/status/2036381740957311207)
+    > [𝓲简-多图版](https://www.instagram.com/p/DWQ05_XgSGF/) <span>救命了有一张小猪给他拍照的照片还被他挑出来发快拍</span>{: .text-pink}
+    > [𝓲洸](https://www.instagram.com/p/DWRDSvAFLy1/) <span>玫瑰花瓣那张小猪发的这个版本也太牙白了...</span>{: .text-pink}
+    > **260414 Lemon大屏定档详情** ⇨ [微博](https://weibo.com/7938183674/QALEse08V?pagetype=detail)
 * **260323【杂志｜双人】Preppy6月号(5/1)双人封面情报解禁🩵🧡** 封面+20P, 3LOOK ⇨ [𝕏](https://x.com/preppy_magazine/status/2036021028435177741)
 * **260322【修学旅行｜双人】公式书手渡会in东京**{: .text-red}
     > [𝕏简-狐猪大比心合照有](https://x.com/kan_hideyoshi/status/2035678852417253441)｜[𝓲简](https://www.instagram.com/p/DWL1Z6YgcuO/) <span>举着公式书很可爱</span>{: .text-pink}
@@ -156,7 +158,7 @@ permalink: /
     > [𝕏后台道别](https://x.com/dramal_abc/status/2035669942398574850)/[ins](https://www.instagram.com/p/DWLt7dsk2EE/)
     > [𝕏桌前道别](https://x.com/kadokawa_ls/status/2035698603461845183) <span>特别浑厚的一声“手相!!”和又一次懵掉对着镜头只好笑笑蒜了的小猪，萌死...</span>{: .text-pink}
     > #### 角川官方已带上#ひでこう建設tag，是会嗑的😇
-    > **260403 手渡会场贩周边已开通贩** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2039991414986326114)
+    > **260403～260420 手渡会场贩周边已开通贩** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2039991414986326114)
     > **260319 手渡会周边情报** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2034555487333810403)
 * **260325【修学旅行｜藤本洸大】洸大ins发了大量疑似修学旅行片场风景照** ⇨ [𝓲洸](https://www.instagram.com/p/DV5_H11FI6u/)
     > #### 小猪你也在想念修仲了吗？

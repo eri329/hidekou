@@ -17,13 +17,10 @@ permalink: /solo/
 {: #kan2026}
 
 * **260418 5/9直播配信门票开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简(4/15)](https://x.com/kan_hideyoshi/status/2044340416305328246)
-* **260416 21:00～ FC直播**
-* **260413 小简开设小红书账号！** ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址](http://xhslink.com/o/9TtyeW9hcd4)｜[📕简-5/9直播票](http://xhslink.com/o/48yObmZ7TZJ)｜[📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
+* **260416 21:00～22:00 FC直播**
+* **260413 小简开设小红书账号！** ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)｜[📕简-5/9直播票](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)｜[📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
 * **260413 小简宣布加入新事务所MR8** 恭喜!!官网资料很齐全宣传照超级帅! ⇨ [官网](https://mr8.jp/talent/簡秀吉/)｜[𝕏简](https://x.com/kan_hideyoshi/status/2043615442208714846)｜[𝓲简](https://www.instagram.com/p/DXEOgKmAQXo/)｜[小简微博](https://weibo.com/7984735683/5287287484318292)｜[𝕏MR8](https://x.com/official_mr8/status/2043572899869753512)｜[𝓲MR8](https://www.instagram.com/p/DXD7TuDk20e/)｜[Oricon新闻](https://www.oricon.co.jp/news/2448553/full/)
-    > **260417** 宣传照拍摄花絮发布(FC News)｜[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
-* **260409 [Preppy5月号(4/1)]拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
-* **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
-* **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
+    > **260417** 宣传照拍摄花絮发布(FC News)/[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
 * **260401 [Preppy5月号(4/1)]杂志发售 & 海报展告知**{: .text-red}
     > [文字采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
     > 会自己做饭、控制饮食、吃玄米和优质脂肪的超绝自律贤惠的小简。
@@ -31,6 +28,9 @@ permalink: /solo/
     > 给新社会人推荐的日剧《同期のサクラ》
     > 喜欢看的油管搞笑频道：ジャルジャルアイランド
     > [𝕏海报展告知](https://x.com/preppy_magazine/status/2039281619069247671): 4/18~4/19
+    > **260403 海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
+    > **260409 拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
+    > **260418 海报展布置** ⇨ [𝕏](https://x.com/preppy_magazine/status/2045317639971525014)
 * **260326 公园夜游** ⇨ [𝓲简](https://www.instagram.com/p/DWWKZqkAcnX/) 可能是存货
 * **260314 簡秀吉FM3.14 in WhiteDay**{: .text-red}
     > [𝓲简](https://www.instagram.com/p/DV5p_dXgRfH/)
@@ -84,7 +84,7 @@ permalink: /solo/
 * **260427 [DIGVII4月号(4/27)]杂志发售** ⇨ [𝕏](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
 * **260421 [Nailon ISSUE 03(4/21)] 杂志发售** W封面&内页16P＆特別附录
     > **260421~260423** NAILON特別展示＆販売3日限定举办 ⇨ 特典小卡:[𝕏](https://x.com/nailonmagazine/status/2044612242482827639)｜[ins](https://www.instagram.com/p/DXOsL5ckmZ9/)
-    > **260415** 封底解禁⇨ [𝕏](https://x.com/nailonmagazine/status/2044340243621724163)
+    > **260415** 封底解禁⇨ [𝕏](https://x.com/nailonmagazine/status/2044340243621724163)/[ins](https://www.instagram.com/p/DXJYG96Evba/)
     > **260417** 特别附录解禁 ⇨ [𝕏](https://x.com/nailonmagazine/status/2045095709792493814)
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
     > **260327 加藤导演对小猪的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)
