@@ -42,14 +42,15 @@ permalink: /about/
 - [其他账号/告知](https://profcard.info/u/dl75fLfvmiU3oJHVwAvGI7GX6iE3)
 
 #### 简 秀吉
-* 2002年10月23日生｜京都府出身
+* 2002年10月23日生｜京都府出身｜MR8所属
 * 官网/FC：[簡秀吉 Official Site](https://kan-hideyoshi.com/)
+* 事务所官网: [簡秀吉](https://mr8.jp/talent/簡秀吉/)
 * Instagram: [hideyoshi_kan_official](https://www.instagram.com/hideyoshi_kan_official/) 
 * X：[kan_hideyoshi](https://x.com/kan_hideyoshi)
 * 微博：[簡秀吉_1023](https://weibo.com/u/7984735683)
 
 #### 藤本 洸大
-* 2005年10月6日生｜兵庫県出身
+* 2005年10月6日生｜兵庫県出身｜TopCoat所属
 * Instagram: [kodai_fujimoto_official](https://www.instagram.com/kodai_fujimoto_official)
 * TopCoat/FC: [藤本洸大](https://sp.tcland.jp/kodai_fujimoto)
 * TopCoat: [Kodai Schedule](https://topcoat.co.jp/kodai_fujimoto/contents/schedule)

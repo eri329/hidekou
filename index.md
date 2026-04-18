@@ -14,6 +14,7 @@ permalink: /
 *使用ctrl+F/cmd+F可以在本页搜索事件/物料*
 
 [【单人物料】]({{ site.baseurl }}/solo/)
+[【分类索引】]({{ site.baseurl }}/category/)
 
 ### [2026](#year2026)
 * [2026.5](#may2026)
@@ -48,14 +49,23 @@ permalink: /
     > **260408** [📕掌上狐猪-狐](https://xhslink.com/o/9VXD6W2bsDB)/[微博](https://weibo.com/7956654733/5285479664847891)/[ins](https://www.instagram.com/p/DW3Y8ERj3H9/)|[📕摄影师第三视角花絮](https://xhslink.com/o/7Ief5Mn9SIx) <span>检修机这个权威的脸配上害羞的回头笑+小猪即使站到沙发上伸手还是不够高简直太萌了两位……像在拍结婚典礼新人介绍</span>{: .text-pink}
     > **260409** [📕少男心事](https://xhslink.com/o/5kSCp3tnVC5)/[微博](https://weibo.com/7956654733/QA18RhwGz) <span>洸->简箭头大放送🥹对不起某个小孩实在太像暗恋家庭教师的男高了……三套look的花絮都有，肉眼可见地亲密了很多</span>{: .text-pink}
     > **260410** [📕狐兔问候](https://xhslink.com/o/8upfY2z6eti)/[微博](https://weibo.com/7956654733/QAaznhd2X)/[ins](https://www.instagram.com/p/DW8jQzkD0WB/) <span>第四套look出现。小简你终于戴上狐耳了啊啊啊,你俩用狐尼克调情多少次了(。</span>{: .text-pink}
-    > **260411** [📕封面](https://xhslink.com/o/6mtK6yP74xU)/[微博](https://weibo.com/7956654733/5286566809305299)/[ins](https://www.instagram.com/p/DW_H2YOjyCm/)/[小简FC博文]*retro封面*｜[📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/) *ins的图最大*
-* **260418【修学旅行｜双人】粉丝见面会in台湾** ⇨ [情报](https://x.com/manga10_tw/status/2037471140638310839)
+    > **260411** [📕封面](https://xhslink.com/o/6mtK6yP74xU)/[微博](https://weibo.com/7956654733/5286566809305299)/[ins](https://www.instagram.com/p/DW_H2YOjyCm/)/[FC News]*retro封面*｜[📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/) *ins的图最大*
+    > **260412** [📕尼克简和朱迪洸](http://xhslink.com/o/1NHzBlqndjV)/[ins](https://www.instagram.com/reels/DXBsK5jDwWs/) <span>萌死了很清新的小情侣</span>{: .text-pink}
+    > **250423** [📕尼克朱迪对视游戏](http://xhslink.com/o/20hi7UH2G6L) <span>检修机唱RAP有哈哈哈哈</span>{: .text-pink}
 <div class="line"></div>
 
-* **260412【杂志｜双人】中国首封Lemon游戏视频**{: .text-red} ⇨ [📕不准笑挑战+5秒问答+唱歌](http://xhslink.com/o/1kEFWfx8Srd)
-    > #### 震撼首发，平地一声雷带来核弹级的威力……小猪，就决定是这个人了吗？(我的老天奶小猪好主动好腹黑好钓啊啊啊🤯🤯🤯检修机一款撒娇少女攻跺跺脚就什么都得到了……)
+* **260418【修学旅行｜双人】粉丝见面会in台湾**{: .text-red}
+    > [𝕏情报](https://x.com/manga10_tw/status/2037471140638310839)｜[活动详情](https://world.manga10.com/blogs/eventstaiwan/shugakuryokofm2026)
+    > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}
+    > [TC马内甲笔记(4/19)](https://sp.tcland.jp/contents/1066713) <span>内含小猪准备活动的花絮，特别特别认真的一个好孩子</span>{: .text-pink}
+    > [yahoo新闻(视频)(look1)](https://news.yahoo.co.jp/articles/f9c7570f8d84ec91c48acd7c1b2c8d449b124982)/[𝕏新闻转载](https://x.com/altjdsus__/status/2045481021970514176)｜[𝕏](https://x.com/dramal_abc/status/2045480150788456897)
+    > [活动结束双人视频(look3)](https://x.com/dramal_abc/status/2045533082414145674)
+* **260413 小简开设小红书账号！** ⇨ [📕简](http://xhslink.com/o/8V1luAlHrSu) 评论区大混战,小简唯一回复的那条评论还被删了｜随即第二条就晒了狐猪获奖的合照❤️ [📕HubAward2025](http://xhslink.com/o/7SUzuoAxAUn) <span>一连5天6条小红书都是回的修仲粉的留言^^</span>{: .text-pink}
+* **260413【修学旅行｜双人】韩国见面会定档6月6日** ⇨ [𝕏](https://x.com/p_en_kr/status/2043554933086326826)
+* **260412【杂志｜双人】中国首封Lemon游戏视频**{: .text-red} ⇨ [📕不准笑挑战+5秒问答+唱歌](http://xhslink.com/o/1kEFWfx8Srd)/[微博](https://weibo.com/7176134584/5286867252807111)
+    > #### 震撼首发，平地一声雷带来核弹级的威力……小猪，就决定是这个人了吗？(我的老天奶小猪好主动好腹黑好钓啊啊啊🤯🤯🤯检修机一款撒娇少女攻跺跺脚就什么都得到了……);小猪唱的歌(婚礼歌):[🆈花束のかわりにメロディーを/清水翔太](https://www.youtube.com/watch?v=L1D_hLw4AA4) 并且在“这次请注视着我”那句一直盯着小简❤️
 * **260411【杂志｜双人】Starside Spring 2026追加视频发送**
-    > #### 严肃品鉴中！[coner video-即兴表演]:讲关西腔的狐猪太可爱了!!小简大概是天生眼神就饱含深情吧对小猪的表演完全是100%focus给出很多反应(而且都是他在喊start～)……第二个题目小简超级让人心动啊❤️第二个题目看完我已经不行了给我上呼吸机吧……站长每看十秒停下来捂嘴大笑+深呼吸，特别特别萌的漫才夫夫……抓着小猪求吐槽的小简和懵懵的小猪太萌了……
+    > #### 严肃品鉴中！[coner video-即兴表演]:讲关西腔的狐猪太可爱了!!小简大概是天生眼神就饱含深情吧对小猪的表演完全是100%focus给出很多反应(而且都是他在喊start～)……第二个题目小简超级让人心动❤️两位热演狐猪互相告白中……站长每看十秒停下来捂嘴大笑+深呼吸，特别特别萌的漫才夫夫……小简求吐槽+1，小猪又懵懵地跟不上某人中……
     > #### [interview]: 基本上就是杂志文字采访的真人版，偶尔问出了很好的问题！小简的箭头是真的粗啊…两个人聊天的感觉特别放松自然，小简天马行空，小猪就淡淡地或follow或吐槽或被逗得大笑；小猪讲一些自己的小事，小简就会注视着他认真地听。互相说喜欢的对方的小动作也特别萌……真的特别幸福……
     > **260410** [𝕏采访切片](https://x.com/starside_x/status/2042559090891854159)
     > #### 简:想演坏人被洸大逮捕，洸:想演身高差刑警搭档。小猪也cue了身高差，之前小简就对公式书拍的身高差赞不绝口，合着你俩相见第一眼就很满意这个身高差是吧☺️
@@ -348,7 +358,7 @@ permalink: /
     > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251115【修学旅行｜正片】25:00～ 第5话播出**{: .text-red}
     > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **花絮照** ⇨ [ins!F3@体育馆](https://www.instagram.com/p/DRrZurnE8Nz/)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ [𝓲F3@体育馆](https://www.instagram.com/p/DRrZurnE8Nz/)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **切片** ⇨ []()｜[]()｜[]()｜[]()
     > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251108【修学旅行｜正片】25:00～ 第4话播出**{: .text-red}

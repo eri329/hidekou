@@ -16,6 +16,11 @@ permalink: /solo/
 ### 2026
 {: #kan2026}
 
+* **260418 5/9直播配信门票开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简(4/15)](https://x.com/kan_hideyoshi/status/2044340416305328246)
+* **260416 21:00～ FC直播**
+* **260413 小简开设小红书账号！** ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址](http://xhslink.com/o/9TtyeW9hcd4)｜[📕简-5/9直播票](http://xhslink.com/o/48yObmZ7TZJ)｜[📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
+* **260413 小简宣布加入新事务所MR8** 恭喜!!官网资料很齐全宣传照超级帅! ⇨ [官网](https://mr8.jp/talent/簡秀吉/)｜[𝕏简](https://x.com/kan_hideyoshi/status/2043615442208714846)｜[𝓲简](https://www.instagram.com/p/DXEOgKmAQXo/)｜[小简微博](https://weibo.com/7984735683/5287287484318292)｜[𝕏MR8](https://x.com/official_mr8/status/2043572899869753512)｜[𝓲MR8](https://www.instagram.com/p/DXD7TuDk20e/)｜[Oricon新闻](https://www.oricon.co.jp/news/2448553/full/)
+    > **260417** 宣传照拍摄花絮发布(FC News)｜[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
 * **260409 [Preppy5月号(4/1)]拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
 * **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
 * **260403 [Preppy5月号(4/1)]海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
@@ -77,20 +82,26 @@ permalink: /solo/
 * **260508 电影『未来』上映** 布施晃 役 ⇨ [官网](https://mirai-movie.jp/)
     > **260428 试映会** ⇨ [𝕏](https://x.com/RKB_EVENT/status/2041410645808275915)
 * **260427 [DIGVII4月号(4/27)]杂志发售** ⇨ [𝕏](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
-* **260421 [Nailon Vol.3(4/21)] 杂志发售**
+* **260421 [Nailon ISSUE 03(4/21)] 杂志发售** W封面&内页16P＆特別附录
+    > **260421~260423** NAILON特別展示＆販売3日限定举办 ⇨ 特典小卡:[𝕏](https://x.com/nailonmagazine/status/2044612242482827639)｜[ins](https://www.instagram.com/p/DXOsL5ckmZ9/)
+    > **260415** 封底解禁⇨ [𝕏](https://x.com/nailonmagazine/status/2044340243621724163)
+    > **260417** 特别附录解禁 ⇨ [𝕏](https://x.com/nailonmagazine/status/2045095709792493814)
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
+    > **260327 加藤导演对小猪的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)
     > **260407 赤城神社祈願+记者见面会**
     > **260325 角色解禁** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036639226549473296)
     > **260324 预告** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036186240224206939)
-* **260412 4月12日(日)22:15~ ABC电视剧「マエラー」播出** 洸大出演 塩野春樹役 ⇨ [𝓲洸(3/27)](https://www.instagram.com/p/DWYkRviFET7)｜[官网](https://www.asahi.co.jp/drama_error/)
+    > **260413 开机小片段** ⇨ [ins](https://www.instagram.com/p/DXEOg-pjcjV/)
+    > **260415 放送5日前口播** ⇨ [ins](https://www.instagram.com/p/DXJYD3clO9B/)
+* **260412 4月12日(日)22:15~ ABC电视剧「マエラー」播出** 洸大出演 塩野春樹役 ⇨ [𝓲洸(3/27)](https://www.instagram.com/p/DWYkRviFET7)｜[官网](https://www.asahi.co.jp/drama_error/)｜[𝕏修学官推发剧照](https://x.com/dramal_abc/status/2043304691111711001)
 * **260409 19:00〜NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DW6P-rNlJA8/)
 * **260407 电视剧「share」赤城神社祈願+记者见面会**
     > [𝓲洸](https://www.instagram.com/p/DW1QzKolPOc/)｜[𝕏](https://x.com/drama_share_tv/status/2041712653899571301)｜[🆈マイナビニュース活动报道](https://www.youtube.com/watch?v=2XZyxoRuqcU)(小猪片段1:55~, 6:44~, 10:50, 13:50~, 14:30~)｜[🆈另外一个](https://www.youtube.com/watch?v=GJDOH-1s2Us)(00:37~, 3:27~, 4:17~提到在给共演过的人做衣服, 8:40~)｜[𝕏照片](https://x.com/mn_enta/status/2041418260034502856)｜[𝕏照片](https://x.com/oricon/status/2041405140465598523)｜[𝕏照片](https://x.com/modelpress/status/2041397825729396994)｜[𝕏活动入场-超萌小猪](https://x.com/drama_share_tv/status/2041420106513940822)｜[𝓲照片](https://www.instagram.com/p/DW3WfJakn27/)
 * **260403 [Fineboys4月号(3/9)] 拍摄采访** ⇨ [ins](https://www.instagram.com/reel/DWqelsChh_S/)
     > 喜欢吃的寿司种类是虾🍤，回到老家会想吃妈妈做的土豆炖肉和蛋包饭。
 * **260401 [Fineboys4月号(3/9)] 特典亲签拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2038994738989375816)
-* **260331 [Nailon Vol.3(4/21)] W封面情报解禁**
-    > [𝕏采访:尝试了自然系的美甲](https://x.com/nailonmagazine/status/2038912132218335297)/[ins](https://www.instagram.com/p/DWix6_oz51K/)｜[封面&购买链接](https://www.nylon.jp/nailon03_kodai)/[ins告知](https://www.instagram.com/p/DWiwL4kkr9g/)
+* **260331 [Nailon ISSUE 03(4/21)] W封面情报解禁**
+    > [𝕏拍摄花絮:尝试了自然系的美甲](https://x.com/nailonmagazine/status/2038912132218335297)/[ins](https://www.instagram.com/p/DWix6_oz51K/)｜[封面&购买链接](https://www.nylon.jp/nailon03_kodai)/[ins告知](https://www.instagram.com/p/DWiwL4kkr9g/)
 * **260330 RALPH LAUREN 表参道店 20周年纪念活动** ⇨ [𝓲洸](https://www.instagram.com/p/DWgsy6-lBfE) 好漂亮的小男孩!!(晕倒)
 * **260330 [Men's Preppy4月号(2/28)]抽选特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2038451147397017671)
 * **260324 [fashionsnap]采访** ⇨ [彼が思う美意識について。vol.5](https://www.fashionsnap.com/special/sense-of-beauty-05/)
