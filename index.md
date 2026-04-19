@@ -17,15 +17,9 @@ permalink: /
 [【分类索引】]({{ site.baseurl }}/category/)
 
 ### [2026](#year2026)
-* [2026.5](#may2026)
-* [2026.4](#apr2026)
-* [2026.3](#mar2026)
-* [2026.2](#feb2026)
-* [2026.1](#jan2026)
+* [2026.1](#jan2026) ｜ [2026.2](#feb2026) ｜ [2026.3](#mar2026) ｜ [2026.4](#apr2026) ｜ [2026.5](#may2026)
 ### [2025](#year2025)
-* [2025.12](#dec2025)
-* [2025.11](#nov2025)
-* [2025.10](#oct2025)
+* [2025.10](#oct2025) ｜ [2025.11](#nov2025) ｜ [2025.12](#dec2025)
 
 <div class="line"></div>
 
@@ -49,17 +43,31 @@ permalink: /
     > **260408** [📕掌上狐猪-狐](https://xhslink.com/o/9VXD6W2bsDB)/[微博](https://weibo.com/7956654733/5285479664847891)/[ins](https://www.instagram.com/p/DW3Y8ERj3H9/)|[📕摄影师第三视角花絮](https://xhslink.com/o/7Ief5Mn9SIx) <span>检修机这个权威的脸配上害羞的回头笑+小猪即使站到沙发上伸手还是不够高简直太萌了两位……像在拍结婚典礼新人介绍</span>{: .text-pink}
     > **260409** [📕少男心事](https://xhslink.com/o/5kSCp3tnVC5)/[微博](https://weibo.com/7956654733/QA18RhwGz) <span>洸->简箭头大放送🥹对不起某个小孩实在太像暗恋家庭教师的男高了……三套look的花絮都有，肉眼可见地亲密了很多</span>{: .text-pink}
     > **260410** [📕狐兔问候](https://xhslink.com/o/8upfY2z6eti)/[微博](https://weibo.com/7956654733/QAaznhd2X)/[ins](https://www.instagram.com/p/DW8jQzkD0WB/) <span>第四套look出现。小简你终于戴上狐耳了啊啊啊,你俩用狐尼克调情多少次了(。</span>{: .text-pink}
-    > **260411** [📕封面](https://xhslink.com/o/6mtK6yP74xU)/[微博](https://weibo.com/7956654733/5286566809305299)/[ins](https://www.instagram.com/p/DW_H2YOjyCm/)/[FC News]*retro封面*｜[📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/) *ins的图最大*
+    > **260411** [📕封面](https://xhslink.com/o/6mtK6yP74xU)/[微博](https://weibo.com/7956654733/5286566809305299)/[ins](https://www.instagram.com/p/DW_H2YOjyCm/)/[FCblog]*retro封面*｜[📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/) *ins的图最大*
     > **260412** [📕尼克简和朱迪洸](http://xhslink.com/o/1NHzBlqndjV)/[ins](https://www.instagram.com/reels/DXBsK5jDwWs/) <span>萌死了很清新的小情侣</span>{: .text-pink}
     > **250423** [📕尼克朱迪对视游戏](http://xhslink.com/o/20hi7UH2G6L) <span>检修机唱RAP有哈哈哈哈</span>{: .text-pink}
 <div class="line"></div>
 
 * **260418【修学旅行｜双人】粉丝见面会in台湾**{: .text-red}
     > [𝕏情报](https://x.com/manga10_tw/status/2037471140638310839)｜[活动详情](https://world.manga10.com/blogs/eventstaiwan/shugakuryokofm2026)
-    > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}
+    > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}｜[FCblog更新](https://kan-hideyoshi.com/member/photos/609823)
     > [TC马内甲笔记(4/19)](https://sp.tcland.jp/contents/1066713) <span>内含小猪准备活动的花絮，特别特别认真的一个好孩子</span>{: .text-pink}
-    > [yahoo新闻(视频)(look1)](https://news.yahoo.co.jp/articles/f9c7570f8d84ec91c48acd7c1b2c8d449b124982)/[𝕏新闻转载](https://x.com/altjdsus__/status/2045481021970514176)｜[𝕏](https://x.com/dramal_abc/status/2045480150788456897)
-    > [活动结束双人视频(look3)](https://x.com/dramal_abc/status/2045533082414145674)
+    > [yahoo新闻(视频)(look1)](https://news.yahoo.co.jp/articles/f9c7570f8d84ec91c48acd7c1b2c8d449b124982)/[𝕏新闻转载](https://x.com/altjdsus__/status/2045481021970514176)｜[修仲公式𝕏](https://x.com/dramal_abc/status/2045480150788456897)
+    > [活动结束双人视频(look3)](https://x.com/dramal_abc/status/2045533082414145674)/[ins](https://www.instagram.com/reels/DXR2vVpEw5f/)
+    > 所有人repo都是：简->有趣，手很大，白;洸->可爱，可爱，可爱
+    > 小猪给小简日翻日有hhh
+    > 某人想让小猪穿那种能露出超多锁骨的露肩连衣裙23333 *=> 联动4/16小简FC直播*
+    > 输比赢多的小简www怎么回事啊检修机乒乓球比赛洸大只进了3个也没赢23333 这里轮到小简玩他说EASY!!小猪:你先赢了再说~(意译)也很好味（两个人有帮staff捡球）
+    > 如果被外星人劫走又放了回来要怎么分辨对方？简:戳他的脸颊，洸:确实总是在被他戳啊
+    > 如果要给对方做吃的？洸:你想吃什么？我什么都会哦。（非常贤惠娶到就是赚到的一只小猪……）简:蛋包饭+汉堡排（完全是在点小猪爱吃的orz）
+    > 小猪再次提到和日置的温度感很接近，两人也提到了好几次第二季，第二季你快来叭………小简和渡会接近的地方是隐隐约约透出的笨拙，渡会是不擅长表达，而自己只是单纯日语不好（哈哈哈哈哈)
+    > 小猪的(对观众的)心动表白是用中文说“请和我交往”，第3部时还有重现日置版本的台词，真的很认真很好学生的小猪；(翻译完)小简听懂后爆炸沸腾ing
+    > 拍摄中被对方刺激(此处应是褒义)到的地方？洸:那种好像会把你盯出血的眼神（我觉得是一种夸奖诶所以嗑到☺️）简:No刺激!!Yes Enjoy!!（搞抽象中hhh）⬅️小猪笑趴。后面小猪也写了觉得小简自信的面部部位是眼睛，总觉得小猪日常就是被小简盯到不好意思XD
+    > 洸大谈到临近最终回时的心情，虽然自己有点寂寞，但那时的日置一定不是寂寞的。⬅️他真的很懂日置
+    > 把对方比喻成动物？洸->简:狗，听到小简自己的答案是金毛好像吐槽了一下:那么具体的吗!？(意译);简->洸:仓鼠（怎么总是在变啊wwww）
+    > 翻译说“谢谢藤本桑”后小简接话「いえいえとんでもない」（家属感）
+    > 小猪很努力地扮演你画我猜结果最后是按猜对的次数决定胜负，有点不服气的小猪www
+    > #### 其实整个活动最戳到我的是两位对修仲的发言。问到修仲播出后的感想时小简超大声地说「僕の好きなBLでしたね！！」，以及最后结束时小猪说「初主演で、自分の演じた作品がこんなにも愛されて、それがこんなにも嬉しくて」，真的是过于简洸(ひでこうらしい)的发言，听到这些话就会有点想哭的我，可能真的非常非常爱因为修仲而相遇、又只有你们才能创造出来的修仲吧。
 * **260413 小简开设小红书账号！** ⇨ [📕简](http://xhslink.com/o/8V1luAlHrSu) 评论区大混战,小简唯一回复的那条评论还被删了｜随即第二条就晒了狐猪获奖的合照❤️ [📕HubAward2025](http://xhslink.com/o/7SUzuoAxAUn) <span>一连5天6条小红书都是回的修仲粉的留言^^</span>{: .text-pink}
 * **260413【修学旅行｜双人】韩国见面会定档6月6日** ⇨ [𝕏](https://x.com/p_en_kr/status/2043554933086326826)
 * **260412【杂志｜双人】中国首封Lemon游戏视频**{: .text-red} ⇨ [📕不准笑挑战+5秒问答+唱歌](http://xhslink.com/o/1kEFWfx8Srd)/[微博](https://weibo.com/7176134584/5286867252807111)

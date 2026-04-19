@@ -48,6 +48,7 @@ permalink: /about/
 * Instagram: [hideyoshi_kan_official](https://www.instagram.com/hideyoshi_kan_official/) 
 * X：[kan_hideyoshi](https://x.com/kan_hideyoshi)
 * 微博：[簡秀吉_1023](https://weibo.com/u/7984735683)
+* 小红书：[簡秀吉:KanHideyoshi](https://www.xiaohongshu.com/user/profile/69235e180000000037032068)
 
 #### 藤本 洸大
 * 2005年10月6日生｜兵庫県出身｜TopCoat所属

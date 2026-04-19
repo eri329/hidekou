@@ -37,16 +37,16 @@ permalink: /drama/
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
 ## 修学旅行榜单排行&受赏
-* 260406～250412 FOD Premium周榜9位
+* 260406～250412 FOD Premium周榜9位 ⇨ [𝕏](https://x.com/fujitvplus/status/2043985112199541224)
 * 260401 HUB Award 2025: Best Japanese BL & Japan Highlight of the Year ⇨ [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)｜[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/)
-* 260330～250405 FOD Premium周榜8位⇨ [𝕏](https://x.com/fujitvplus/status/2041108724975325445) 小修学又冲上来了!
-* 260316～260322 FOD Premium周榜10位⇨ [𝕏](https://x.com/fujitvplus/status/2036374967533842463)
-* 260302～260308 FOD Premium周榜10位⇨ [𝕏](https://x.com/fujitvplus/status/2030964937494061515)
+* 260330～250405 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2041108724975325445) 小修学又冲上来了!
+* 260316～260322 FOD Premium周榜10位 ⇨ [𝕏](https://x.com/fujitvplus/status/2036374967533842463)
+* 260302～260308 FOD Premium周榜10位 ⇨ [𝕏](https://x.com/fujitvplus/status/2030964937494061515)
 * 260223～260301 公式书 纪伊国屋书店周榜best seller ⇨ [𝕏](https://x.com/Kinokuniya/status/2028363528592400861)
-* 260223～260301 FOD Premium周榜8位⇨ [𝕏](https://x.com/fujitvplus/status/2028759582580027761)
-* 260216～260222 FOD Premium周榜7位⇨ [𝕏](https://x.com/fujitvplus/status/2026220559374356672)
-* 260202～260208 FOD Premium周榜8位⇨ [𝕏](https://x.com/fujitvplus/status/2020794997780668552)
-* 260119～250125 FOD Premium周榜5位⇨ [𝕏](https://x.com/fujitvplus/status/2016081246011466035)
+* 260223～260301 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2028759582580027761)
+* 260216～260222 FOD Premium周榜7位 ⇨ [𝕏](https://x.com/fujitvplus/status/2026220559374356672)
+* 260202～260208 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2020794997780668552)
+* 260119～250125 FOD Premium周榜5位 ⇨ [𝕏](https://x.com/fujitvplus/status/2016081246011466035)
 * 260112～260118 公式书 纪伊国屋书店预约榜(综合)1位 ⇨ [𝕏](https://x.com/Kinokuniya/status/2013155717222658418)
 * 260112～260118 FOD Premium周榜2位⇨ [𝕏](https://x.com/fujitvplus/status/2013544530835055065)
     > *FOD从11月～1月的榜单没有翻到, 并不是小修学没有入榜!*{: .text-small}
@@ -61,10 +61,10 @@ permalink: /drama/
 * 251204～251211 GagaOOLala周榜1位 ⇨ [𝕏]([https://x.com/gagaoolala/status/1999313262538621397)
 * 251208 第7回 TVer日榜(?)电视剧4位 ⇨ [𝕏](https://x.com/gagaoolala/status/1995148106917392397)
 * 251127～251204 GagaOOLala周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1996776559370248368)
-* 251124～251130 FOD Premium周榜2位⇨ [𝕏](https://x.com/fujitvplus/status/1996512302414389538)
-* 251110～251116 FOD Premium周榜2位⇨ [𝕏](https://x.com/fujitvplus/status/1990714097000984910)
-* 251101～251130 FOD Premium月榜3位⇨ [𝕏](https://x.com/fujitvplus/status/1996149911801213088)
-* 251020～251026 FOD Premium周榜3位⇨ [𝕏](https://x.com/fujitvplus/status/1983103949398802754)
+* 251124～251130 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996512302414389538)
+* 251110～251116 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1990714097000984910)
+* 251101～251130 FOD Premium月榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996149911801213088)
+* 251020～251026 FOD Premium周榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1983103949398802754)
 * 251010 DXTEEN「両片想い」获得日本唱片协会2025年9月金曲认证(10万枚) ⇨ [𝕏](https://x.com/riaj_prinfo/status/1976454125216010424)
 
 </div>
