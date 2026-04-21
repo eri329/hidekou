@@ -16,6 +16,7 @@ permalink: /solo/
 ### 2026
 {: #kan2026}
 
+* **260419 FC更新tiktok小视频** ⇨ [FC](https://kan-hideyoshi.com/movies/127454)
 * **260418 5/9直播配信门票开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简(4/15)](https://x.com/kan_hideyoshi/status/2044340416305328246)
 * **260416 21:00～22:00 FC直播**
 * **260413 小简开设小红书账号！** ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)｜[📕简-5/9直播票](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)｜[📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
@@ -30,7 +31,7 @@ permalink: /solo/
     > [𝕏海报展告知](https://x.com/preppy_magazine/status/2039281619069247671): 4/18~4/19
     > **260403 海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
     > **260409 拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
-    > **260418 海报展布置** ⇨ [𝕏](https://x.com/preppy_magazine/status/2045317639971525014)｜[X!视频](https://x.com/preppy_magazine/status/2045474926463737942)
+    > **260418 海报展布置** ⇨ [𝕏](https://x.com/preppy_magazine/status/2045317639971525014)｜[𝕏视频](https://x.com/preppy_magazine/status/2045474926463737942)
 * **260326 公园夜游** ⇨ [𝓲简](https://www.instagram.com/p/DWWKZqkAcnX/) 可能是存货
 * **260314 簡秀吉FM3.14 in WhiteDay**{: .text-red}
     > [𝓲简](https://www.instagram.com/p/DV5p_dXgRfH/)
