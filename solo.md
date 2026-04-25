@@ -16,10 +16,14 @@ permalink: /solo/
 ### 2026
 {: #kan2026}
 
+* **260530 香港见面会**
+    > **260422 情报解禁** ⇨ [📕简](http://xhslink.com/o/6NpHRiEIpm8)｜[微博-简+详情](https://weibo.com/7984735683/5290209986223512)｜[📕主办方](http://xhslink.com/o/8M6jkSdQIjl)/[ins](https://www.instagram.com/p/DXY7sjGjZjP/)｜[📕小简宣传视频](http://xhslink.com/o/6kGWTCGGdyd)/[ins](https://www.instagram.com/p/DXbl3hLEUo-/)/[微博](https://weibo.com/7984735683/QC1Lavkc4)
+    > **260424 开票** ⇨ [📕简](http://xhslink.com/o/57c4Vg5Jlrh)/[ins](https://www.instagram.com/p/DXgqvsEAcsH/)
+* **260423 FINEBOYS初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387)
 * **260419 FC更新tiktok小视频** ⇨ [FC](https://kan-hideyoshi.com/movies/127454)
-* **260418 5/9直播配信门票开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简(4/15)](https://x.com/kan_hideyoshi/status/2044340416305328246)
-* **260416 21:00～22:00 FC直播**
-* **260413 小简开设小红书账号！** ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)｜[📕简-5/9直播票](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)｜[📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
+* **260418 5/9直播配信门票开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简(4/15)](https://x.com/kan_hideyoshi/status/2044340416305328246)/[📕简-5/9直播票(4/15)](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)
+* **260416 21:00～22:00 FC直播** ⇨ [📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
+* **260413 小简开设小红书账号！** ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址(4/14)](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)
 * **260413 小简宣布加入新事务所MR8** 恭喜!!官网资料很齐全宣传照超级帅! ⇨ [官网](https://mr8.jp/talent/簡秀吉/)｜[𝕏简](https://x.com/kan_hideyoshi/status/2043615442208714846)｜[𝓲简](https://www.instagram.com/p/DXEOgKmAQXo/)｜[小简微博](https://weibo.com/7984735683/5287287484318292)｜[𝕏MR8](https://x.com/official_mr8/status/2043572899869753512)｜[𝓲MR8](https://www.instagram.com/p/DXD7TuDk20e/)｜[Oricon新闻](https://www.oricon.co.jp/news/2448553/full/)
     > **260417 宣传照拍摄花絮** [FCblog](https://kan-hideyoshi.com/movies/127412)｜[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
 * **260401 [Preppy5月号(4/1)]杂志发售 & 海报展告知**{: .text-red}
@@ -82,10 +86,14 @@ permalink: /solo/
 
 * **260508 电影『未来』上映** 布施晃 役 ⇨ [官网](https://mirai-movie.jp/)
     > **260428 试映会** ⇨ [𝕏](https://x.com/RKB_EVENT/status/2041410645808275915)
+* **260502 [日経エンタテインメント！6月号(5/2)]杂志发售** interview ⇨ [𝕏](https://x.com/nikkei_ent/status/2047133398528057620) 
+* **260428 [TV Life 9号(4/28)]杂志发售** #今旬コレクション ⇨ [𝕏](https://x.com/tv_life/status/2047504917938753643)｜[详情](https://www.tvlife.jp/latest/787489)
 * **260427 [DIGVII4月号(4/27)]杂志发售** ⇨ [𝕏](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
 * **260421 [Nailon ISSUE 03(4/21)] 杂志发售** W封面&内页16P＆特別附录
+    > **260424** 拍摄花絮视频 ⇨ [𝕏](https://x.com/nailonmagazine/status/2047618089131639005)
     > **260421~260423** NAILON特別展示＆販売3日限定举办 ⇨ 特典小卡:[𝕏](https://x.com/nailonmagazine/status/2044612242482827639)｜[ins](https://www.instagram.com/p/DXOsL5ckmZ9/)
-    > **260415** 封底解禁⇨ [𝕏](https://x.com/nailonmagazine/status/2044340243621724163)/[ins](https://www.instagram.com/p/DXJYG96Evba/)
+    > **260421** 杂志发售 ⇨ [杂志介绍](https://www.nylon.jp/nailon03_KODAI)｜[𝕏双封面](https://x.com/nailonmagazine/status/2046429214421786730)｜[𝕏应募特典拍立得](https://x.com/nailonmagazine/status/2046531136176918823)
+    > **260415** 封底解禁 ⇨ [𝕏](https://x.com/nailonmagazine/status/2044340243621724163)/[ins](https://www.instagram.com/p/DXJYG96Evba/)
     > **260417** 特别附录解禁 ⇨ [𝕏](https://x.com/nailonmagazine/status/2045095709792493814)
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
     > **260327 加藤导演对小猪的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)

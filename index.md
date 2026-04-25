@@ -17,7 +17,7 @@ permalink: /
 [【分类索引】]({{ site.baseurl }}/category/)
 
 ### [2026](#year2026)
-* [2026.1](#jan2026) ｜ [2026.2](#feb2026) ｜ [2026.3](#mar2026) ｜ [2026.4](#apr2026) ｜ [2026.5](#may2026)
+* [2026.1](#jan2026) ｜ [2026.2](#feb2026) ｜ [2026.3](#mar2026) ｜ [2026.4](#apr2026) ｜ [2026.5](#may2026) ｜ [2026.6](#jun2026)
 ### [2025](#year2025)
 * [2025.10](#oct2025) ｜ [2025.11](#nov2025) ｜ [2025.12](#dec2025)
 
@@ -28,17 +28,28 @@ permalink: /
 ## 2026
 {: #year2026}
 
+### 2026.6
+{: #jun2026}
+* **260606【修学旅行｜双人】韩国见面会**
+    > 13:00/18:00 Donghae Culture & Arts Center(光云大学东海文化艺术馆)
+    > **260422 活动详情+购票** ⇨ [𝕏修仲官推](https://x.com/dramal_abc/status/2046821045337014642)/[𝕏](https://x.com/p_en_kr/status/2046842839217353190)/[ins](https://www.instagram.com/p/DXbLRhplGYD/)
+
 ### 2026.5
 {: #may2026}
 
+* **260509~260510【杂志｜双人】Preppy6月号(5/1)海报展** ⇨ [𝕏告知(4/21)](https://x.com/preppy_magazine/status/2046529374384746792)｜[𝕏预约(4/24)](https://x.com/preppy_magazine/status/2047616545178653095)
 * **260508【修学旅行｜双人】蓝光box发售**
     > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)
+* **260501【杂志｜双人】Preppy6月号(5/1)杂志发售**
+    > [𝕏应募特典小简拍立得(4/22)](https://x.com/preppy_magazine/status/2046891770701840411)
 
 ### 2026.4
 {: #apr2026}
 <div class="line"></div>
 
-* **260422【杂志】JUNON 6月号(4/22) 简洸分别登场** ⇨ [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[详情](https://www.junon-tv.jp/articles/4315)
+* **260422【杂志】JUNON 6月号(4/22) 简洸分别登场**
+    > [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[详情](https://www.junon-tv.jp/articles/4315)
+    > **260422~260520** 洸大便利店相卡 ⇨ [𝕏](https://x.com/eprintservice/status/2046755873972957308)｜[𝕏相卡目录](https://x.com/eriko_mp100/status/2047910501959729161)｜[𝓲相卡拍摄花絮](https://www.instagram.com/reels/DXawg7nTjMC/)
 * **260421【修学旅行｜双人】「おはよう朝日です」早间娱乐新闻出场** 台湾活动报道 ⇨ [𝕏情报](https://x.com/ohaasaofficial/status/2046170771542954199)
 * **260420【修学旅行｜双人】韩国见面会基本信息公开** ⇨ [𝕏](https://x.com/p_en_kr/status/2046091508785566019)/[ins](https://www.instagram.com/p/DXV1b54k5LO/)｜[𝕏修学官方](https://x.com/dramal_abc/status/2046096604290240786)/[ins](https://www.instagram.com/p/DXV8mZ1k3f0/)
 * **260420【杂志｜双人】Retro(4/20)双人封面特辑杂志发售**{: .text-red}
@@ -46,13 +57,14 @@ permalink: /
     > **260407** [📕掌上狐猪-猪](https://xhslink.com/o/AxiWQyddLk8)/[微博](https://weibo.com/7956654733/5285117242638417)/[ins](https://www.instagram.com/p/DW00WY4Feom/) <span>咱就是说是不是可爱得太过分了……检修机你是吃得真好啊……</span>{: .text-pink}
     > **260408** [📕掌上狐猪-狐](https://xhslink.com/o/9VXD6W2bsDB)/[微博](https://weibo.com/7956654733/5285479664847891)/[ins](https://www.instagram.com/p/DW3Y8ERj3H9/)|[📕摄影师第三视角花絮](https://xhslink.com/o/7Ief5Mn9SIx) <span>检修机这个权威的脸配上害羞的回头笑+小猪即使站到沙发上伸手还是不够高简直太萌了两位……像在拍结婚典礼新人介绍</span>{: .text-pink}
     > **260409** [📕少男心事](https://xhslink.com/o/5kSCp3tnVC5)/[微博](https://weibo.com/7956654733/QA18RhwGz) <span>洸->简箭头大放送🥹对不起某个小孩实在太像暗恋家庭教师的男高了……三套look的花絮都有，肉眼可见地亲密了很多</span>{: .text-pink}
-    > **260410** [📕狐兔问候](https://xhslink.com/o/8upfY2z6eti)/[微博](https://weibo.com/7956654733/QAaznhd2X)/[ins](https://www.instagram.com/p/DW8jQzkD0WB/) <span>第四套look出现。小简你终于戴上狐耳了啊啊啊,你俩用狐尼克调情多少次了(。</span>{: .text-pink}
-    > **260411** [📕封面](https://xhslink.com/o/6mtK6yP74xU)/[微博](https://weibo.com/7956654733/5286566809305299)/[ins](https://www.instagram.com/p/DW_H2YOjyCm/)/[FCblog]*retro封面*｜[📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/) *ins的图最大*
-    > **260412** [📕尼克简和朱迪洸](http://xhslink.com/o/1NHzBlqndjV)/[ins](https://www.instagram.com/reels/DXBsK5jDwWs/) <span>萌死了很清新的小情侣</span>{: .text-pink}
-    > **260413** [📕尼克朱迪对视游戏](http://xhslink.com/o/20hi7UH2G6L) <span>检修机唱RAP有哈哈哈哈</span>{: .text-pink}
-    > **260419** [📕问答游戏](http://xhslink.com/o/4vOLmaCFpGp) <span>两人真的肉眼可见地变得熟悉亲密总是莫名其妙地笑嗯嗯嗯。两个人最近拍的照片真的很能反映出他们的性格XD小猪给狐的假借字真的绝，是从“简”同音到“汉”再到男子汉的呢！再次感叹小猪好有文化…小简拿手的料理是蛋包饭👀谁不知道蛋包饭是哪个人爱吃的👀</span>{: .text-pink} *=> 网友整理的问题清单 [𝕏](https://x.com/altjdsus__/status/2045796661126185361)*
-    > **260420** 杂志发售 [📕宣图](http://xhslink.com/o/9mW1qleKIX7)/[ins](https://www.instagram.com/p/DXWQOsQD8iR/)
-    > **260420** [📕互拍花絮](http://xhslink.com/o/8in6jwQkO9s) <span>好甜！！！</span>{: .text-pink}
+    > **260410** [📕花絮+狐兔问候](https://xhslink.com/o/8upfY2z6eti)/[微博](https://weibo.com/7956654733/QAaznhd2X)/[ins](https://www.instagram.com/p/DW8jQzkD0WB/) <span>第四套look出现。小简你终于戴上狐耳了啊啊啊,你俩用狐尼克调情多少次了(。</span>{: .text-pink}
+    > **260411** [📕封面解禁](https://xhslink.com/o/6mtK6yP74xU)/[微博](https://weibo.com/7956654733/5286566809305299)/[ins](https://www.instagram.com/p/DW_H2YOjyCm/)/[FCblog]*retro封面*｜[📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/) *ins的图最大*
+    > **260412** [📕尼克简和朱迪洸](http://xhslink.com/o/1NHzBlqndjV)/[微博](https://weibo.com/7956654733/QAtqlikkw)/[ins](https://www.instagram.com/reels/DXBsK5jDwWs/) <span>萌死了很清新的小情侣</span>{: .text-pink}
+    > **260413** [📕尼克朱迪对视游戏](http://xhslink.com/o/20hi7UH2G6L)/[微博](https://weibo.com/7956654733/QACTQfASY) <span>检修机唱RAP有哈哈哈哈</span>{: .text-pink}
+    > **260419** [📕问答游戏](http://xhslink.com/o/4vOLmaCFpGp)/[微博](https://weibo.com/7956654733/QBxpR0yyf) <span>两人真的肉眼可见地变得熟悉亲密总是莫名其妙地笑嗯嗯嗯。两个人最近拍的照片真的很能反映出他们的性格XD小猪给狐的假借字真的绝，是从“简”同音到“汉”再到男子汉的呢！再次感叹小猪好有文化…小简拿手的料理是蛋包饭👀谁不知道蛋包饭是哪个人爱吃的👀</span>{: .text-pink} *=> 网友整理的问题清单 [𝕏](https://x.com/altjdsus__/status/2045796661126185361)*
+    > **260420** 杂志发售 [📕宣图](http://xhslink.com/o/9mW1qleKIX7)/[微博](https://weibo.com/7956654733/QBGIblSeY)/[ins](https://www.instagram.com/p/DXWQOsQD8iR/)
+    > **260420** [📕互拍花絮](http://xhslink.com/o/8in6jwQkO9s)/[微博](https://weibo.com/7956654733/QBHeG47i3) <span>好甜！！！</span>{: .text-pink}
+    > **260422** [📕拍摄花絮+look介绍](http://xhslink.com/o/1Sq1SrVT86Z)/[ins](https://www.instagram.com/reel/DXb5-iqD-Py/) <span>床上打打闹闹花絮有😇特别特别美特别特别般配的狐猪……</span>{: .text-pink}
 * **260418【修学旅行｜双人】粉丝见面会in台湾**{: .text-red}
     > [𝕏情报](https://x.com/manga10_tw/status/2037471140638310839)｜[活动详情](https://world.manga10.com/blogs/eventstaiwan/shugakuryokofm2026)
     > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}｜[FCblog更新](https://kan-hideyoshi.com/member/photos/609823)
@@ -60,6 +72,8 @@ permalink: /
     > [yahoo新闻(视频)(look1)](https://news.yahoo.co.jp/articles/f9c7570f8d84ec91c48acd7c1b2c8d449b124982)/[𝕏新闻转载](https://x.com/altjdsus__/status/2045481021970514176)｜[修仲公式𝕏](https://x.com/dramal_abc/status/2045480150788456897)
     > [活动结束双人视频(look3)](https://x.com/dramal_abc/status/2045533082414145674)/[ins](https://www.instagram.com/reels/DXR2vVpEw5f/)
     > 台湾收官: [𝕏简](https://x.com/kan_hideyoshi/status/2045818486614786173)｜[𝓲简](https://www.instagram.com/p/DXT4YXogcjk/)｜小简快拍里还发了大合照和小短片｜[𝓲洸](https://www.instagram.com/p/DXUGPTTFBp5/)｜[𝕏官方大合照](https://x.com/manga10_torico/status/2045819709996622148)/[𝓲清晰版](https://www.instagram.com/p/DXT5GMngYgs/)｜[𝕏ost作者转发](https://x.com/yasu_coda/status/2045696323291361469)
+    > 漫画展签名双人花絮: [𝕏签立牌(4/23)](https://x.com/manga10_tw/status/2047148474974781544)/[ins](https://www.instagram.com/p/DXdVPJcmWa5/)｜[𝕏签色纸(4/24)](https://x.com/manga10_tw/status/2047510909657243777)/[ins](https://www.instagram.com/p/DXdVPJcmWa5/)
+    > [𝓲洸-台湾之行](https://www.instagram.com/p/DXg0q0IFB92/)
     > ⇨ 所有人repo都是：简->有趣，手很大，白;洸->可爱，可爱，可爱
     > ⇨ 小猪给小简日翻日有hhh
     > ⇨ 某人想让小猪穿那种能露出超多锁骨的露肩连衣裙23333 *=> 联动4/16小简FC直播*
@@ -415,7 +429,7 @@ permalink: /
     > **花絮照** ⇨ [𝕏扑倒练习中](https://x.com/dramal_abc/status/1995070376817336434)/[ins](https://www.instagram.com/p/DRrS3LRk5OO/)｜[𝕏教室里的两人](https://x.com/dramal_abc/status/1994801957865996501)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **切片** ⇨ []()｜[]()｜[]()｜[]()
     > **PR** ⇨ []()｜[]()｜[]()｜[]()
-* **教室公式照** [教室1(11/30)](https://x.com/dramal_abc/status/1994816122642919500/)|[教室2(11/30)](https://www.instagram.com/p/DRpfTABE2Lb/)
+* **教室公式照** [教室1(11/30)](https://x.com/dramal_abc/status/1994816122642919500/)｜[教室2(11/30)](https://www.instagram.com/p/DRpfTABE2Lb/)
 
 
 ## 2024

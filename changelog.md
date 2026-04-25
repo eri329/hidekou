@@ -7,6 +7,8 @@ layout: page
 
 *目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight), 小简微博，直播, modelpress报道, FC, manager日记, 修仲其他相关人员账号*
 
+[ 2026-04-25 ] 近期物料更新
+
 [ 2026-04-20 ] 近期物料更新
 
 [ 2026-04-19 ] 整理台湾见面会物料
