@@ -37,20 +37,34 @@ permalink: /
 ### 2026.5
 {: #may2026}
 
-* **260509~260510【杂志｜双人】Preppy6月号(5/1)海报展** ⇨ [𝕏告知(4/21)](https://x.com/preppy_magazine/status/2046529374384746792)｜[𝕏预约(4/24)](https://x.com/preppy_magazine/status/2047616545178653095)
+* **260509~260510【杂志｜双人】Preppy6月号(5/1)海报展** ⇨ [𝕏告知(4/21)](https://x.com/preppy_magazine/status/2046529374384746792)｜[𝕏预约(4/24)](https://x.com/preppy_magazine/status/2047616545178653095)｜[海报展特典(5/1)](https://x.com/preppy_magazine/status/2050153258526662911)
+* **260509【杂志】FINEBOYS 6月号(5/9)杂志发售** 简洸分别登场
+    > **260501 封面解禁** ⇨ [ins](https://www.instagram.com/p/DXy19O3jTa-/)
 * **260508【修学旅行｜双人】蓝光box发售**
     > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)
+* **260508【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)
+
+<div class="line"></div>
+
+* **260501【修学旅行｜双人】蓝光box发售一周倒计时宣传** 看起来像是3/22东京手渡会拍的 ⇨ [𝕏](https://x.com/dramal_abc/status/2050138168066814265)
 * **260501【杂志｜双人】Preppy6月号(5/1)杂志发售**
     > [𝕏应募特典小简拍立得(4/22)](https://x.com/preppy_magazine/status/2046891770701840411)
+    > [𝕏杂志发售(封面)](https://www.instagram.com/p/DXxgrEBEk7I/)
+    > [Preppy网络采访(有新图)](https://preppyweb.com/article/26576)
+    > #### 两个宝宝选衣服真是太可爱了……小简穿制服就是神造型我说累了。形容彼此的一个字洸->简:男(子汉)，简->洸:稳(重), 像太阳一样的存在。很好很好都形容在我的xp上(?)已经在杂志上约饭请务必兑现！某个人说完清水我以为他要顺着说下次三个人一起去喝酒吧，结果他话锋一转说下次要和洸大两个人一起喝，啊啦啦……两人又一起cue了修仲S2，提得这么频繁一定是已经有计划了吧!!下一个话题是台湾见面会，「あとはやはり洸大と二人で台湾行けるっていうのが楽しみですね。」这个采访某人不知道说了几次「二人」好好品……最后宣传了一下box就结束了，修仲狐猪量很高的一个采访！
+* **260501【采访】Heavenly online采访** ⇨ [𝕏](https://x.com/heavenly_pick/status/2050047561520795804)｜[𝕏樱花美日译](https://x.com/segadayo_nm/status/2050236798358667464)
+    > #### 意外地质量很高的一篇采访！两个人都说了很多之前(好像)没提过的拍摄感想！看完就觉得狐猪两个人都很用心地在诠释、自身也爱着渡会和日置这两个角色，是你们来演真是太好了……
+* **260501【修学旅行｜原作】漫画第8话上线** 高二结束日置的告白 ⇨ [𝕏](https://x.com/beluckbunko/status/2050110796529909882)
 
 ### 2026.4
 {: #apr2026}
-<div class="line"></div>
 
+* **260428【修学旅行｜双人】韩国见面会宣传视频** 4/18在台湾拍的 ⇨ [𝕏](https://x.com/p_en_kr/status/2048992351402811779)/[ins](https://www.instagram.com/reels/DXqcGpzk_uX/)
 * **260422【杂志】JUNON 6月号(4/22) 简洸分别登场**
     > [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[详情](https://www.junon-tv.jp/articles/4315)
-    > **260422~260520** 洸大便利店相卡 ⇨ [𝕏](https://x.com/eprintservice/status/2046755873972957308)｜[𝕏相卡目录](https://x.com/eriko_mp100/status/2047910501959729161)｜[𝓲相卡拍摄花絮](https://www.instagram.com/reels/DXawg7nTjMC/)
-* **260421【修学旅行｜双人】「おはよう朝日です」早间娱乐新闻出场** 台湾活动报道 ⇨ [𝕏情报](https://x.com/ohaasaofficial/status/2046170771542954199)
+    > [𝕏洸大拍摄花絮](https://x.com/junon_jp/status/2046795030250336358)/[ins](https://www.instagram.com/reels/DXawg7nTjMC/)｜[𝕏小简拍摄花絮](https://x.com/JUNON_jp/status/2047963826440544267)/[ins](https://www.instagram.com/reels/DXjIB1HTYqr/)
+    > **260422~260520** 洸大便利店相卡 ⇨ [𝕏](https://x.com/eprintservice/status/2046755873972957308)｜[𝕏相卡目录](https://x.com/eriko_mp100/status/2047910501959729161)
+* **260421【修学旅行｜双人】「おはよう朝日です」早间娱乐新闻出场** 台湾活动报道 ⇨ [𝕏情报](https://x.com/ohaasaofficial/status/2046170771542954199)｜[微博-新闻切片](https://weibo.com/tv/show/1034:5290275334193231)
 * **260420【修学旅行｜双人】韩国见面会基本信息公开** ⇨ [𝕏](https://x.com/p_en_kr/status/2046091508785566019)/[ins](https://www.instagram.com/p/DXV1b54k5LO/)｜[𝕏修学官方](https://x.com/dramal_abc/status/2046096604290240786)/[ins](https://www.instagram.com/p/DXV8mZ1k3f0/)
 * **260420【杂志｜双人】Retro(4/20)双人封面特辑杂志发售**{: .text-red}
     > **260406** [📕十指相扣宣图](https://xhslink.com/o/AZeQ7dSSuxT)/[微博](https://weibo.com/7956654733/5284754858705925)/[ins](https://www.instagram.com/p/DWyPmGNFktD/)
@@ -64,7 +78,11 @@ permalink: /
     > **260419** [📕问答游戏](http://xhslink.com/o/4vOLmaCFpGp)/[微博](https://weibo.com/7956654733/QBxpR0yyf) <span>两人真的肉眼可见地变得熟悉亲密总是莫名其妙地笑嗯嗯嗯。两个人最近拍的照片真的很能反映出他们的性格XD小猪给狐的假借字真的绝，是从“简”同音到“汉”再到男子汉的呢！再次感叹小猪好有文化…小简拿手的料理是蛋包饭👀谁不知道蛋包饭是哪个人爱吃的👀</span>{: .text-pink} *=> 网友整理的问题清单 [𝕏](https://x.com/altjdsus__/status/2045796661126185361)*
     > **260420** 杂志发售 [📕宣图](http://xhslink.com/o/9mW1qleKIX7)/[微博](https://weibo.com/7956654733/QBGIblSeY)/[ins](https://www.instagram.com/p/DXWQOsQD8iR/)
     > **260420** [📕互拍花絮](http://xhslink.com/o/8in6jwQkO9s)/[微博](https://weibo.com/7956654733/QBHeG47i3) <span>好甜！！！</span>{: .text-pink}
-    > **260422** [📕拍摄花絮+look介绍](http://xhslink.com/o/1Sq1SrVT86Z)/[ins](https://www.instagram.com/reel/DXb5-iqD-Py/) <span>床上打打闹闹花絮有😇特别特别美特别特别般配的狐猪……</span>{: .text-pink}
+    > **260421** [📕小简小红书](http://xhslink.com/o/7jpf1n36Wgl) <span>「分享一组很喜欢的照片」by小简 ^^</span>{: .text-pink}
+    > **260422** [📕拍摄花絮+look介绍](http://xhslink.com/o/1Sq1SrVT86Z)/[微博](https://weibo.com/7956654733/QC0aa7frZ)/[ins](https://www.instagram.com/reel/DXb5-iqD-Py/) <span>床上打打闹闹花絮有😇特别特别美特别特别般配的狐猪……</span>{: .text-pink}
+    > **260501** [📕你有我没有小游戏](http://xhslink.com/o/19SVLPXy33G)/[微博](https://weibo.com/7956654733/5293814568452109)
+    > **260502** [📕一起跳舞](http://xhslink.com/o/5ZeV7C6foJP)
+    > [微博-品牌方新图(5/3)](https://weibo.com/7061972932/QDBGB8t6l)
 * **260418【修学旅行｜双人】粉丝见面会in台湾**{: .text-red}
     > [𝕏情报](https://x.com/manga10_tw/status/2037471140638310839)｜[活动详情](https://world.manga10.com/blogs/eventstaiwan/shugakuryokofm2026)
     > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}｜[FCblog更新](https://kan-hideyoshi.com/member/photos/609823)
@@ -407,13 +425,13 @@ permalink: /
 {: #oct2025}
 
 * **251030【杂志｜双人】S Cawaii!特別編集　Pair 尊い二人。(10/30) CP特辑收录**
-    > **251113 应募特典拍立得** ⇨ [𝕏](https://x.com/mag_scawaii/status/1988909709680894410)
-    > **251106 物料图** ⇨ [𝕏](https://x.com/mag_scawaii/status/1986373064217727274)
-    > **251029 狐猪宣传视频** ⇨ [𝕏](https://x.com/mag_scawaii/status/1983474057963024391)
-    > #### 念完开场后同步对视是要甜死谁…中间自由发挥的整整20秒检修机就瞟了一眼镜头……
-    > **251015 狐猪版特典小卡解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/1978404037612744825)
-    > **250928 登场情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/1972239991708512561)
     > **250913 杂志情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/1966804093688746442) *但是此时还没有宣狐猪*
+    > **250928 登场情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/1972239991708512561)
+    > **251015 狐猪版特典小卡解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/1978404037612744825)
+    > **251029 狐猪宣传视频** ⇨ [𝕏](https://x.com/mag_scawaii/status/1983474057963024391)/[ins](https://www.instagram.com/reels/DQY5mjUifT0/)
+    > #### 念完开场后同步对视是要甜死谁…中间自由发挥的整整20秒检修机就瞟了一眼镜头……
+    > **251106 物料图** ⇨ [𝕏](https://x.com/mag_scawaii/status/1986373064217727274)/[ins](https://www.instagram.com/p/DQtgDIjCU_A/)
+    > **251113 应募特典拍立得** ⇨ [𝕏](https://x.com/mag_scawaii/status/1988909709680894410)
     > #### 狐猪特典版再入荷了好几次(姑且好像没看到别的版本再入荷): 12/1, 12/10, 12/12, 12/19再贩(堂堂重版出来!), 26年2/10再再贩。结合一开始没宣狐猪就很有趣XD
 * **251025【双人】Emomiu藤本洸大×簡秀吉采访** ⇨ [采访](https://emomiu.jp/news/244577/)｜[𝓲宣传视频](https://www.instagram.com/reels/DRo7oSLgbpz/)
     > 2shot 拍立得萌萌萌!是一个内容很丰富的采访! 小简原来从这里开始就说喜欢海鲜了，小简喜欢牡蛎小猪喜欢虾，但是小简居然还喜欢吃皮蛋👀 
