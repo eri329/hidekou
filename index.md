@@ -30,24 +30,48 @@ permalink: /
 
 ### 2026.6
 {: #jun2026}
+
+* **260620【修学旅行｜原作】修学旅行漫画版第1卷发售**
 * **260606【修学旅行｜双人】韩国见面会**
     > 13:00/18:00 Donghae Culture & Arts Center(光云大学东海文化艺术馆)
-    > **260422 活动详情+购票** ⇨ [𝕏修仲官推](https://x.com/dramal_abc/status/2046821045337014642)/[𝕏](https://x.com/p_en_kr/status/2046842839217353190)/[ins](https://www.instagram.com/p/DXbLRhplGYD/)
+    > **260413 定档6月6日** ⇨ [𝕏](https://x.com/p_en_kr/status/2043554933086326826)
+    > **260420 韩国见面会基本信息公开** ⇨ [𝕏](https://x.com/p_en_kr/status/2046091508785566019)/[ins](https://www.instagram.com/p/DXV1b54k5LO/)｜[𝕏修学官方](https://x.com/dramal_abc/status/2046096604290240786)/[ins](https://www.instagram.com/p/DXV8mZ1k3f0/)
+    > **260422 活动详情+购票链接** ⇨ [𝕏修仲官推](https://x.com/dramal_abc/status/2046821045337014642)/[𝕏](https://x.com/p_en_kr/status/2046842839217353190)/[ins](https://www.instagram.com/p/DXbLRhplGYD/)
+    > **260430 20:00~ 第一轮VVIP开票**
+    > **260507 20:00~ 第二轮VIP+普通席yes24开票**
+    > **260511 线上配信+视讯抽选开票** 平台是hellolive ⇨ [𝕏](https://x.com/hellolivetv/status/2053762044675956865)/[修仲官方X](https://x.com/dramal_abc/status/2055243136277119390)
+    > **260515 活动流程补充说明** ⇨ [𝕏](https://x.com/p_en_kr/status/2055154202469613665)
+    > **260515 粉丝应援征集** ⇨ [𝕏-爱心照片征集](https://x.com/p_en_kr/status/2055152367058751662)｜[𝕏-vvip读信征集(有一张新图)](https://x.com/p_en_kr/status/2055151367292076107)
 
 ### 2026.5
 {: #may2026}
 
-* **260509~260510【杂志｜双人】Preppy6月号(5/1)海报展** ⇨ [𝕏告知(4/21)](https://x.com/preppy_magazine/status/2046529374384746792)｜[𝕏预约(4/24)](https://x.com/preppy_magazine/status/2047616545178653095)｜[海报展特典(5/1)](https://x.com/preppy_magazine/status/2050153258526662911)
+<div class="line"></div>
+
+* **250515【杂志】TVガイドdan vol.60(6/2) 简洸大分别登场** 表纸+卷头特辑:简秀吉, 今、気になる男子を完全独占撮り下ろし: 池田匡志×草川直弥×藤本洸大 ⇨ [𝕏](https://x.com/TVguidePERSON/status/2055121275002171693)｜[详情](https://zasshi.tv/products/58788/)｜[𝕏简秀吉特典版](https://x.com/TVguidePERSON/status/2055123507663827029)｜[𝕏洸大特典版](https://x.com/TVguidePERSON/status/2055124746052993051)
+* **260515 [FINEBOYS增刊 Share4(5/29)] 简洸分别登场** 全名[FINEBOYS+plus Share vol.4];小简12P, 主题是足球^^; 洸大也是12P ⇨ [𝕏小简登场介绍](https://x.com/FINEBOYS_JP/status/2055105889401762003)｜[𝕏洸大登场介绍](https://x.com/FINEBOYS_JP/status/2055151185766526989)｜[𝕏双人介绍](https://x.com/FINEBOYS_JP/status/2055196484241437041) 有点茶的官博……都分别上杂志了还在蹭小修学……有没有本事让他们双人一起上来我看看 
+* **260515【修学旅行｜原作】漫画版发售告知+animate特典** 特典有电视剧剧照立牌 ⇨ [𝕏](https://x.com/BeLuckbunko/status/2055095765207486748)
+* **260514【修学旅行】蓝光box Oricon周榜2位** ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
 * **260509【杂志】FINEBOYS 6月号(5/9)杂志发售** 简洸分别登场
-    > **260501 封面解禁** ⇨ [ins](https://www.instagram.com/p/DXy19O3jTa-/)
+    > **260501 封面公开** ⇨ [𝕏](https://x.com/hinode_pub/status/2050175903460954559)/[ins](https://www.instagram.com/p/DXy19O3jTa-/)
+    > **260509 小简X图透** 小简的部分有7P ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2052950666172346742)
+* **260509~260510【杂志｜双人】Preppy6月号(5/1)海报展** ⇨ [𝕏告知(4/21)](https://x.com/preppy_magazine/status/2046529374384746792)｜[𝕏预约(4/24)](https://x.com/preppy_magazine/status/2047616545178653095)｜[海报展特典(5/1)](https://x.com/preppy_magazine/status/2050153258526662911)
 * **260508【修学旅行｜双人】蓝光box发售**
     > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)
 * **260508【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)
-
-<div class="line"></div>
-
-* **260501【修学旅行｜双人】蓝光box发售一周倒计时宣传** 看起来像是3/22东京手渡会拍的 ⇨ [𝕏](https://x.com/dramal_abc/status/2050138168066814265)
-* **260501【杂志｜双人】Preppy6月号(5/1)杂志发售**
+* **260506【修学旅行｜双人】台湾见面会狐猪合照** 终于被官方(作为box的宣传一环)放出来了！⇨ [𝕏](https://x.com/dramal_abc/status/2052015206650515560)
+* **260505 修学旅行｜双人】韩国见面会第二轮yes24链接+小简宣传** ⇨ [𝕏](https://x.com/p_en_kr/status/2051527761903395165)
+* **260501~260508【修学旅行】蓝光box官推宣传**
+    > **260501 狐猪预制小视频 - 倒计时1周+推荐box看点** 看起来像是3/22东京手渡会拍的 ⇨ [𝕏](https://x.com/dramal_abc/status/2050138168066814265)/[ins](https://www.instagram.com/reel/DXykyRdBCCW/)
+    > **260505 推荐观看顺序** 最终回reaction -> 花絮 -> 上映会 ⇨ [𝕏](https://x.com/dramal_abc/status/2051633014556238206)
+    > **260505 狐猪预制小视频 - 最喜欢的回数+背后写字** ⇨ [𝕏](https://x.com/dramal_abc/status/2051587705591791677)/[ins](https://www.instagram.com/reel/DX84AfShuSR/) <span>背后写字又甜又涩的……</span>{: .text-pink}
+    > **260506 狐猪预制小视频 - 立牌贴贴夹子音宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/2051950098180120827)/[ins](https://www.instagram.com/reel/DX_c0uOBNPo/) <span>有点太可爱了吧!!</span>{: .text-pink}
+    > **260507 狐猪预制小视频 - 明日发售!自拍小情侣+手相** ⇨ [𝕏](https://x.com/dramal_abc/status/2052312482547724393)/[ins](https://www.instagram.com/reel/DYCBo3chLZm/) <span>能说吗感觉拍得比staff的还要好，staff有时候还会把小猪拍到画面外！</span>{: .text-pink}
+    > **260507 狐猪的box先行开封小视频** ⇨ [𝕏](https://x.com/dramal_abc/status/2052364128640233904)/[ins](https://www.instagram.com/reel/DYCZr0OCS88/) <span>这一支是在台湾录的了!(毕竟碟做得没有那么快233)</span>{: .text-pink}
+    > **260508 本日发售！特典时间小quiz** 174分钟 ⇨ [𝕏](https://x.com/dramal_abc/status/2052584281831297175)/[ins](https://www.instagram.com/reel/DYD9LR6hy6h/)
+    > **260508 Oricon当日1位** ⇨ [𝕏](https://x.com/oricon/status/2052690025721299295)
+    > **260508 亲妈发推祝贺** ⇨ [𝕏](https://x.com/RcNfe37/status/2053461049375105455)
+* **260501【杂志｜双人】Preppy6月号(5/1)杂志发售**{: .text-red}
     > [𝕏应募特典小简拍立得(4/22)](https://x.com/preppy_magazine/status/2046891770701840411)
     > [𝕏杂志发售(封面)](https://www.instagram.com/p/DXxgrEBEk7I/)
     > [Preppy网络采访(有新图)](https://preppyweb.com/article/26576)
@@ -65,7 +89,6 @@ permalink: /
     > [𝕏洸大拍摄花絮](https://x.com/junon_jp/status/2046795030250336358)/[ins](https://www.instagram.com/reels/DXawg7nTjMC/)｜[𝕏小简拍摄花絮](https://x.com/JUNON_jp/status/2047963826440544267)/[ins](https://www.instagram.com/reels/DXjIB1HTYqr/)
     > **260422~260520** 洸大便利店相卡 ⇨ [𝕏](https://x.com/eprintservice/status/2046755873972957308)｜[𝕏相卡目录](https://x.com/eriko_mp100/status/2047910501959729161)
 * **260421【修学旅行｜双人】「おはよう朝日です」早间娱乐新闻出场** 台湾活动报道 ⇨ [𝕏情报](https://x.com/ohaasaofficial/status/2046170771542954199)｜[微博-新闻切片](https://weibo.com/tv/show/1034:5290275334193231)
-* **260420【修学旅行｜双人】韩国见面会基本信息公开** ⇨ [𝕏](https://x.com/p_en_kr/status/2046091508785566019)/[ins](https://www.instagram.com/p/DXV1b54k5LO/)｜[𝕏修学官方](https://x.com/dramal_abc/status/2046096604290240786)/[ins](https://www.instagram.com/p/DXV8mZ1k3f0/)
 * **260420【杂志｜双人】Retro(4/20)双人封面特辑杂志发售**{: .text-red}
     > **260406** [📕十指相扣宣图](https://xhslink.com/o/AZeQ7dSSuxT)/[微博](https://weibo.com/7956654733/5284754858705925)/[ins](https://www.instagram.com/p/DWyPmGNFktD/)
     > **260407** [📕掌上狐猪-猪](https://xhslink.com/o/AxiWQyddLk8)/[微博](https://weibo.com/7956654733/5285117242638417)/[ins](https://www.instagram.com/p/DW00WY4Feom/) <span>咱就是说是不是可爱得太过分了……检修机你是吃得真好啊……</span>{: .text-pink}
@@ -82,7 +105,7 @@ permalink: /
     > **260422** [📕拍摄花絮+look介绍](http://xhslink.com/o/1Sq1SrVT86Z)/[微博](https://weibo.com/7956654733/QC0aa7frZ)/[ins](https://www.instagram.com/reel/DXb5-iqD-Py/) <span>床上打打闹闹花絮有😇特别特别美特别特别般配的狐猪……</span>{: .text-pink}
     > **260501** [📕你有我没有小游戏](http://xhslink.com/o/19SVLPXy33G)/[微博](https://weibo.com/7956654733/5293814568452109)
     > **260502** [📕一起跳舞](http://xhslink.com/o/5ZeV7C6foJP)
-    > [微博-品牌方新图(5/3)](https://weibo.com/7061972932/QDBGB8t6l)
+    > **260503** [微博-品牌方新图](https://weibo.com/7061972932/QDBGB8t6l)
 * **260418【修学旅行｜双人】粉丝见面会in台湾**{: .text-red}
     > [𝕏情报](https://x.com/manga10_tw/status/2037471140638310839)｜[活动详情](https://world.manga10.com/blogs/eventstaiwan/shugakuryokofm2026)
     > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}｜[FCblog更新](https://kan-hideyoshi.com/member/photos/609823)

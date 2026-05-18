@@ -16,13 +16,17 @@ permalink: /solo/
 ### 2026
 {: #kan2026}
 
-* **260530 香港见面会**
+* **260530 香港见面会**{: .text-red}
     > **260422 情报解禁** ⇨ [📕简](http://xhslink.com/o/6NpHRiEIpm8)｜[微博-简+详情](https://weibo.com/7984735683/5290209986223512)｜[📕主办方](http://xhslink.com/o/8M6jkSdQIjl)/[ins](https://www.instagram.com/p/DXY7sjGjZjP/)｜[📕小简宣传视频](http://xhslink.com/o/6kGWTCGGdyd)/[ins](https://www.instagram.com/p/DXbl3hLEUo-/)/[微博](https://weibo.com/7984735683/QC1Lavkc4)
     > **260424 开票** ⇨ [📕简](http://xhslink.com/o/57c4Vg5Jlrh)/[ins](https://www.instagram.com/p/DXgqvsEAcsH/)
     > **260425~260247 造型师发图** ⇨ [𝓲-黑](https://www.instagram.com/p/DXjtidxk5Kd/?)｜[𝓲-白](https://www.instagram.com/p/DXolimsE-_s/)｜[𝓲-摄影师发图](https://www.instagram.com/p/DXonXobEXwy/)
-* **260502 宣传周边T的春游** ⇨ [𝓲简](https://www.instagram.com/p/DX1aqPtgQdR/)
-* **260429 5/9FC2周年见面会周边公开** online受注: 5月9日21:00〜5月15日23:59 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2049462031343079493)
-* **260423 FINEBOYS初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387)
+* **260509 FC2周年见面会**{: .text-red}
+    > 粉丝大合照 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2053075356140347593)
+    > FC内容: [视频回顾(5/9)](https://kan-hideyoshi.com/movies/128056)｜[文字+对镜自拍(5/9)](https://kan-hideyoshi.com/member/photos/612140)｜[图1张(5/10)](https://kan-hideyoshi.com/member/photos/612506)｜[官方照片第一部(5/12)](https://kan-hideyoshi.com/group/39630)｜[官方照片第二部(5/13)](https://kan-hideyoshi.com/group/39638)
+* **260505 儿童节发小小简照片** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2051636837345800346)
+* **260502 宣传周边T的春游** ⇨ [𝓲简](https://www.instagram.com/p/DX1aqPtgQdR/)｜[📕简(和ins图不一样)](http://xhslink.com/o/1zSWM5n6PW0)
+* **260429 5/9FC2周年见面会周边公开** online受注: 5月9日21:00〜5月15日23:59 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2049462031343079493)/[📕简](http://xhslink.com/o/8sPrTmDby9p)
+* **260423 FINEBOYS初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387) => 详情移步时间线因为小猪也上了这一本XD
 * **260419 FC更新tiktok小视频** ⇨ [FC](https://kan-hideyoshi.com/movies/127454)
 * **260418 5/9直播配信门票开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简(4/15)](https://x.com/kan_hideyoshi/status/2044340416305328246)/[📕简-5/9直播票(4/15)](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)
 * **260416 21:00～22:00 FC直播** ⇨ [📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
@@ -89,21 +93,23 @@ permalink: /solo/
 
 * **260604 [S Cawaii!特別編集　マブ ～永遠の絆～(6/4)]发售**
     > **260501 解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2050062656879706278)｜[𝕏特典小卡(无图)](https://x.com/mag_scawaii/status/2050062944260788453)
+* **260511 [Share]第4话登场** ⇨ [ins预告(5/5)](https://www.instagram.com/p/DX7E8Otjka9/)｜[ins照片一张(5/7)](https://www.instagram.com/p/DYCPRcJk2Kw/)
 * **260508 电影『未来』上映** 布施晃 役 ⇨ [官网](https://mirai-movie.jp/)
     > **260428 试映会** ⇨ [𝕏](https://x.com/RKB_EVENT/status/2041410645808275915)
-    > **260430 一个很小的有洸大出现的预告片段** ⇨ [𝕏](https://x.com/eiga_mirai/status/2049790882183037041)
+    > **260430 一个很短的预告片段** ⇨ [𝕏](https://x.com/eiga_mirai/status/2049790882183037041)
 * **260502 [日経エンタテインメント！6月号(5/2)]杂志发售** interview ⇨ [𝕏](https://x.com/nikkei_ent/status/2047133398528057620)｜[𝕏图透1张](https://x.com/nikkei_ent/status/2050398654159343767)
 * **260501【FC】19:00~ TopCoat五一企划 大西利空×藤本洸大活动花絮公开** ⇨ [FC页面](https://sp.tcland.jp/contents/1069937)
 * **260428 [TV Life 9号(4/28)]杂志发售** #今旬コレクション ⇨ [𝕏](https://x.com/tv_life/status/2047504917938753643)｜[详情](https://www.tvlife.jp/latest/787489)
 * **260427 [DIGVII4月号(4/27)]杂志发售** ⇨ [𝕏](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
-    > **260428** 图透 ⇨ [ins](https://www.instagram.com/p/DXqOsVKk8Jb/)
+    > **260428** 化妆师图透 ⇨ [ins](https://www.instagram.com/p/DXqOsVKk8Jb/)
+    > **260504** 摄影师图透2 ⇨ [ins](https://www.instagram.com/p/DX6ixNUkbuj/)
 * **260421 [Nailon ISSUE 03(4/21)] 杂志发售** W封面&内页16P＆特別附录
     > **260421** 杂志发售 ⇨ [杂志介绍](https://www.nylon.jp/nailon03_KODAI)｜[𝕏双封面](https://x.com/nailonmagazine/status/2046429214421786730)｜[𝕏应募特典拍立得](https://x.com/nailonmagazine/status/2046531136176918823)
     > **260415** 封底解禁 ⇨ [𝕏](https://x.com/nailonmagazine/status/2044340243621724163)/[ins](https://www.instagram.com/p/DXJYG96Evba/)
     > **260417** 特别附录解禁 ⇨ [𝕏](https://x.com/nailonmagazine/status/2045095709792493814)
     > **260421~260423** NAILON特別展示＆販売3日限定举办 ⇨ 特典小卡:[𝕏](https://x.com/nailonmagazine/status/2044612242482827639)｜[ins](https://www.instagram.com/p/DXOsL5ckmZ9/)
     > **260424** 拍摄花絮视频 ⇨ [𝕏](https://x.com/nailonmagazine/status/2047618089131639005)/[ins](https://www.instagram.com/p/DXgxR_7Es0Q/)
-    > **260430/260502** ins拼图 ⇨ [𝓲1](https://www.instagram.com/p/DXwHeCCkrPR/), [𝓲2](https://www.instagram.com/p/DXwIAx_Eh7x/)｜[𝓲3](https://www.instagram.com/p/DX1RpiMEv-c/), [𝓲4](https://www.instagram.com/p/DX1SPTrEqRS/)
+    > **260430/260502/260509** ins拼图 ⇨ [𝓲1](https://www.instagram.com/p/DXwHeCCkrPR/), [𝓲2](https://www.instagram.com/p/DXwIAx_Eh7x/)｜[𝓲3](https://www.instagram.com/p/DX1RpiMEv-c/), [𝓲4](https://www.instagram.com/p/DX1SPTrEqRS/)｜[𝓲5](https://www.instagram.com/p/DYHU6sGksv7/), [𝓲6](https://www.instagram.com/p/DYHVbeykpEC/)
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
     > **260327 加藤导演对小猪的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)
     > **260407 赤城神社祈願+记者见面会**
