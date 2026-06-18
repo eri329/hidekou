@@ -7,6 +7,8 @@ layout: page
 
 *目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*
 
+[ 2026-06-17 ] 站长韩国归来！时间线布局改版中。
+
 [2026-05-17~ ] 近期物料更新（上）
 
 [ 2026-05-03 ] 近期物料更新

@@ -37,6 +37,9 @@ permalink: /drama/
 * [漫画展周边](https://x.com/manga10_torico/status/2054125880772018276)
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
+## 修学旅行销量
+* **BD box**: 初动6101，次周累计6400，年度日腐box销量亚军 ⇨ [BOX销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
+
 ## 修学旅行榜单排行&受赏
 * 260514 蓝光box Oricon蓝光周榜2位 ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
 * 260430 ModelPress相遇名场面排行榜5位(第7话) ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
