@@ -38,7 +38,8 @@ permalink: /drama/
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
 ## 修学旅行音乐
-* **260107 官方OST by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595?ADTAG=h5_share_album)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
+* **260107 官方OST　by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595?ADTAG=h5_share_album&redirecttag=mn.redirect.custom&mnst=1.69)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
+> **「ドラマ「修学旅行で仲良くないグループに入りました」オリジナル・サウンドトラック」**
 > 1. 4+1のPrologue
 > 2. 修学旅行で仲良くないグループに入りました -Main Theme-
 > 3. 朝陽さす優しさ
