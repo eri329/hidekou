@@ -19,71 +19,76 @@ permalink: /solo/
 * **260530 香港见面会**{: .text-red}
     > **260422 情报解禁** ⇨ [📕简](http://xhslink.com/o/6NpHRiEIpm8)｜[微博-简+详情](https://weibo.com/7984735683/5290209986223512)｜[📕主办方](http://xhslink.com/o/8M6jkSdQIjl)/[ins](https://www.instagram.com/p/DXY7sjGjZjP/)｜[📕小简宣传视频](http://xhslink.com/o/6kGWTCGGdyd)/[ins](https://www.instagram.com/p/DXbl3hLEUo-/)/[微博](https://weibo.com/7984735683/QC1Lavkc4)
     > **260424 开票** ⇨ [📕简](http://xhslink.com/o/57c4Vg5Jlrh)/[ins](https://www.instagram.com/p/DXgqvsEAcsH/)
-    > **260425~260247 造型师发图** ⇨ [𝓲-黑](https://www.instagram.com/p/DXjtidxk5Kd/?)｜[𝓲-白](https://www.instagram.com/p/DXolimsE-_s/)｜[𝓲-摄影师发图](https://www.instagram.com/p/DXonXobEXwy/)
-* **260509 FC2周年见面会**{: .text-red}
-    > 粉丝大合照 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2053075356140347593)
-    > FC内容: [视频回顾(5/9)](https://kan-hideyoshi.com/movies/128056)｜[文字+对镜自拍(5/9)](https://kan-hideyoshi.com/member/photos/612140)｜[图1张(5/10)](https://kan-hideyoshi.com/member/photos/612506)｜[官方照片第一部(5/12)](https://kan-hideyoshi.com/group/39630)｜[官方照片第二部(5/13)](https://kan-hideyoshi.com/group/39638)
+    > **260425~260427 造型师发图香港见面会周边图造型** ⇨ [𝓲-黑](https://www.instagram.com/p/DXjtidxk5Kd/?)｜[𝓲-白](https://www.instagram.com/p/DXolimsE-_s/)｜[𝓲-摄影师发图](https://www.instagram.com/p/DXonXobEXwy/)
+* **260509 FC2周年见面会 FM5.9**{: .text-red}
+    > **260314 FM3.14中告知本次见面会**
+    > **260415 FM5.9直播配信票将于4/18开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2044340416305328246)/[📕简](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)
+    > **260429 见面会周边公开** online受注: 5月9日21:00〜5月15日23:59 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2049462031343079493)/[📕简](http://xhslink.com/o/8sPrTmDby9p)
+    > **260502 宣传FM5.9周边T的春游** ⇨ [𝓲简](https://www.instagram.com/p/DX1aqPtgQdR/)｜[📕简(和ins图不一样)](http://xhslink.com/o/1zSWM5n6PW0)
+    > **260509 粉丝大合照** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2053075356140347593)
+    > **见面会物料** ⇨ [视频回顾](https://kan-hideyoshi.com/movies/128056)｜[文字+对镜自拍](https://kan-hideyoshi.com/member/photos/612140)｜[图1张(5/10)](https://kan-hideyoshi.com/member/photos/612506)｜[官方照片第一部(5/12)](https://kan-hideyoshi.com/group/39630)｜[官方照片第二部(5/13)](https://kan-hideyoshi.com/group/39638)
 * **260505 儿童节发小小简照片** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2051636837345800346)
-* **260502 宣传周边T的春游** ⇨ [𝓲简](https://www.instagram.com/p/DX1aqPtgQdR/)｜[📕简(和ins图不一样)](http://xhslink.com/o/1zSWM5n6PW0)
-* **260429 5/9FC2周年见面会周边公开** online受注: 5月9日21:00〜5月15日23:59 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2049462031343079493)/[📕简](http://xhslink.com/o/8sPrTmDby9p)
-* **260423 FINEBOYS初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387) => 详情移步时间线因为小猪也上了这一本XD
+
+---
+* **260423《FINEBOYS》初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387) => 详情移步时间线因为小猪也上了这一本XD
 * **260419 FC更新tiktok小视频** ⇨ [FC](https://kan-hideyoshi.com/movies/127454)
-* **260418 5/9直播配信门票开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简(4/15)](https://x.com/kan_hideyoshi/status/2044340416305328246)/[📕简-5/9直播票(4/15)](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)
 * **260416 21:00～22:00 FC直播** ⇨ [📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
-* **260413 小简开设小红书账号！** ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址(4/14)](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)
-* **260413 小简宣布加入新事务所MR8** 恭喜!!官网资料很齐全宣传照超级帅! ⇨ [官网](https://mr8.jp/talent/簡秀吉/)｜[𝕏简](https://x.com/kan_hideyoshi/status/2043615442208714846)｜[𝓲简](https://www.instagram.com/p/DXEOgKmAQXo/)｜[小简微博](https://weibo.com/7984735683/5287287484318292)｜[𝕏MR8](https://x.com/official_mr8/status/2043572899869753512)｜[𝓲MR8](https://www.instagram.com/p/DXD7TuDk20e/)｜[Oricon新闻](https://www.oricon.co.jp/news/2448553/full/)
+* **260413 小简开设小红书账号！**{: .text-red} ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址(4/14)](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)
+* **260413 小简宣布加入新事务所MR8**{: .text-red} 恭喜!!官网资料很齐全宣传照超级帅! ⇨ [官网](https://mr8.jp/talent/簡秀吉/)｜[𝕏简](https://x.com/kan_hideyoshi/status/2043615442208714846)｜[𝓲简](https://www.instagram.com/p/DXEOgKmAQXo/)｜[小简微博](https://weibo.com/7984735683/5287287484318292)｜[𝕏MR8](https://x.com/official_mr8/status/2043572899869753512)｜[𝓲MR8](https://www.instagram.com/p/DXD7TuDk20e/)｜[Oricon新闻](https://www.oricon.co.jp/news/2448553/full/)
     > **260417 宣传照拍摄花絮** [FCblog](https://kan-hideyoshi.com/movies/127412)｜[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
-* **260401 [Preppy5月号(4/1)]杂志发售 & 海报展告知**{: .text-red}
-    > [文字采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
+* **260401《Preppy》5月号(4/1) 杂志发售 & 海报展告知**{: .text-red}
+    > **260218 情报解禁** 封面＆16P ３LOOK ⇨ [𝕏](https://x.com/preppy_magazine/status/2023958811040502198)
+    > **260227 封面解禁** 樱花粉小简太美了！⇨ [𝕏](https://x.com/preppy_magazine/status/2027307721079615656)｜[𝕏简](https://x.com/kan_hideyoshi/status/2027307750846591088)｜[𝓲简](https://www.instagram.com/p/DVQWq7wATbY/)
+    > **260303 预约特典** ⇨ [𝕏日亚特典](https://x.com/preppy_magazine/status/2028757275197026603)｜[𝕏heritage特典](https://x.com/preppy_magazine/status/2028757279659692532)
+    > **260304《Preppy》5月号(4/1) 宣传视频1 LOOK PINK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029134769234014703)
+    > **260306《Preppy》5月号(4/1) 宣传视频2 LOOK BLACK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029859539722371361)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2029861175610200232)｜[𝓲简(照片)](https://www.instagram.com/p/DVifz6UgSqE/)
+    > **260309《Preppy》5月号(4/1) 宣传视频3 LOOK RED** ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲简(照片)](https://www.instagram.com/p/DVqOxLtAd3q/)
+    > **260401 杂志发售** [联动采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
     > 会自己做饭、控制饮食、吃玄米和优质脂肪的超绝自律贤惠的小简。
     > 春日歌单：《春泥棒》《夢追いベンガル》《ハルコイ》
     > 给新社会人推荐的日剧《同期のサクラ》
     > 喜欢看的油管搞笑频道：ジャルジャルアイランド
     > [𝕏海报展告知](https://x.com/preppy_magazine/status/2039281619069247671): 4/18~4/19
     > **260403 海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
-    > **260409 拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
+    > **260409 BTS拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
     > **260418 海报展布置** ⇨ [𝕏](https://x.com/preppy_magazine/status/2045317639971525014)｜[𝕏视频](https://x.com/preppy_magazine/status/2045474926463737942)
-* **260326 公园夜游** ⇨ [𝓲简](https://www.instagram.com/p/DWWKZqkAcnX/) 可能是存货
+
+---
+* **260326 公园夜游** ⇨ [𝓲简](https://www.instagram.com/p/DWWKZqkAcnX/)
 * **260314 簡秀吉FM3.14 in WhiteDay**{: .text-red}
-    > [𝓲简](https://www.instagram.com/p/DV5p_dXgRfH/)
-    > **Kan Hideyoshi FC 2nd Anniversary Event宣布举行** 2026.5.9 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2032795150213361728)｜[𝓲简](https://www.instagram.com/p/DV3Vn0kk78_/)
-    > **260315 小简的感谢推** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2033120587661639877)
-    > **260124 FM全三场配信决定！** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2015030271628984688)｜[𝕏简-购票(1/24)](https://x.com/kan_hideyoshi/status/2015030692657365138) 检修机我只能说你是个天使!!
-    > 周边通贩开始 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2032788930429648988)
-* **260309 [Preppy5月号(4/1)]宣传视频3 LOOK RED** ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲简(照片)](https://www.instagram.com/p/DVqOxLtAd3q/)
-* **260306 [Preppy5月号(4/1)]宣传视频2 LOOK BLACK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029859539722371361)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2029861175610200232)｜[𝓲简(照片)](https://www.instagram.com/p/DVifz6UgSqE/)
-* **260304 [Preppy5月号(4/1)]宣传视频1 LOOK PINK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029134769234014703)
-* **260303 [Preppy5月号(4/1)]预约特典** ⇨ [𝕏日亚特典](https://x.com/preppy_magazine/status/2028757275197026603)｜[𝕏heritage特典](https://x.com/preppy_magazine/status/2028757279659692532)
-* **260227 [Preppy5月号(4/1)]封面解禁** 樱花粉小简太美了！⇨ [𝕏](https://x.com/preppy_magazine/status/2027307721079615656)｜[𝕏简](https://x.com/kan_hideyoshi/status/2027307750846591088)｜[𝓲简](https://www.instagram.com/p/DVQWq7wATbY/)
-* **260218 [Preppy5月号(4/1)]情报解禁** 封面＆16P ３LOOK ⇨ [𝕏](https://x.com/preppy_magazine/status/2023958811040502198)
-* **260213 [Men's Preppy3月号(1/30)]特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2022143706569314607)
+    > **251217 3.14FanMeeting开催决定** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2001220675382730803)｜[𝓲简](https://www.instagram.com/p/DSW_ZZZAbWk/)
+    > **260124 3.14FM全三场配信决定！** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2015030271628984688)｜[𝕏简-购票](https://x.com/kan_hideyoshi/status/2015030692657365138)
+    > **260314 告知** Kan Hideyoshi FC 2nd Anniversary Event宣布举行 @2026.5.9 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2032795150213361728)｜[𝓲简](https://www.instagram.com/p/DV3Vn0kk78_/)
+    > **260315 小简的感谢推** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2033120587661639877)｜[𝓲简](https://www.instagram.com/p/DV5p_dXgRfH/)
+
+----
+* **260213《Men's Preppy》3月号(1/30) 特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2022143706569314607)
 * **260209~260302 舞台剧『ピーターとアリス』公演**
-    > [𝕏简(3/2)](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲简(3/2)](https://www.instagram.com/p/DVYRSt1gR4O/)
-    > **260214 11:15～11:45am 舞台剧相关ins直播** with青木柚, 佐藤寛太
-    > [𝕏简初日推(2/10)](https://x.com/kan_hideyoshi/status/2021168947534463070)｜[𝓲简(2/10)](https://www.instagram.com/p/DUkvERzAaGJ/)
-    > 相关宣传: [𝕏(2/22)](https://x.com/peteralice2026/status/2025514631612240023)｜[𝕏小简宣传视频(2/7)](https://x.com/peteralice2026/status/2019969375659565455)
-    > [Preppy编辑部Repo(2/20)](https://preppyweb.com/article/18467)
-    > [角色介绍1](https://x.com/peteralice2026/status/2017077813770178656)｜[角色介绍2](https://x.com/peteralice2026/status/2017160875648471305)
     > 東京公演／東京芸術劇場 プレイハウス 2026年2月9日（月）～2月23日（月・祝）
     > 大阪公演 ／梅田芸術劇場シアター・ドラマシティ 2026年2月28日（土）～3月2日（月）
+    > [角色介绍1](https://x.com/peteralice2026/status/2017077813770178656)｜[角色介绍2](https://x.com/peteralice2026/status/2017160875648471305)
+    > [𝕏简初日推(2/10)](https://x.com/kan_hideyoshi/status/2021168947534463070)｜[𝓲简(2/10)](https://www.instagram.com/p/DUkvERzAaGJ/)
+    > **260214 11:15～11:45am 舞台剧相关ins直播** with青木柚, 佐藤寛太
+    > [Preppy编辑部Repo(2/20)](https://preppyweb.com/article/18467)
+    > 相关宣传: [𝕏(2/22)](https://x.com/peteralice2026/status/2025514631612240023)｜[𝕏小简宣传视频(2/7)](https://x.com/peteralice2026/status/2019969375659565455)
+    > [𝕏简(3/2)](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲简(3/2)](https://www.instagram.com/p/DVYRSt1gR4O/)
 * **260201 三天王聚会** 小简、步汰、海李 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2017922007124652543)｜[𝓲简](https://www.instagram.com/p/DUNqivpgTpE/)
-* **260130 [Men's Preppy3月号(1/30)]杂志发售+特别采访**
-    > [𝕏官博](https://x.com/MensPREPPY/status/2017077812331762041)｜[𝕏简](https://x.com/kan_hideyoshi/status/2017191401327571231)｜[𝓲简](https://www.instagram.com/p/DUIeSTuAS9F/) 戴眼镜的小简有
-    > 其他物料: [𝕏(3/2)](https://x.com/MensPREPPY/status/2028334487172698393)｜[𝕏(2/21)](https://x.com/MensPREPPY/status/2025042809640595708)｜[𝕏(2/9)](https://x.com/MensPREPPY/status/2020694148496634272)
-    > [采访](https://preppyweb.com/article/13642) 生活习惯很自律的小简，最近喜欢高尔夫(只是想打)、买绿植、陶艺、逛家居店，很i一个人
-* **260127 [awesome! Plus Vol.45(1/27)]杂志发售** 简秀吉xKyle对谈 [𝕏宣传视频](https://x.com/BP25th_awesome/status/2016063724092850629)｜[𝕏宣传(2/10)](https://x.com/BP25th_awesome/status/2021222626396418126)
-    > [𝓲简](https://www.instagram.com/p/DT5Bv2RgRwQ/) 这本物料少得可怜多谢小简自己发图
+
+---
+* **260130《Men's Preppy》3月号(1/30) 杂志发售+联动采访**
+    > **260109 登场情报解禁** 4P ⇨ [𝕏](https://x.com/MensPREPPY/status/2009565817575244273)
+    > **260114 宣传视频1** ⇨ [𝕏](https://x.com/MensPREPPY/status/2011272065702379586)
+    > **260121 宣传视频2** ⇨ [𝕏](https://x.com/MensPREPPY/status/2013808784532218344)
+    > **260130 杂志发售** ⇨ [𝕏官博](https://x.com/MensPREPPY/status/2017077812331762041)｜[𝕏简](https://x.com/kan_hideyoshi/status/2017191401327571231)｜[𝓲简](https://www.instagram.com/p/DUIeSTuAS9F/) 戴眼镜的小简有｜[联动采访](https://preppyweb.com/article/13642) 生活习惯很自律的小简，最近喜欢高尔夫(只是想打)、买绿植、陶艺、逛家居店，很i一个人
+    > **其他物料** ⇨ [𝕏(2/9)](https://x.com/MensPREPPY/status/2020694148496634272)｜[𝕏(2/21)](https://x.com/MensPREPPY/status/2025042809640595708)｜[𝕏(3/2)](https://x.com/MensPREPPY/status/2028334487172698393)
+* **260127《awesome! Plus》Vol.45(1/27) 杂志发售** 简秀吉xKyle对谈 [𝕏宣传视频](https://x.com/BP25th_awesome/status/2016063724092850629)｜[𝕏宣传(2/10)](https://x.com/BP25th_awesome/status/2021222626396418126)｜[𝓲简-图透(1/24)](https://www.instagram.com/p/DT5Bv2RgRwQ/) 这本物料少得可怜多谢小简自己发图
 * **250121 12:15～12:45am 舞台剧相关ins直播** with古川琴音，青木柚
-* **260121 [Men's Preppy3月号(1/30)]宣传视频2** ⇨ [𝕏](https://x.com/MensPREPPY/status/2013808784532218344)
-* **260114 [Men's Preppy3月号(1/30)]宣传视频1** ⇨ [𝕏](https://x.com/MensPREPPY/status/2011272065702379586)
-* **260109 [Men's Preppy3月号(1/30)]登场情报解禁** 4P ⇨ [𝕏](https://x.com/MensPREPPY/status/2009565817575244273)  
 * **260109 2026 DXTEEN ARENA LIVE 〜FULL OUT！〜** 小简(以及修仲剧组?)去看了DXTEEN的live ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2009624618139836593)
 * **260101 新年帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2006668755011776684)｜[𝓲简](https://www.instagram.com/p/DS9tGd7gdps/)｜[𝕏(12/31)](https://x.com/kan_hideyoshi/status/2006318151039164425)
 
 ### 2025
 {: #kan2025}
 
-* **251217 3.14FanMeeting开催决定** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2001220675382730803)｜[𝓲简](https://www.instagram.com/p/DSW_ZZZAbWk/)
 
 ## 藤本 洸大
 {: #kodai}

@@ -31,14 +31,24 @@ permalink: /drama/
 
 ## 修学旅行正片
 * [FOD](https://fod.fujitv.co.jp/title/10dk/)
-* [GagaOOLala](https://www.gagaoolala.com/en/videos/5925/school-trip-joined-a-group-im-not-close-to-2025-e01?utm_source=GOL%E8%8B%B1%E6%96%87%E7%B2%89%E7%B5%B2%E5%9C%98&utm_medium=CallID&utm_campaign=%E6%88%91%E5%9C%A8%E5%AD%B8%E6%A0%A1%E6%97%85%E8%A1%8C%E4%B8%AD%E8%A2%AB%E5%88%86%E5%88%B0%E4%BA%86%E4%B8%80%E5%80%8B%E7%B3%9F%E7%B3%95%E7%9A%84%E5%B0%8F%E7%B5%84)
+* [GagaOOLala](https://www.gagaoolala.com/en/videos/5925/school-trip-joined-a-group-im-not-close-to-2025-e01)
 
 ## 修学旅行周边
 * [漫画展周边](https://x.com/manga10_torico/status/2054125880772018276)
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
+## 修学旅行音乐
+* **260107 官方OST by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
+> 1. 4+1のPrologue
+> 2. 修学旅行で仲良くないグループに入りました -Main Theme-
+> 3. 朝陽さす優しさ
+> 4. この距離がもどかしい
+> 5. 困らせたよな
+
+
 ## 修学旅行销量
-* **BD box**: 初动6101，次周累计6400，年度日腐box销量亚军 ⇨ [BOX销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
+* **260508 蓝光box**: 初动6101，次周累计6400，年度日腐box销量亚军 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
+* **260227 公式书**: 初动7639，次周7896，累计1.5w+ ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 
 ## 修学旅行榜单排行&受赏
 * 260514 蓝光box Oricon蓝光周榜2位 ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
