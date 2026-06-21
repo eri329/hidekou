@@ -7,7 +7,7 @@ permalink: /drama/
 <div class="drama-quote"  markdown='1'>
 
 ## ドラマ『修学旅行で仲良くないグループに入りました』
-> 放送開始日:2025年10月18日(土)
+> 放送日:2025年10月18日(土) ~ 2025年12月20日(土) 全10話
 > 放送局:ABCテレビ(関西ローカル)
 > 時間:毎週土曜深夜25:00～25:30
 > ★ABCテレビでの放送後、TVer・ABEMA で見逃し配信
@@ -23,7 +23,7 @@ permalink: /drama/
 > プロデューサー:寺川真未、細野夏希(ABCテレビ)、矢ノ口真実(The icon)
 > 制作協力:The icon
 > 制作著作:ABC
-> [HP](https://www.asahi.co.jp/schooltrip/)
+> [官网](https://www.asahi.co.jp/schooltrip/)
 
 </div>
 
@@ -46,7 +46,6 @@ permalink: /drama/
 > 4. この距離がもどかしい
 > 5. 困らせたよな
 
-
 ## 修学旅行销量
 * **260508 蓝光box**: 初动6101，次周累计6400，年度日腐box销量亚军 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **260227 公式书**: 初动7639，次周7896，累计1.5w+ ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
@@ -66,7 +65,7 @@ permalink: /drama/
 * 260119～250125 FOD Premium周榜5位 ⇨ [𝕏](https://x.com/fujitvplus/status/2016081246011466035)
 * 260112～260118 公式书 纪伊国屋书店预约榜(综合)1位 ⇨ [𝕏](https://x.com/Kinokuniya/status/2013155717222658418)
 * 260112～260118 FOD Premium周榜2位⇨ [𝕏](https://x.com/fujitvplus/status/2013544530835055065)
-    > *FOD从11月～1月的榜单没有翻到, 并不是小修学没有入榜!*{: .text-small}
+    > *FOD从11月～1月的榜单没有发, 并不是小修学没有入榜!*{: .text-small}
 * 251231 Emomiu interview 2025 简洸采访 阅读量年榜3位 ⇨ [𝕏](https://x.com/Emo_miu/status/2006336297238208561)｜[采访](https://emomiu.jp/news/244577/)
 * 251223～251230 GagaOOLala周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2007648233401499810)
 * 251221 最终回 TVer日榜综合5位 ⇨ [𝕏](https://x.com/gagaoolala/status/2002982438235230291)

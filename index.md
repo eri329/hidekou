@@ -61,7 +61,7 @@ permalink: /
 * **260509【杂志｜简秀吉｜藤本洸大】《FINEBOYS》6月号(5/9) 杂志发售** 简洸分别登场
     > **260501 封面公开** ⇨ [𝕏](https://x.com/hinode_pub/status/2050175903460954559)/[ins](https://www.instagram.com/p/DXy19O3jTa-/)
     > **260509 小简在X上发图透** 小简的部分有7P ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2052950666172346742)
-* **260508【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)
+* **260508【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)｜[🆈Official Audio](https://www.youtube.com/watch?v=NNyvLNoHYfA)
 * **260508【修学旅行｜双人】蓝光box发售**{: .text-red} ⇨ 初动6101
     > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)
     > **251219 蓝光box发售决定&开始预约** ⇨ [𝕏特典情报](https://x.com/dramal_abc/status/2001942876432076937)/[ins](https://www.instagram.com/p/DScIVk9E3Vz/)
@@ -305,7 +305,7 @@ permalink: /
 {: #jan2026}
 
 * **260125【修学旅行｜双人】GagaOOLala上线修仲番外+狐猪宣传视频** ⇨ [𝕏](https://x.com/gagaoolala/status/2015243225624142260)
-* **260123【采访｜藤本洸大】STORY Web采访+拍立得应募** ⇨ [𝕏](https://x.com/story_web/status/2014646920023802170)
+* **260123【采访｜藤本洸大】STORY Web采访+应募拍立得** ⇨ [𝕏](https://x.com/story_web/status/2014646920023802170)
     > 前篇 [話題の俳優・藤本洸大さん簡秀吉さんとの関係「ドラマと素は全く逆!？」](https://storyweb.jp/lifestyle/680244/)
     >  ⇨ 「イケメンに愛される役のちょっとした特別感、ドラマ内での立ち位置や、徐々に膨らんでいく恋心まで、绝妙な塩梅感を出すことは难しかったように思います。」<span>小猪表演日置时思考的东西真的都特别好…</span>{: .text-pink}
     >  ⇨ 「簡さんはギャップが魅力的な方だと思います。」<span>说不上来小简帅气的瞬间但是提到他有趣的地方可以说一大堆www</span>{: .text-pink}
