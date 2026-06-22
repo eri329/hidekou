@@ -40,3 +40,75 @@ permalink: /category/
 * **260324 中国首封《Lemon凝眸》＜This Moment’s Youth＞ 双人特刊** A+B版封面+全套典藏版set
 * **251030《S Cawaii!特別編集　Pair 尊い二人。》** 4版随机特典+应募拍立得
 * **251025 Emomiu藤本洸大×簡秀吉采访** ⇨ [采访](https://emomiu.jp/news/244577/)+应募拍立得
+
+## 单人杂志(简 秀吉)
+情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
+仅收录封面/栏目标题/粉丝扫图
+
+* **260609 FINEBOYS 7月号**
+* **260607 Emo!miu（web）**{: .text-red}
+* **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
+* **260529 FINEBOYS+Share 04**{: .text-blue}
+* **260509 FINEBOYS 6月号**{: .text-blue}
+* **260501 PREPPY 6月号（表紙）**{: .text-red}
+* **260422 JUNON 6月号**{: .text-blue}
+* **260420 RETRO画報（表紙）**{: .text-red}
+* **260403 -STARSIDE Spring 2026- After School（表紙）**{: .text-red}
+* **260401 PREPPY 5月号（表紙）**
+* **260330 GIANNA BOYFRIEND #11（BACK COVER）**{: .text-red}
+* **260324 Lemon凝眸 3月号（表紙）**{: .text-red}
+* **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-blue}
+* **260130 Men’s PREPPY 3月号**
+* **260127 awesome! Plus Vol.45**
+
+---
+* 2025年 TVガイドdan vol.57
+* 2025年 JUNON 11月号
+* 2025年 SEEK 11月号（表紙）
+* 2025年 GIANNA Plus #06（表紙）
+* 2025年 月刊わんこ vol.23（BACK COVER）
+* 2024年 書籍 「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）
+* 2024年 GIANNA BOYFRIEND #06
+* 2022年 ACTIMAGE Vol.001
+* 2022年 JUNON 11月号
+
+## 单人杂志(藤本 洸大)
+情报出处: [TopCoat官网](https://topcoat.co.jp/kodai_fujimoto/contents/schedule/magazine)
+仅收录封面/栏目标题/粉丝扫图
+
+* **260624 TV LIFE 7月10日号** ***
+* **260622 JUNON 8月号** => [封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[相卡](https://x.com/eprintservice/status/2068861528162369542)/[相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
+* **260610 推し楽！(web)** ***
+* **260607 Emo!miu（web）**{: .text-red} **
+* **260604 S Cawaii!特別編集　マブ ～永遠の絆～**
+* **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
+* **260529 FINEBOYS+Share 04**{: .text-blue}
+* **260521 JUNON 7月号**
+* **260509 FINEBOYS 6月号**{: .text-blue}
+* **260502 日経エンタテインメント！6月号**
+* **260501 PREPPY 6月号（表紙）**{: .text-red}
+* **260428 TV LIFE 9号**
+* **260427 DIGVII 4月号**
+* **260422 JUNON 6月号**{: .text-blue}
+* **260421 NAILON Vol.3（W表紙）**
+* **260420 RETRO画報（表紙）**{: .text-red}
+* **260403 -STARSIDE Spring 2026- After School（表紙）**{: .text-red}
+* **260330 GIANNA BOYFRIEND #11（BACK COVER）**{: .text-red}
+* **260324 Lemon凝眸 3月号（表紙）**{: .text-red}
+* **260324 FASHION SNAP(web)**
+* **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-blue}
+* **260317 S Cawaii!5月号**
+* **260309 FINEBOYS4月号**
+* **260228 Men's Preppy 4月号**
+* **260220 JUNON4月5月合併号**
+* **260216 TRENDiCON No.14（表紙）**
+* **260216 RETRO2月号（表紙）**
+* **260214 推し楽(web)**
+* **260206 BOYS meets logirl(web)**
+* **260123 STORY Web(web)**
+* **260117 Blaze 1月号（初単独表紙）**
+
+---
+* **251222 JUNON 2月号**
+
+

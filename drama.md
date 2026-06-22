@@ -38,21 +38,23 @@ permalink: /drama/
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
 ## 修学旅行音乐
-* **260107 官方OST　by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595?ADTAG=h5_share_album&redirecttag=mn.redirect.custom&mnst=1.69)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
+* **260107 官方OST by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595?ADTAG=h5_share_album&redirecttag=mn.redirect.custom&mnst=1.69)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
 > **「ドラマ「修学旅行で仲良くないグループに入りました」オリジナル・サウンドトラック」**
 > 1. 4+1のPrologue
 > 2. 修学旅行で仲良くないグループに入りました -Main Theme-
 > 3. 朝陽さす優しさ
 > 4. この距離がもどかしい
 > 5. 困らせたよな
+* 260522「トレモロ」from LIVE TOUR 2026 輪廻の箱庭 at 仙台サンプラザホール ⇨ [𝕏-live](https://x.com/genjibu_sdr/status/2057784535761486247)
 
 ## 修学旅行销量
-* **260508 蓝光box**: 初动6101，次周累计6400，年度日腐box销量亚军 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
+* **260508 蓝光box**: 初动6101，次周累计6400，2025年日腐box销量亚军 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **260227 公式书**: 初动7639，次周7896，累计1.5w+ ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 
 ## 修学旅行榜单排行&受赏
+* 260529 modelpress「最想和他当同学」排行榜日置2位，渡会8位 ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
 * 260514 蓝光box Oricon蓝光周榜2位 ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
-* 260430 ModelPress相遇名场面排行榜5位(第7话) ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
+* 260430 ModelPress「相遇名场面」排行榜修仲5位(第7话) ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
 * 260406～250412 FOD Premium周榜9位 ⇨ [𝕏](https://x.com/fujitvplus/status/2043985112199541224)
 * 260401 HUB Award 2025: Best Japanese BL & Japan Highlight of the Year ⇨ [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)｜[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/)
 * 260330～250405 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2041108724975325445) 小修学又冲上来了!

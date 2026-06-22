@@ -18,7 +18,9 @@ layout: page
 
 #### 建设中...
 
-*目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*
+*目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*{: .text-small}
+
+[ 2026-06-22 ] 2026年5月补档: 修仲X, 修仲ins, 小简X, 小简ins, MR8, 洸大ins, TC情报, 5月发售杂志官号(@preppy_magazine-6/1，@FINEBOYS_JP-6/22, @hinode_pub-6/22, ins fineboys_jp-6/10, ins nailonmagazine-5/22), 洸大电视剧官号(@drama_share_tv-6/15, @abc_drama_error-6/7)
 
 [ 2026-06-17~2026-06-21 ] 站长韩国归来！时间线布局改版中。增加部分【修学旅行】【分类索引】内容。
 
@@ -36,17 +38,17 @@ layout: page
 
 [ 2026-04-11 ] 2025年12月补档: 小简X(一秒整理完因为他几乎就是在转官推), 小简ins, TC(schedule), 小猪ins
 
-[ 2026-04-09 ] 2025年12月补档: abc公式ins至11/30，找不同很有趣！
+[ 2026-04-09 ] 2025年12月补档: 修仲ins至11/30，找不同很有趣！
 
-[ 2026-04-08 ] 2025年12月补档: abc公式X至11/30
+[ 2026-04-08 ] 2025年12月补档: 修仲X至11/30
 
-[ 2026-04-07 ] 2025年12月补档: abc公式X至12/10 原来剧播期间站长一天只能过十天公式X(苦笑)
+[ 2026-04-07 ] 2025年12月补档: 修仲X至12/10 原来剧播期间站长一天只能过十天公式X(苦笑)
 
-[ 2026-04-06 ] 2026年1月补档: abc公式X, abc公式ins, 小简X, 小简ins, TC(schedule), 小猪ins; 2025年12月补档: abc公式X至12/18 公式疯了一样地发推!
+[ 2026-04-06 ] 2026年1月补档: 修仲X, 修仲ins, 小简X, 小简ins, TC(schedule), 小猪ins; 2025年12月补档: abc公式X至12/18 公式疯了一样地发推!
 
-[ 2026-04-05 ] 2026年2月补档: abc公式X, abc公式ins, 小简X, 小简ins, TC(schedule), 小猪ins
+[ 2026-04-05 ] 2026年2月补档: 修仲X, 修仲ins, 小简X, 小简ins, TC(schedule), 小猪ins
 
-[ 2026-04-04 ] 2026年3月补档: abc公式X, abc公式ins, 小简X, 小简ins, TC(schedule), 小猪ins
+[ 2026-04-04 ] 2026年3月补档: 修仲X, 修仲ins, 小简X, 小简ins, TC(schedule), 小猪ins
 
 [ 2026-04-03 ] 继续调整样式，添加【单人物料】页面。
 

@@ -16,21 +16,34 @@ permalink: /solo/
 ### 2026
 {: #kan2026}
 
+* **260919 マイナビ TGC 2026 A/W出演!**{: .text-red} @横浜アリーナ
+    > **260525 出演決定!** ⇨ [𝕏](https://x.com/TGCnews/status/2058775066377367733)
+
+* **260701《Preppy》8月号(7/1)新连载开启**
+    > **260527 新连载情报解禁+宣传视频1** 簡秀吉の「MY 4CUT」 ⇨ [𝕏](https://x.com/preppy_magazine/status/2059575338968178911)
+    > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
+
+* **260609《FINEBOYS》7月号(6/9)杂志发售**
+    > **260529 情报解禁** ヒデヨシくんをチョコっと。 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2060214038878175249)
+
 * **260530 香港见面会**{: .text-red}
     > **260422 情报解禁** ⇨ [📕简](http://xhslink.com/o/6NpHRiEIpm8)｜[微博-简+详情](https://weibo.com/7984735683/5290209986223512)｜[📕主办方](http://xhslink.com/o/8M6jkSdQIjl)/[ins](https://www.instagram.com/p/DXY7sjGjZjP/)｜[📕小简宣传视频](http://xhslink.com/o/6kGWTCGGdyd)/[ins](https://www.instagram.com/p/DXbl3hLEUo-/)/[微博](https://weibo.com/7984735683/QC1Lavkc4)
     > **260424 开票** ⇨ [📕简](http://xhslink.com/o/57c4Vg5Jlrh)/[ins](https://www.instagram.com/p/DXgqvsEAcsH/)
     > **260425~260427 造型师发图香港见面会周边图造型** ⇨ [𝓲-黑](https://www.instagram.com/p/DXjtidxk5Kd/?)｜[𝓲-白](https://www.instagram.com/p/DXolimsE-_s/)｜[𝓲-摄影师发图](https://www.instagram.com/p/DXonXobEXwy/)
+    > **260531 穿着金木研的T的夜晚散步+吃了火锅 @香港** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2061079264137822677)｜[ins(图多)](https://www.instagram.com/p/DZAR-S1AZoi/)
+* **260520 ins:光合成** 拍花中 ⇨ [𝓲简](https://www.instagram.com/p/DYjy-EpAWrf/)
 * **260509【直播】FC2周年见面会 FM5.9**{: .text-red}
     > **260314 FM3.14中告知本次见面会**
     > **260415 FM5.9直播配信票将于4/18开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2044340416305328246)/[📕简](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)
     > **260429 见面会周边公开** online受注: 5月9日21:00〜5月15日23:59 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2049462031343079493)/[📕简](http://xhslink.com/o/8sPrTmDby9p)
     > **260502 宣传FM5.9周边T的春游** ⇨ [𝓲简](https://www.instagram.com/p/DX1aqPtgQdR/)｜[📕简(和ins图不一样)](http://xhslink.com/o/1zSWM5n6PW0)
-    > **260509 粉丝大合照** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2053075356140347593)
+    > **260509 粉丝大合照+周边开售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2053075356140347593)/[𝓲简](https://www.instagram.com/p/DYHc_ThATmy/)｜[𝕏简-周边开售](https://x.com/kan_hideyoshi/status/2053083153481576811)
+    > **260510 小简ins发FM照片** ⇨ [𝓲简](https://www.instagram.com/p/DYKBOf5AQ0h/)
     > **见面会物料** ⇨ [视频回顾](https://kan-hideyoshi.com/movies/128056)｜[文字+对镜自拍](https://kan-hideyoshi.com/member/photos/612140)｜[图1张(5/10)](https://kan-hideyoshi.com/member/photos/612506)｜[官方照片第一部(5/12)](https://kan-hideyoshi.com/group/39630)｜[官方照片第二部(5/13)](https://kan-hideyoshi.com/group/39638)
 * **260505 儿童节发小小简照片** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2051636837345800346)
 
 ---
-* **260423《FINEBOYS》初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387) => 详情移步时间线因为小猪也上了这一本XD
+* **260423《FINEBOYS》初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387) ⇨ 详情移步时间线因为小猪也上了这一本XD
 * **260419【FC】FC更新tiktok小视频** ⇨ [FC](https://kan-hideyoshi.com/movies/127454)
 * **260416【FC｜直播】21:00～22:00 FC直播** ⇨ [📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
 * **260413 小简开设小红书账号！**{: .text-red} ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址(4/14)](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)
@@ -40,9 +53,9 @@ permalink: /solo/
     > **260218 情报解禁** 封面＆16P ３LOOK ⇨ [𝕏](https://x.com/preppy_magazine/status/2023958811040502198)
     > **260227 封面解禁** 樱花粉小简太美了！⇨ [𝕏](https://x.com/preppy_magazine/status/2027307721079615656)｜[𝕏简](https://x.com/kan_hideyoshi/status/2027307750846591088)｜[𝓲简](https://www.instagram.com/p/DVQWq7wATbY/)
     > **260303 预约特典** ⇨ [𝕏日亚特典](https://x.com/preppy_magazine/status/2028757275197026603)｜[𝕏heritage特典](https://x.com/preppy_magazine/status/2028757279659692532)
-    > **260304《Preppy》5月号(4/1) 宣传视频1 LOOK PINK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029134769234014703)
-    > **260306《Preppy》5月号(4/1) 宣传视频2 LOOK BLACK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029859539722371361)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2029861175610200232)｜[𝓲简(照片)](https://www.instagram.com/p/DVifz6UgSqE/)
-    > **260309《Preppy》5月号(4/1) 宣传视频3 LOOK RED** ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲简(照片)](https://www.instagram.com/p/DVqOxLtAd3q/)
+    > **260304 宣传视频1 LOOK PINK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029134769234014703)
+    > **260306 宣传视频2 LOOK BLACK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029859539722371361)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2029861175610200232)｜[𝓲简(照片)](https://www.instagram.com/p/DVifz6UgSqE/)
+    > **260309 宣传视频3 LOOK RED** ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲简(照片)](https://www.instagram.com/p/DVqOxLtAd3q/)
     > **260401 杂志发售** [联动采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
     > 会自己做饭、控制饮食、吃玄米和优质脂肪的超绝自律贤惠的小简。
     > 春日歌单：《春泥棒》《夢追いベンガル》《ハルコイ》
@@ -52,6 +65,7 @@ permalink: /solo/
     > **260403 海报展特典B5卡** ⇨ [𝕏](https://x.com/preppy_magazine/status/2040006400664068472)
     > **260409 BTS拍摄花絮** ⇨ [𝕏](https://x.com/preppy_magazine/status/2042180724443201891)
     > **260418 海报展布置** ⇨ [𝕏](https://x.com/preppy_magazine/status/2045317639971525014)｜[𝕏视频](https://x.com/preppy_magazine/status/2045474926463737942)
+    > **260422 应募拍立得** ⇨ [𝕏](https://x.com/preppy_magazine/status/2046891770701840411)
 
 ---
 * **260326 公园夜游** ⇨ [𝓲简](https://www.instagram.com/p/DWWKZqkAcnX/)
@@ -99,11 +113,17 @@ permalink: /solo/
 
 * **260604《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售**
     > **260501 情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2050062656879706278)｜[𝕏特典小卡(无图)](https://x.com/mag_scawaii/status/2050062944260788453)
-* **260511 电视剧「share」第4话登场** ⇨ [ins预告(5/5)](https://www.instagram.com/p/DX7E8Otjka9/)｜[ins照片一张(5/7)](https://www.instagram.com/p/DYCPRcJk2Kw/)
+* **260531 skechers鞋子广告** ⇨ [𝓲洸](https://www.instagram.com/p/DZALe5xz88o/)
+* **260528【直播】21:00〜 NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DY4p4PgFB0X/)
+* **260521《JUNON》7月号(5/21) 杂志发售**
+    > **260519 登场情报解禁** 这次的主题是和父亲的对谈! ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2056646050358960231)
+    > **260520 拍摄花絮视频** ⇨ [𝕏](https://x.com/JUNON_jp/status/2057023535135043632)
+    > **260521 杂志发售+便利店相卡** 5/21~6/21 ⇨ [𝕏](https://x.com/eprintservice/status/2057265115892752787)
 * **260508 电影「未来」上映** 布施晃 役 ⇨ [官网](https://mirai-movie.jp/)
     > **260428 试映会** ⇨ [𝕏](https://x.com/RKB_EVENT/status/2041410645808275915)
     > **260430 一个很短的预告片段** ⇨ [𝕏](https://x.com/eiga_mirai/status/2049790882183037041)
-* **260502《日経エンタテインメント！》6月号(5/2)杂志发售** interview ⇨ [𝕏](https://x.com/nikkei_ent/status/2047133398528057620)｜[𝕏图透1张](https://x.com/nikkei_ent/status/2050398654159343767)
+    > **260522 剧组演员发杀青合照** ⇨ [𝓲洸](https://www.instagram.com/p/DYpOtlbgbbW/)
+* **260502《日経エンタテインメント！》6月号(5/2)杂志发售** 今、求められる俳優 ⇨ [𝕏封面](https://x.com/nikkei_ent/status/2050379787701751860)｜[𝕏图透1张](https://x.com/nikkei_ent/status/2050398654159343767)
 * **260501【FC】19:00~ TopCoat五一企划 大西利空×藤本洸大活动花絮公开** ⇨ [FC页面](https://sp.tcland.jp/contents/1069937)
 
 ---
@@ -111,6 +131,8 @@ permalink: /solo/
 * **260427《DIGVII》4月号(4/27)杂志发售** ⇨ [𝕏](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
     > **260428 化妆师图透** ⇨ [ins](https://www.instagram.com/p/DXqOsVKk8Jb/)
     > **260504 摄影师图透** ⇨ [ins](https://www.instagram.com/p/DX6ixNUkbuj/)
+    > **260528 摄影师发图** ⇨ [ins](https://www.instagram.com/p/DY4Fn4mEVCb/)
+* **260424 台湾之行ins** [𝓲洸](https://www.instagram.com/p/DXg0q0IFB92/)
 * **260421《Nailon》03(4/21) 杂志发售** W封面&内页16P＆特別附录
     > **260331 封面+底封W封面情报解禁** ⇨ [𝕏拍摄花絮视频:尝试了自然系的美甲](https://x.com/nailonmagazine/status/2038912132218335297)/[ins](https://www.instagram.com/p/DWix6_oz51K/)｜[封面&购买链接](https://www.nylon.jp/nailon03_kodai)/[ins告知](https://www.instagram.com/p/DWiwL4kkr9g/)
     > **260415 封面解禁** ⇨ [𝕏](https://x.com/nailonmagazine/status/2044340243621724163)/[ins](https://www.instagram.com/p/DXJYG96Evba/)
@@ -118,7 +140,9 @@ permalink: /solo/
     > **260421 杂志发售** ⇨ [杂志介绍](https://www.nylon.jp/nailon03_KODAI)｜[𝕏双封面](https://x.com/nailonmagazine/status/2046429214421786730)｜[𝕏应募特典拍立得](https://x.com/nailonmagazine/status/2046531136176918823)
     > **260421~260423 NAILON特別展示＆販売3日限定举办** ⇨ 特典小卡:[𝕏](https://x.com/nailonmagazine/status/2044612242482827639)｜[ins](https://www.instagram.com/p/DXOsL5ckmZ9/)
     > **260424 拍摄花絮视频** ⇨ [𝕏](https://x.com/nailonmagazine/status/2047618089131639005)/[ins](https://www.instagram.com/p/DXgxR_7Es0Q/)
-    > **260430/260502/260509 官方ins拼图** ⇨ [𝓲1](https://www.instagram.com/p/DXwHeCCkrPR/), [𝓲2](https://www.instagram.com/p/DXwIAx_Eh7x/)｜[𝓲3](https://www.instagram.com/p/DX1RpiMEv-c/), [𝓲4](https://www.instagram.com/p/DX1SPTrEqRS/)｜[𝓲5](https://www.instagram.com/p/DYHU6sGksv7/), [𝓲6](https://www.instagram.com/p/DYHVbeykpEC/)
+    > **260430/260502/260509/260521 官方ins拼图** ⇨ [𝓲1](https://www.instagram.com/p/DXwHeCCkrPR/), [𝓲2](https://www.instagram.com/p/DXwIAx_Eh7x/)｜[𝓲3](https://www.instagram.com/p/DX1RpiMEv-c/), [𝓲4](https://www.instagram.com/p/DX1SPTrEqRS/)｜[𝓲5](https://www.instagram.com/p/DYHU6sGksv7/), [𝓲6](https://www.instagram.com/p/DYHVbeykpEC/), [𝓲7](https://www.instagram.com/p/DYmLBkXEsyJ/), [𝓲8](https://www.instagram.com/p/DYmLjtYkoGL/), [𝓲9](https://www.instagram.com/p/DYmMuqEktXJ/), [𝓲10](https://www.instagram.com/p/DYmNSWcEprF/)
+    > **260507 洸大ins发拍摄花絮照** ⇨ [𝓲洸](https://www.instagram.com/p/DYCS6G2lF2L/)
+    > **260521 官方ins发图** ⇨ [ins](https://www.instagram.com/p/DYmN6gXEgvU/)
 * **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
     > **260327 加藤导演对小猪的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)
     > **260407 赤城神社祈願+记者见面会**
@@ -127,7 +151,28 @@ permalink: /solo/
     > **260324 预告** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036186240224206939)
     > **260413 开机小片段** ⇨ [ins](https://www.instagram.com/p/DXEOg-pjcjV/)
     > **260415 放送5日前口播** ⇨ [ins](https://www.instagram.com/p/DXJYD3clO9B/)
-* **260412 4月12日(日)22:15~ ABC电视剧「エラー」播出** 洸大出演 塩野春樹役 ⇨ [𝓲洸(3/27)](https://www.instagram.com/p/DWYkRviFET7)｜[官网](https://www.asahi.co.jp/drama_error/)｜[𝕏修学官推发剧照](https://x.com/dramal_abc/status/2043304691111711001)
+    > **260507 offshot** 比耶~ ⇨ [𝕏](https://x.com/drama_share_tv/status/2052342696413659417)/[ins](https://www.instagram.com/p/DYCPRcJk2Kw/)
+    > **260511 第4话洸大登场** ⇨ [𝕏-第4话预告(5/5)](https://x.com/drama_share_tv/status/2051334794584490288)/[ins(5/5)]((https://www.instagram.com/p/DX7E8Otjka9/))
+    > **260513 第4话洸大登场切片** ⇨ [𝕏](https://x.com/drama_share_tv/status/2054562315761266991)/[ins](https://www.instagram.com/p/DYSApuFDWrG/)
+    > **260514 第4话洸大offshot** 还是比耶XD ⇨ [𝕏](https://x.com/drama_share_tv/status/2054879413490327972)/[ins](https://www.instagram.com/p/DYUQ1oDE2Ex/)
+    > **260515 拍摄花絮** 洸大玩牌ing ⇨ [𝕏](https://x.com/drama_share_tv/status/2055241798742851995)
+    > **260520 第5话洸大切片** ⇨ [𝕏](https://x.com/drama_share_tv/status/2057099030392664209)｜[𝕏剧照(5/21)](https://x.com/drama_share_tv/status/2057416121620558079)/[ins](https://www.instagram.com/p/DYmSaAEgadg/)｜[𝕏洸大切片被选为第5话心动画面](https://x.com/drama_share_tv/status/2058820378760532120)
+    > **260527 第6话洸大打电话切片** ⇨ [𝕏](https://x.com/drama_share_tv/status/2059635746227859640)
+    > **260527 21:00～ 电视剧「share」ins直播** with 秋田汐梨、池田匡志 ⇨ [𝕏告知(5/26)](https://x.com/drama_share_tv/status/2059243159717331246)｜[ins告知(5/26)](https://www.instagram.com/p/DYzRPiTCbhk/)
+    > **260529 第6话洸大打电话切片花絮视频** ⇨ [𝕏](https://x.com/drama_share_tv/status/2060315228353733079)
+    > **260531 洸大打电话剧照** ⇨ [𝕏](https://x.com/drama_share_tv/status/2061009800042099003)
+    > **260604 洸大和女主的offshot** ⇨ [𝕏](https://x.com/drama_share_tv/status/2062489563243966493)
+    > **260608 最终回+ins直播限定公开+offshot** ⇨ [𝕏](https://x.com/drama_share_tv/status/2063954201080983984)/[ins](https://www.instagram.com/p/DZUvlH0CcFL/)｜[Youtube限定公开(6/8~6/22)](https://www.youtube.com/watch?v=fsh3EQTBKGs)
+    > **260610 最终回洸大切片** ⇨ [𝕏](https://x.com/drama_share_tv/status/2064618587948752945)/[ins](https://www.instagram.com/p/DZZdt4pCaN4/)
+    > **260613 洸大杀青视频+offshot** ⇨ [𝕏](https://x.com/drama_share_tv/status/2065751045775716842)/[ins](https://www.instagram.com/p/DZhhQijj2rs/)
+* **260412 4月12日(日)22:15~ ABC电视剧「エラー」播出** 洸大出演 塩野春樹役 ⇨ [官网](https://www.asahi.co.jp/drama_error/)
+    > **260327 洸大ins告知** ⇨ [𝓲洸](https://www.instagram.com/p/DWYkRviFET7)
+    > **260407 洸大剧照1张** ⇨ [𝕏](https://x.com/oshiraku/status/2041500762405220773)
+    > **260412 第1话登场** ⇨ [𝕏修学官推发剧照](https://x.com/dramal_abc/status/2043304691111711001)
+    > **260414 洸大第1话切片** ⇨ [𝕏](https://x.com/abc_drama_error/status/2043977564067180956)/[ins](https://www.instagram.com/p/DXGzdQyk6Zc/)
+    > **260516 洸大切鸡切片** ⇨ [𝕏](https://x.com/abc_drama_error/status/2055483386316153211)/[ins](https://www.instagram.com/p/DYYjoaxFF38/)
+    > **260523 第7话洸大切片** ⇨ [𝕏](https://x.com/abc_drama_error/status/2058020098271809984)/[ins](https://www.instagram.com/p/DYqlKSTkxNd/)
+    > **260527 第7话+杀青照** ⇨ [𝓲洸](https://www.instagram.com/p/DYuNET4FEvb/)
 * **260409【直播】19:00〜 NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DW6P-rNlJA8/)
 
 ---
