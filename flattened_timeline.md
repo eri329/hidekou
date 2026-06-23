@@ -28,10 +28,12 @@ permalink: /flattened_timeline/
 {: #jun2026}
 
 * **260620【修学旅行】修学旅行漫画版第1卷发售**
+* **260606【修学旅行｜双人】韩国见面会**{: .text-red} 13:00/18:00 @Donghae Culture & Arts Center(光云大学东海文化艺术馆) ⇨ [官网](https://www.asahi.co.jp/schooltrip/news/eventkorea.html)
+* **260604【杂志｜藤本洸大】《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售**{: .text-solo-k}
 
 <div class="line"></div>
 
--- new post ---
+-- draft post --
 * **260707【个人活动｜简秀吉】电视剧「幸せになりたいマサムネ君」开播** 7月7日(火)MBS‣‣24:59〜 ／TBS‣‣25:26〜 ほか
 * **260701【个人活动｜简秀吉】电视剧「おちたらおわり」开播** 7/1(水) 24時24分～ ※初回は24時34分〜
 
@@ -70,10 +72,7 @@ permalink: /flattened_timeline/
 * **250924【修学旅行】主题曲 DXTEEN「両片想い」发售**
 * **250917【修学旅行】主题曲决定！DXTEEN「両片想い」abc报道** ⇨ [abc-magazine](https://abc-magazine.asahi.co.jp/post-62271/)
 
----
-
-* **260606【修学旅行｜双人】韩国见面会**{: .text-red} 13:00/18:00 @Donghae Culture & Arts Center(光云大学东海文化艺术馆) ⇨ [官网](https://www.asahi.co.jp/schooltrip/news/eventkorea.html)
-* **260604【杂志｜藤本洸大】《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售**{: .text-solo-k}
+<div class="line"></div>
 
 ### 2026.5
 {: #may2026}
