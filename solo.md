@@ -16,16 +16,17 @@ permalink: /solo/
 ### 2026
 {: #kan2026}
 
-* **260919 マイナビ TGC 2026 A/W出演!**{: .text-red} @横浜アリーナ
-    > **260525 出演決定!** ⇨ [𝕏](https://x.com/TGCnews/status/2058775066377367733)
+* **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ
+    > **260525 マイナビ TGC 2026 A/W(秋冬)出演決定!** ⇨ [𝕏](https://x.com/TGCnews/status/2058775066377367733)
 
 * **260701《Preppy》8月号(7/1)新连载开启**
-    > **260527 新连载情报解禁+宣传视频1** 簡秀吉の「MY 4CUT」 ⇨ [𝕏](https://x.com/preppy_magazine/status/2059575338968178911)
+    > **260527 新连载情报解禁+宣传视频1** 簡秀吉の「MY 4CUT」 ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
 
 * **260609《FINEBOYS》7月号(6/9)杂志发售**
     > **260529 情报解禁** ヒデヨシくんをチョコっと。 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2060214038878175249)
 
+---
 * **260530 香港见面会**{: .text-red}
     > **260422 情报解禁** ⇨ [📕简](http://xhslink.com/o/6NpHRiEIpm8)｜[微博-简+详情](https://weibo.com/7984735683/5290209986223512)｜[📕主办方](http://xhslink.com/o/8M6jkSdQIjl)/[ins](https://www.instagram.com/p/DXY7sjGjZjP/)｜[📕小简宣传视频](http://xhslink.com/o/6kGWTCGGdyd)/[ins](https://www.instagram.com/p/DXbl3hLEUo-/)/[微博](https://weibo.com/7984735683/QC1Lavkc4)
     > **260424 开票** ⇨ [📕简](http://xhslink.com/o/57c4Vg5Jlrh)/[ins](https://www.instagram.com/p/DXgqvsEAcsH/)
@@ -113,6 +114,8 @@ permalink: /solo/
 
 * **260604《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售**
     > **260501 情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2050062656879706278)｜[𝕏特典小卡(无图)](https://x.com/mag_scawaii/status/2050062944260788453)
+
+---
 * **260531 skechers鞋子广告** ⇨ [𝓲洸](https://www.instagram.com/p/DZALe5xz88o/)
 * **260528【直播】21:00〜 NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DY4p4PgFB0X/)
 * **260521《JUNON》7月号(5/21) 杂志发售**

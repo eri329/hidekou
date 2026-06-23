@@ -33,14 +33,14 @@ permalink: /
 
 <!-- <div class="line"></div> -->
 
-* **260810【修学旅行｜双人】修仲夏日同窗会**{: .text-red}
+* **260810【修学旅行｜双人】修仲夏日同窗会**{: .text-red} => [活动详情](https://www.mahocast.com/ce/c/124)
     > **260523 情报解禁+抽选开票** 两部15:30/19:00，五人出演(虽然很开心但是等着宣第二季的大家又被溜了……) ⇨ [𝕏](https://x.com/dramal_abc/status/2058020089727947241)/[ins](https://www.instagram.com/p/DYqlGASk3PD/)
     > **260528 活动说明** 本确+检查行李，祝花不允许使用演员肖像 ⇨ [𝕏](https://x.com/mahocast_jp/status/2059922629214232949)
 
 ### 2026.6
 {: #jun2026}
 
-* **260620【修学旅行｜原作】修学旅行漫画版第1卷发售**
+* **260620【修学旅行】修学旅行漫画版第1卷发售**
     > **260515 情报解禁+animate特典** 特典有电视剧剧照立牌+8P小册子(后来增加到12P) ⇨ [𝕏](https://x.com/BeLuckbunko/status/2055095765207486748)
 * **260606【修学旅行｜双人】韩国见面会**{: .text-red}
     > 13:00/18:00 Donghae Culture & Arts Center(光云大学东海文化艺术馆) ⇨ [官网](https://www.asahi.co.jp/schooltrip/news/eventkorea.html)
@@ -81,7 +81,7 @@ permalink: /
     > **260501 封面公开** ⇨ [𝕏](https://x.com/hinode_pub/status/2050175903460954559)/[ins](https://www.instagram.com/p/DXy19O3jTa-/)
     > **260509 杂志发售+小简宣传&宣传视频** 撮影中のヒデヨシくん, 7P ⇨ [𝕏封面](https://x.com/hinode_pub/status/2052898844489175298)｜[𝕏简](https://x.com/kan_hideyoshi/status/2052950666172346742)｜[𝓲简(图更多)](https://www.instagram.com/p/DYGjkPigagJ/)｜[𝓲小简宣传视频](https://www.instagram.com/p/DYHLN6Xh2so/)
     > **260511 洸大宣传视频** お気に入りシューズ ⇨ [𝓲-洸大宣传](https://www.instagram.com/p/DYLd3qmBJVF/)
-    > **260525 小简拍摄花絮** ⇨ [ins](https://www.instagram.com/p/DYvxrJhynqc/) 帅的！！
+    > **260525 小简拍摄花絮视频** ⇨ [ins](https://www.instagram.com/p/DYvxrJhynqc/) 帅的！！
     > **260528 小简应募拍立得** 和X上的版本不一样 ⇨ [ins](https://www.instagram.com/p/DY4bKKTktPM/)
 * **260508【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)｜[🆈Official Audio](https://www.youtube.com/watch?v=NNyvLNoHYfA)
 * **260508【修学旅行｜双人】蓝光box发售**{: .text-red} ⇨ 初动6101

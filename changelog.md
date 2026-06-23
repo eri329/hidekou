@@ -20,7 +20,14 @@ layout: page
 
 *目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*{: .text-small}
 
-[ 2026-06-22 ] 2026年5月补档: 修仲X, 修仲ins, 小简X, 小简ins, MR8, 洸大ins, TC情报, 5月发售杂志官号(@preppy_magazine-6/1，@FINEBOYS_JP-6/22, @hinode_pub-6/22, ins fineboys_jp-6/10, ins nailonmagazine-5/22), 洸大电视剧官号(@drama_share_tv-6/15, @abc_drama_error-6/7)
+<!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
+tvguideweb https://www.tvguide.or.jp/news/news-4065417/
+modelpress https://mdpr.jp/drama/4662220 -->
+
+[ 2026-06-22 ] 2026年6月补档(~6/23): 修仲X, 修仲ins, 小简X
+<!-- emomiu洗发水记事！https://x.com/Emo_miu/status/2063562683845390760 -->
+
+[ 2026-06-21 ] 2026年5月补档: 修仲X, 修仲ins, 小简X, 小简ins, MR8, 洸大ins, TC情报, 5月发售杂志官号(@preppy_magazine-6/1，@FINEBOYS_JP-6/22, @hinode_pub-6/22, ins fineboys_jp-6/10, ins nailonmagazine-5/22), 洸大电视剧官号(@drama_share_tv-6/15, @abc_drama_error-6/7)
 
 [ 2026-06-17~2026-06-21 ] 站长韩国归来！时间线布局改版中。增加部分【修学旅行】【分类索引】内容。
 
