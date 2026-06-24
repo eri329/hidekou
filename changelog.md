@@ -24,8 +24,9 @@ layout: page
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
 modelpress https://mdpr.jp/drama/4662220 -->
 
-[ 2026-06-22 ] 2026年6月补档(~6/23): 修仲X, 修仲ins, 小简X
-<!-- emomiu洗发水记事！https://x.com/Emo_miu/status/2063562683845390760 -->
+[ 2026-06-23 ] 2026年6月补档: 小简ins, MR8, 洸大ins, TC情报, 韩国见面会官号@p_en_kr, emomiu官号@Emo_miu-6/23, 6月杂志官号(推し楽, S Cawaii-6/23, JUNON-8月号), 各电视剧官号
+
+[ 2026-06-22 ] 2026年6月补档: 修仲X, 修仲ins, 小简X
 
 [ 2026-06-21 ] 2026年5月补档: 修仲X, 修仲ins, 小简X, 小简ins, MR8, 洸大ins, TC情报, 5月发售杂志官号(@preppy_magazine-6/1，@FINEBOYS_JP-6/22, @hinode_pub-6/22, ins fineboys_jp-6/10, ins nailonmagazine-5/22), 洸大电视剧官号(@drama_share_tv-6/15, @abc_drama_error-6/7)
 

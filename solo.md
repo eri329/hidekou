@@ -112,8 +112,13 @@ permalink: /solo/
 ### 2026
 {: #kodai2026}
 
-* **260604《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售**
-    > **260501 情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2050062656879706278)｜[𝕏特典小卡(无图)](https://x.com/mag_scawaii/status/2050062944260788453)
+* **260604《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售** => [ins](https://www.instagram.com/p/DZJezlzCfjh/)
+    > **260501 情报解禁** ⇨ [𝕏(无图)](https://x.com/mag_scawaii/status/2050062656879706278)｜[𝕏特典小卡(无图)](https://x.com/mag_scawaii/status/2050062944260788453)
+    > **260508 特典卡3种解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2052629572084961715)
+    > **260521 封面解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2057401154284449935)/[ins](https://www.instagram.com/p/DVvJMMtCX58/)
+    > **260527 宣传视频** ⇨ [𝕏](https://x.com/mag_scawaii/status/2059575448326250709)/[ins](https://www.instagram.com/p/DY1ohpbJML2/)
+    > **260605 offshot** ⇨ [ins](https://www.instagram.com/p/DZMzH40pu6e/)
+    > **260612 应募拍立得** ⇨ [𝕏](https://x.com/mag_scawaii/status/2065267859656187923)
 
 ---
 * **260531 skechers鞋子广告** ⇨ [𝓲洸](https://www.instagram.com/p/DZALe5xz88o/)
@@ -146,7 +151,7 @@ permalink: /solo/
     > **260430/260502/260509/260521 官方ins拼图** ⇨ [𝓲1](https://www.instagram.com/p/DXwHeCCkrPR/), [𝓲2](https://www.instagram.com/p/DXwIAx_Eh7x/)｜[𝓲3](https://www.instagram.com/p/DX1RpiMEv-c/), [𝓲4](https://www.instagram.com/p/DX1SPTrEqRS/)｜[𝓲5](https://www.instagram.com/p/DYHU6sGksv7/), [𝓲6](https://www.instagram.com/p/DYHVbeykpEC/), [𝓲7](https://www.instagram.com/p/DYmLBkXEsyJ/), [𝓲8](https://www.instagram.com/p/DYmLjtYkoGL/), [𝓲9](https://www.instagram.com/p/DYmMuqEktXJ/), [𝓲10](https://www.instagram.com/p/DYmNSWcEprF/)
     > **260507 洸大ins发拍摄花絮照** ⇨ [𝓲洸](https://www.instagram.com/p/DYCS6G2lF2L/)
     > **260521 官方ins发图** ⇨ [ins](https://www.instagram.com/p/DYmN6gXEgvU/)
-* **260420 4月20日(日)25:00~ CX电视剧「share」播出** 洸大出演 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
+* **260420 4月20日(日)25:00~ CX电视剧「share」播出** 坂谷和哉役 ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
     > **260327 加藤导演对小猪的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)
     > **260407 赤城神社祈願+记者见面会**
     > [𝓲洸](https://www.instagram.com/p/DW1QzKolPOc/)｜[𝕏](https://x.com/drama_share_tv/status/2041712653899571301)｜[🆈マイナビニュース活动报道](https://www.youtube.com/watch?v=2XZyxoRuqcU)(小猪片段1:55~, 6:44~, 10:50, 13:50~, 14:30~)｜[🆈另外一个](https://www.youtube.com/watch?v=GJDOH-1s2Us)(00:37~, 3:27~, 4:17~提到在给共演过的人做衣服, 8:40~)｜[𝕏照片](https://x.com/mn_enta/status/2041418260034502856)｜[𝕏照片](https://x.com/oricon/status/2041405140465598523)｜[𝕏照片](https://x.com/modelpress/status/2041397825729396994)｜[𝕏活动入场-超萌小猪](https://x.com/drama_share_tv/status/2041420106513940822)｜[𝓲照片](https://www.instagram.com/p/DW3WfJakn27/)
@@ -168,7 +173,7 @@ permalink: /solo/
     > **260608 最终回+ins直播限定公开+offshot** ⇨ [𝕏](https://x.com/drama_share_tv/status/2063954201080983984)/[ins](https://www.instagram.com/p/DZUvlH0CcFL/)｜[Youtube限定公开(6/8~6/22)](https://www.youtube.com/watch?v=fsh3EQTBKGs)
     > **260610 最终回洸大切片** ⇨ [𝕏](https://x.com/drama_share_tv/status/2064618587948752945)/[ins](https://www.instagram.com/p/DZZdt4pCaN4/)
     > **260613 洸大杀青视频+offshot** ⇨ [𝕏](https://x.com/drama_share_tv/status/2065751045775716842)/[ins](https://www.instagram.com/p/DZhhQijj2rs/)
-* **260412 4月12日(日)22:15~ ABC电视剧「エラー」播出** 洸大出演 塩野春樹役 ⇨ [官网](https://www.asahi.co.jp/drama_error/)
+* **260412 4月12日(日)22:15~ ABC电视剧「エラー」播出** 塩野春樹役 ⇨ [官网](https://www.asahi.co.jp/drama_error/)
     > **260327 洸大ins告知** ⇨ [𝓲洸](https://www.instagram.com/p/DWYkRviFET7)
     > **260407 洸大剧照1张** ⇨ [𝕏](https://x.com/oshiraku/status/2041500762405220773)
     > **260412 第1话登场** ⇨ [𝕏修学官推发剧照](https://x.com/dramal_abc/status/2043304691111711001)
@@ -186,8 +191,11 @@ permalink: /solo/
 * **260320 Hulu「時計館の殺人」出演 7-8话配信**
 * **260319【直播】19:00〜 NATSLIVE「洸大のサイコロジーアート」配信**
     > [𝓲洸-回顾+咖啡厅活动告知](https://www.instagram.com/p/DWEMJkxFOhV/) 有很萌的黑衣兔兔洸大和他的炸鸡块
-* **260317《S Cawaii!》5月号(3/17) 杂志发售** ⇨ [𝓲洸](https://www.instagram.com/p/DV-9MwvlCpb/)｜[𝕏](https://x.com/mag_scawaii/status/2034223292773810418)/[ins](https://www.instagram.com/p/DWBgWG6Cazm/)｜[𝕏宣传视频(3/13)](https://x.com/mag_scawaii/status/2032411353298719226)/[ins](https://www.instagram.com/reels/DV0plkliWH_/)｜[𝕏特典贴纸](https://x.com/mag_scawaii/status/2031641931152007436) 很萌的毛茸茸猪
+* **260317《S Cawaii!》5月号(3/17) 杂志发售** ⇨ [𝓲洸](https://www.instagram.com/p/DV-9MwvlCpb/)/[𝕏(3/18)](https://x.com/mag_scawaii/status/2034223292773810418)/[ins(3/18)](https://www.instagram.com/p/DWBgWG6Cazm/) 很萌的毛茸茸猪
     > **260220 登场情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2024757003177119788)
+    > **260311 特典贴纸** ⇨ [𝕏](https://x.com/mag_scawaii/status/2031641931152007436)
+    > **260313 宣传视频**  ⇨ [𝕏](https://x.com/mag_scawaii/status/2032411353298719226)/[ins](https://www.instagram.com/reels/DV0plkliWH_/)
+    > **260322 洸大应募拍立得** ⇨ [𝕏](https://x.com/mag_scawaii/status/2035657742065508631)
 * **260316｜260320 AI短剧「びっくりあいらんど」出演**
     > 3月16日（月）配信「好きぴに気に入られたい三人」篇　
     > 3月20日（祝・金）配信「三人組ってむずかしくない？」篇

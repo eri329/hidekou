@@ -55,13 +55,13 @@ permalink: /
     > **260515 活动流程补充说明** ⇨ [𝕏](https://x.com/p_en_kr/status/2055154202469613665)
     > **260515 粉丝应援征集** ⇨ [𝕏-爱心照片征集](https://x.com/p_en_kr/status/2055152367058751662)｜[𝕏-vvip读信征集(有一张新图)](https://x.com/p_en_kr/status/2055151367292076107)
     > **260519 洸大宣传视频** ⇨ [𝕏](https://x.com/p_en_kr/status/2056601485333708878)
-    > **260522【修学旅行｜双人】韩国见面会(6/6)摄影说明** 本场活动可以拍摄 ⇨ [𝕏](https://x.com/p_en_kr/status/2057733129398571397)
+    > **260522 关于现场的摄影说明** 本场活动可以拍摄 ⇨ [𝕏](https://x.com/p_en_kr/status/2057733129398571397)
     > **260524 狐猪双人宣传** ⇨ [𝕏](https://x.com/hellolivetv/status/2058480699334918243)
     > **260602 video call抽选(20名)结果发表**
 * **260602【杂志｜简秀吉｜藤本洸大】《TVガイドdan》vol.60(6/2)** 简洸分别登场；表纸+卷头特辑:简秀吉；企划: 池田匡志×草川直弥×藤本洸大 ⇨ [杂志详情](https://zasshi.tv/products/58788/)
     > **260515 情报+特典解禁** ⇨ [𝕏情报解禁](https://x.com/TVguidePERSON/status/2055121275002171693)｜[𝕏简秀吉特典版](https://x.com/TVguidePERSON/status/2055123507663827029)｜[𝕏洸大特典版](https://x.com/TVguidePERSON/status/2055124746052993051)｜[!X-HMV限定封面版发售决定(无图)](https://x.com/TVguidePERSON/status/2055127044007264267)
     > **260525 HMV限定表紙版+海报展+线下特典** 现场会有限定封面杂志，附一张线下特典 ⇨ [𝕏](https://x.com/TVguidePERSON/status/2058850845136142428)｜[𝕏特典卡](https://x.com/TVguidePERSON/status/2058851513108504995)
-    > **260526 两版封面解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2059183389496992182)｜[X!-HMV限定版封底](https://x.com/TVguidePERSON/status/2059184041790980175)
+    > **260526 两版封面解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2059183389496992182)｜[𝕏-HMV限定版封底](https://x.com/TVguidePERSON/status/2059184041790980175)
 
 
 ### 2026.5

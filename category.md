@@ -33,6 +33,7 @@ permalink: /category/
 * **251018 修学旅行开播 双人首次直播**
 
 ## 双人杂志 & 采访
+* **260607 Emo!miu（web）** => [采访](https://emomiu.jp/news/264220/)
 * **260501《Preppy》6月号 双人封面** 3版随机特典+海报展特典+应募拍立得+[联动采访](https://preppyweb.com/article/26576)
 * **260420《Retro》双人特刊** 3版封面大全套打包 ⇨ [📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)
 * **260403《Starside》#2 Spring 2026 双人特刊** ABCD3版封面+大全套set ⇨ [𝕏配置](https://x.com/starside_x/status/2024829552514748858)
@@ -46,7 +47,7 @@ permalink: /category/
 仅收录封面/栏目标题/粉丝扫图
 
 * **260609 FINEBOYS 7月号**
-* **260607 Emo!miu（web）**{: .text-red}
+* **260607 Emo!miu（web）**{: .text-red} => [采访](https://emomiu.jp/news/264220/)
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
 * **260509 FINEBOYS 6月号**{: .text-blue}
@@ -78,8 +79,8 @@ permalink: /category/
 
 * **260624 TV LIFE 7月10日号** ***
 * **260622 JUNON 8月号** => [封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[相卡](https://x.com/eprintservice/status/2068861528162369542)/[相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
-* **260610 推し楽！(web)** ***
-* **260607 Emo!miu（web）**{: .text-red} **
+* **260610 推し楽！(web)** => [采访](https://fan.books.rakuten.co.jp/articles/8014)
+* **260607 Emo!miu（web）**{: .text-red} => [采访](https://emomiu.jp/news/264220/)
 * **260604 S Cawaii!特別編集　マブ ～永遠の絆～**
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
