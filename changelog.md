@@ -24,6 +24,10 @@ layout: page
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
 modelpress https://mdpr.jp/drama/4662220 -->
 
+[ 2026-06-25 ] 6/25～6/26更新，造型师ins@yudai_makino back-to-3/11, 造型师ins@shingo_tsuno
+
+[ 2026-06-24 ] 6/24更新, 亲妈推@RcNfe37-back-to-3/14, 编辑部官号@BeLuckbunko-back-to-5/1
+
 [ 2026-06-23 ] 2026年6月补档: 小简ins, MR8, 洸大ins, TC情报, 韩国见面会官号@p_en_kr, emomiu官号@Emo_miu-6/23, 6月杂志官号(推し楽, S Cawaii-6/23, JUNON-8月号), 各电视剧官号
 
 [ 2026-06-22 ] 2026年6月补档: 修仲X, 修仲ins, 小简X

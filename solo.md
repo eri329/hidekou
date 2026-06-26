@@ -30,7 +30,8 @@ permalink: /solo/
 * **260530 香港见面会**{: .text-red}
     > **260422 情报解禁** ⇨ [📕简](http://xhslink.com/o/6NpHRiEIpm8)｜[微博-简+详情](https://weibo.com/7984735683/5290209986223512)｜[📕主办方](http://xhslink.com/o/8M6jkSdQIjl)/[ins](https://www.instagram.com/p/DXY7sjGjZjP/)｜[📕小简宣传视频](http://xhslink.com/o/6kGWTCGGdyd)/[ins](https://www.instagram.com/p/DXbl3hLEUo-/)/[微博](https://weibo.com/7984735683/QC1Lavkc4)
     > **260424 开票** ⇨ [📕简](http://xhslink.com/o/57c4Vg5Jlrh)/[ins](https://www.instagram.com/p/DXgqvsEAcsH/)
-    > **260425~260427 造型师发图香港见面会周边图造型** ⇨ [𝓲-黑](https://www.instagram.com/p/DXjtidxk5Kd/?)｜[𝓲-白](https://www.instagram.com/p/DXolimsE-_s/)｜[𝓲-摄影师发图](https://www.instagram.com/p/DXonXobEXwy/)
+    > **260424~260425 造型师发图香港见面会周边图造型** ⇨ [𝓲-黑1](https://www.instagram.com/p/DXhG9wKk7Dr/)｜[𝓲-黑2](https://www.instagram.com/p/DXjtidxk5Kd/)
+    > **260427 造型师摄影师发图** ⇨ [𝓲-白](https://www.instagram.com/p/DXolimsE-_s/)｜[𝓲-摄影师发图](https://www.instagram.com/p/DXonXobEXwy/)
     > **260531 穿着金木研的T的夜晚散步+吃了火锅 @香港** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2061079264137822677)｜[ins(图多)](https://www.instagram.com/p/DZAR-S1AZoi/)
 * **260520 ins:光合成** 拍花中 ⇨ [𝓲简](https://www.instagram.com/p/DYjy-EpAWrf/)
 * **260509【直播】FC2周年见面会 FM5.9**{: .text-red}
@@ -112,7 +113,7 @@ permalink: /solo/
 ### 2026
 {: #kodai2026}
 
-* **260604《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售** => [ins](https://www.instagram.com/p/DZJezlzCfjh/)
+* **260604《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4)杂志发售** ⇨ [ins](https://www.instagram.com/p/DZJezlzCfjh/)
     > **260501 情报解禁** ⇨ [𝕏(无图)](https://x.com/mag_scawaii/status/2050062656879706278)｜[𝕏特典小卡(无图)](https://x.com/mag_scawaii/status/2050062944260788453)
     > **260508 特典卡3种解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2052629572084961715)
     > **260521 封面解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2057401154284449935)/[ins](https://www.instagram.com/p/DVvJMMtCX58/)

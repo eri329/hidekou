@@ -46,6 +46,8 @@ permalink: /category/
 情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
 仅收录封面/栏目标题/粉丝扫图
 
+* **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue}
+* **260630 Butter05（表紙）**
 * **260609 FINEBOYS 7月号**
 * **260607 Emo!miu（web）**{: .text-red} => [采访](https://emomiu.jp/news/264220/)
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
@@ -77,7 +79,8 @@ permalink: /category/
 情报出处: [TopCoat官网](https://topcoat.co.jp/kodai_fujimoto/contents/schedule/magazine)
 仅收录封面/栏目标题/粉丝扫图
 
-* **260624 TV LIFE 7月10日号** ***
+* **260630 FINEBOYS+plus FACE**{: .text-blue}
+* **260624 TV LIFE 13号** =>[封面目次](https://www.tvlife.jp/latest/793045)
 * **260622 JUNON 8月号** => [封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[相卡](https://x.com/eprintservice/status/2068861528162369542)/[相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
 * **260610 推し楽！(web)** => [采访](https://fan.books.rakuten.co.jp/articles/8014)
 * **260607 Emo!miu（web）**{: .text-red} => [采访](https://emomiu.jp/news/264220/)
