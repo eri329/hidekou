@@ -33,7 +33,7 @@ permalink: /category/
 * **251018 修学旅行开播 双人首次直播**
 
 ## 双人杂志 & 采访
-* **260607 Emo!miu（web）** => [采访](https://emomiu.jp/news/264220/)
+* **260607 Emo!miu（web）** ⇨ [采访](https://emomiu.jp/news/264220/)
 * **260501《Preppy》6月号 双人封面** 3版随机特典+海报展特典+应募拍立得+[联动采访](https://preppyweb.com/article/26576)
 * **260420《Retro》双人特刊** 3版封面大全套打包 ⇨ [📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)
 * **260403《Starside》#2 Spring 2026 双人特刊** ABCD3版封面+大全套set ⇨ [𝕏配置](https://x.com/starside_x/status/2024829552514748858)
@@ -49,7 +49,7 @@ permalink: /category/
 * **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue}
 * **260630 Butter05（表紙）**
 * **260609 FINEBOYS 7月号**
-* **260607 Emo!miu（web）**{: .text-red} => [采访](https://emomiu.jp/news/264220/)
+* **260607 Emo!miu（web）**{: .text-red} ⇨ [采访](https://emomiu.jp/news/264220/)
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
 * **260509 FINEBOYS 6月号**{: .text-blue}
@@ -80,10 +80,10 @@ permalink: /category/
 仅收录封面/栏目标题/粉丝扫图
 
 * **260630 FINEBOYS+plus FACE**{: .text-blue}
-* **260624 TV LIFE 13号** =>[封面目次](https://www.tvlife.jp/latest/793045)
-* **260622 JUNON 8月号** => [封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[相卡](https://x.com/eprintservice/status/2068861528162369542)/[相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
-* **260610 推し楽！(web)** => [采访](https://fan.books.rakuten.co.jp/articles/8014)
-* **260607 Emo!miu（web）**{: .text-red} => [采访](https://emomiu.jp/news/264220/)
+* **260624 TV LIFE 13号** ⇨[封面目次](https://www.tvlife.jp/latest/793045)
+* **260622 JUNON 8月号** ⇨ [封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[相卡](https://x.com/eprintservice/status/2068861528162369542)/[相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
+* **260610 推し楽！(web)** ⇨ [采访](https://fan.books.rakuten.co.jp/articles/8014)
+* **260607 Emo!miu（web）**{: .text-red} ⇨ [采访](https://emomiu.jp/news/264220/)
 * **260604 S Cawaii!特別編集　マブ ～永遠の絆～**
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
@@ -114,5 +114,34 @@ permalink: /category/
 
 ---
 * **251222 JUNON 2月号**
+* **251121 JUNON 1月号**
+* **251121 月刊TVガイド**
+* **251117 Duet LUXE vol.4**
+* **251104 CINEMA SQUARE**
+* **251031 GIANNA PLUS（表紙）**{: .text-red}
+* **251030 S Cawaii!**
+* **251023 月刊 TV navi**
+* **251016 別冊+act. 42号**
+* **251016 TVガイドdan vol.57**
+* TVガイドWEB(web)（10月下旬配信）
+* Emo!miu(web)（10月下旬配信）
+* Seventeen-Web(web)（10月下旬配信）
+* TVer(web)（10月下旬配信）
+* 推し楽(web)（10月下旬配信）
+*「イケメン図鑑」(web)(7月下旬配信)
+* **250620 JUNON**
+* FAST(web)（6月中旬配信）
 
-
+---
+* **241011 コミックBe vol.129**
+* **241031 awesome! Vol.69**
+* **241028 TVガイドAlpha EPISODE.FFFF VOL.84**
+* **241022 JUNON**
+* **241015 TVガイドdan vol.53**
+* **241002 TV LIFE**
+* WEBザテレビジョン(web)
+* Astage(web)
+* TVfan Web(web)
+* TVガイド web(web)
+* ちょいミー(動画配信)
+* **240722 JUNON**

@@ -45,11 +45,11 @@ permalink: /drama/
 > 3. 朝陽さす優しさ
 > 4. この距離がもどかしい
 > 5. 困らせたよな
-* 260522「トレモロ」from LIVE TOUR 2026 輪廻の箱庭 at 仙台サンプラザホール ⇨ [𝕏-live](https://x.com/genjibu_sdr/status/2057784535761486247)
+* **260522「トレモロ」live** from LIVE TOUR 2026 輪廻の箱庭 at 仙台サンプラザホール ⇨ [𝕏](https://x.com/genjibu_sdr/status/2057784535761486247)
 
 ## 修学旅行销量
 * **260508 蓝光box**: 初动6101，次周累计6400，2025年日腐box销量亚军 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
-* **260227 公式书**: 初动7639，次周7896，累计1.5w+ ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
+* **260227 公式书**: 初动7639，次周7896，两周累计15535 ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 
 ## 修学旅行榜单排行&受赏
 * 260529 modelpress「最想和他当同学」排行榜日置2位，渡会8位 ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
