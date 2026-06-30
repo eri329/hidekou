@@ -26,6 +26,9 @@ permalink: /solo/
     > **260623 放送2周前宣传视频** 小简with男主 ⇨ [ins](https://www.instagram.com/reel/DZ7HSWKPH9q/)
 * **260701 CTV电视剧「おちたらおわり」开播** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **260617 出演情报解禁** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜 ⇨ [𝕏](https://x.com/official_MR8/status/2067224617107038401)｜[𝓲简告知](https://www.instagram.com/p/DZr9A8HAXnV/)
+* **260702 DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
+    > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
+    > **260629 节目解禁** 7/2 FIFA world cup daily highlight
 * **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」
     > **260527 新连载情报解禁+宣传视频1** ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
@@ -35,15 +38,18 @@ permalink: /solo/
 * **260630《Butter》05(6/30) HMV限定版W封面杂志发售**
     > **260605 HMV限定版W封面 登场情报解禁+特典情报** 主题:start, HMV限定版cover+亲签留言(影印)特典明信片 ⇨ [𝕏(仅文字)](https://x.com/Auditionblue/status/2062841861660967119)
     > ドラマ『修学旅行で仲良くないグループに入りました』でW主演を務めた簡秀吉がHMV限定版表紙で登場。「友だち以上恋人未満をやめて新たな関係で再スタート……」をテーマに、思いをしたためる姿や、公園に飛び出してその思いを届ける様子を切り取った。インタビューでは撮影直前に新事務所への所属を発表したばかりの彼の言葉が収録されている。
-    > **260624 封面解禁** HMV限定版 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)｜[𝕏特典明信片](https://x.com/Auditionblue/status/2069744847091651026)｜[𝕏-HMV](https://x.com/HMV_Japan/status/2069708476440600645) 一共9版封面，只有小简的封面最抽象2333
-    > **260626 小简宣传视频** ⇨ [𝕏](https://x.com/Auditionblue/status/2070436907310526689)
+    > **260624 封面封底解禁** HMV限定版 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)｜[𝕏特典明信片](https://x.com/Auditionblue/status/2069744847091651026)｜[𝕏-HMV](https://x.com/HMV_Japan/status/2069708476440600645)｜[𝕏-set(6/25)](https://x.com/Auditionblue/status/2070072635703304668/) 一共9版封面，只有小简的封面最抽象2333
+    > **260626 小简宣传视频** ⇨ [𝕏-红色look介绍](https://x.com/Auditionblue/status/2070436907310526689)
+    > **260629 各种宣传** ⇨ [𝓲简](https://www.instagram.com/p/DaKojEXAfNe/) 全身牛仔+小黄花瞩目！｜[𝕏图透](https://x.com/Auditionblue/status/2071564340864692681)｜[𝕏-牛仔look介绍](https://x.com/Auditionblue/status/2071531620675293397)
+* **260630【快拍】小简熬夜看球中: 日本vs巴西**
+* **260629【FC｜直播】21꞉15~ 电台直播** 有提到7/2会上DAZN的世界杯节目，当天节目出演表也出来了。
+* **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！**
 * **260627【快拍】小简追星中: 去看了乃紫演唱会** 乃紫(ins@noa_aburasoba) 2026 tour @Tokyo 
 * **260625 CHANEL RADIO SHINE FM 香奈儿活动** 使用了『ROUGE COCO HYDRA GLOSS』443 ⇨ [𝓲简](https://www.instagram.com/p/DaAlGJGAcGG/)
 * **260625 小简在造型师津野真吾的频道Youtube出道~** 是香港宣传海报的拍摄工作 ⇨ [ins](https://www.instagram.com/p/DaAg0gTRrbK)｜[🆈【芸能人出演】俳優 簡秀吉さん登場！！ファッションスタイリスト津野真吾の1日に密着！](https://www.youtube.com/watch?v=6pcPwz-VUdc)
     > 小简出镜8:13~9:52; 和这个全程单口相声的造型师比起来小简简直不要太i了2333主要讨论了小简ins疯狂涨粉这件事。视频本身也很有趣!小简出镜后造型师也一直在夸小简体贴（不吃晚饭让大家早收工）颜值高人很好等等，推荐看到最后！
 * **260623【FC｜直播】21:00～ FC直播** ⚠️有提对家
-* **260620【SNS】韩国见面会期间自拍** ⇨ [𝓲简](https://www.instagram.com/p/DZznuroAaXB/)
-* **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
+* **260620 韩国见面会期间自拍** ⇨ [𝓲简](https://www.instagram.com/p/DZznuroAaXB/)
 * **260611 Mrs.GREEN APPLE presents『CEREMONY』活动** ⇨ [𝓲简](https://www.instagram.com/p/DZcmt1vAfwF/) 正装好帅！！
 * **260610 JO MALONE LONDON Veggies Collection活动** ⇨ [𝓲简](https://www.instagram.com/p/DZZ17Y4AdBd/) 这个条纹衬衫很好看！
     > **260616 牧野造型师发图** Repost但更高清 ⇨ [ins](https://www.instagram.com/p/DZpLQ_eE1mS/)
@@ -153,13 +159,15 @@ permalink: /solo/
     > **260617 MC出演 配信決定🎉** 配信は11月までの全3回を予定。初回は7/30(木)19:00〜(45分番組) ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2067170394394779690)｜[配信地址](https://www.showroom-live.com/r/junonsuperboyclub)
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
     > **260612 ゲスト出演情报解禁**
-    > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏(1min)](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)｜[TVer预告(3min)](https://tver.jp/episodes/epjta6l2hw)
+    > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏(1min)](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
+    > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
     > **260626 出演情报解禁** 7/3（金）24:12〜，第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎 役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。
 
 ---
-* **260627【个人活动｜藤本洸大】CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨[𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
+* **260630 AI短剧「びっくりあいらんど」Season2配信决定** 宣传视频里有洸大~ ⇨ [ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
+* **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨[𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
 * **260624《TV LIFE》13号(6/24)杂志发售** 不定期巻末連載『Time to Talk』登场, 有HMV在线购入特典
     > **260605 情报解禁** ⇨ [𝕏](https://x.com/tv_life/status/2062842331691405385) 
     > **260611 特典解禁** ⇨ [𝕏](https://x.com/tv_life/status/2064891912159699296)
@@ -256,8 +264,8 @@ permalink: /solo/
     > **260313 宣传视频**  ⇨ [𝕏](https://x.com/mag_scawaii/status/2032411353298719226)/[ins](https://www.instagram.com/reels/DV0plkliWH_/)
     > **260322 洸大应募拍立得** ⇨ [𝕏](https://x.com/mag_scawaii/status/2035657742065508631)
 * **260316｜260320 AI短剧「びっくりあいらんど」出演**
-    > 3月16日（月）配信「好きぴに気に入られたい三人」篇　
-    > 3月20日（祝・金）配信「三人組ってむずかしくない？」篇
+    > 3月16日（月）配信「好きぴに気に入られたい三人」篇 ⇨ [𝓲短剧](https://www.instagram.com/reel/DV7ecx1kyvV/)
+    > 3月20日（祝・金）配信「三人組ってむずかしくない？」篇 ⇨[𝓲短剧](https://www.instagram.com/reel/DWFxo9FhMP4/)
     > TikTok [@z_drama_ntv](https://www.tiktok.com/@z_drama_ntv)/Instagram [＠z_drama_ntv](https://www.instagram.com/z_drama_ntv/)/X [@z_drama_ntv](https://x.com/z_drama_ntv)
     > [𝓲洸-短剧造型自拍](https://www.instagram.com/p/DV8gI-cFGqf/)
 * **260314【直播】21:00〜 NATSLIVE「藤本洸大＆桜木雅哉ホワイトデーSP」配信** ⇨ [𝓲洸-眼镜小猪](https://www.instagram.com/p/DV3eoDJFNjj/)

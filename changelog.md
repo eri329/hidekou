@@ -18,13 +18,15 @@ layout: page
 
 #### 建设中...
 
-*目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*{: .text-small}
+*目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简小红书, 小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*{: .text-small}
 
 <!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
 modelpress https://mdpr.jp/drama/4662220 
 https://x.com/MINNANO_ENT korean event repost
 -->
+
+[ 2026-06-29 ] 同步更新
 
 [ 2026-06-27 ] 6月排版完毕
 

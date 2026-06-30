@@ -41,27 +41,36 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
 * **260703**
     > **【个人活动｜藤本洸大】电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播**{: .text-solo-k} 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
+* **260702**
+    > **【个人活动｜简秀吉】DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
 * **260701**
     > **【个人活动｜简秀吉】CTV电视剧「おちたらおわり」开播**{: .text-solo} 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
+
+<div class="line"></div>
 
 ### 2026.6
 {: #jun2026}
 
 * **260630**
-    > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30)杂志发售**
+    > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30)杂志发售+小简宣传视频** ⇨ [ins-封底](https://www.instagram.com/p/DaLJFFQSmDY/)｜[ins-封面](https://www.instagram.com/p/DaLI0yIShk5/) 官号介绍的时候又在捆绑……｜[ins-小简宣传视频](https://www.instagram.com/p/DaMeAvpyvx1/)
+    > **【修学旅行】堀田生日快乐！** ⇨ [𝕏官方](https://x.com/dramal_abc/status/2071715511977828473)/[ins](https://www.instagram.com/p/DaL419jzViO/)
     > **【杂志｜简秀吉】《Butter》05(6/30) 杂志发售**{: .text-solo}
-
-<div class="line"></div>
-
+    > **【快拍｜简秀吉】小简熬夜看球中: 日本vs巴西**{: .text-solo}
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」Season2配信决定**{: .text-solo-k} 宣传视频里有洸大~ ⇨ [ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
+* **260629**
+    > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30) 小简封底look拍摄花絮** ⇨ [ins](https://www.instagram.com/reels/DaKmji7haJU/) 只有10秒
+    > **【FC｜直播｜简秀吉】21꞉15~ 小简电台直播**{: .text-solo} 有提到7/2会上DAZN的世界杯节目。当天节目出演表也出来了。
+    > **【杂志｜简秀吉】《Butter》05(6/30) 宣传**{: .text-solo} ⇨ [𝓲简](https://www.instagram.com/p/DaKojEXAfNe/) 全身牛仔+小黄花瞩目！｜[𝕏图透](https://x.com/Auditionblue/status/2071564340864692681)｜[𝕏-牛仔look介绍](https://x.com/Auditionblue/status/2071531620675293397)
+    > **【快拍｜简秀吉】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！**{: .text-solo}
 * **260628**
-    > **【修学旅行｜正片】修学旅行TV再放送告知** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)
+    > **【修学旅行｜正片】修学旅行TV再放送告知** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)｜[𝕏亲妈发推欢迎回来～](https://x.com/RcNfe37/status/2071205079949189300)
 * **260627**
     > **【快拍｜简秀吉】小简追星中: 去看了乃紫演唱会**{: .text-solo} 乃紫(ins@noa_aburasoba) 2026 tour @Tokyo 
-    > **【个人活动｜藤本洸大】CHANELルージュ ココ イドゥラ グロス活动**{: .text-solo-k} 推荐442 ACCESSOIRE ⇨[𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
+    > **【个人活动｜藤本洸大】CHANEL活动**{: .text-solo-k} 推荐442 ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
 * **260626**
     > **【商务｜双人】Emomiu CLAYGE洗发水 拍摄花絮**{: .text-red} 甜度爆表 ⇨ [𝕏](https://x.com/Emo_miu/status/2070453965054165129)/[ins](https://www.instagram.com/reel/DaC5YYdCcPm/)
     > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS》6月号(5/9) 简秀吉图透**「ヒデヨシくん、撮影入りまーす！」 ⇨ [ins](https://www.instagram.com/p/DaCO82zkp1n/)
-    > **【杂志｜简秀吉】《Butter》05(6/30) 小简宣传视频**{: .text-solo} ⇨ [𝕏](https://x.com/Auditionblue/status/2070436907310526689)
+    > **【杂志｜简秀吉】《Butter》05(6/30) 小简宣传视频**{: .text-solo} ⇨ [𝕏-红色look介绍](https://x.com/Auditionblue/status/2070436907310526689)
     > **【杂志｜藤本洸大】《JUNON》8月号(6/22)洸大拍摄花絮**{: .text-solo-k} 短发洸ing ⇨ [𝕏](https://x.com/junon_jp/status/2070341295076176275)/[ins](https://www.instagram.com/reels/DaCIKdkh-Op/)
     > **【个人活动｜藤本洸大】电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」洸大出演情报解禁**{: .text-solo-k} 7/3（金）24:12〜，第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎 役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
 * **260625**
@@ -74,7 +83,7 @@ permalink: /flattened_timeline/
 * **260624**
     > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS＋plus Share》vol.4(5/29) 简洸应募拍立得** ⇨ [𝕏-洸大拍立得](https://x.com/FINEBOYS_JP/status/2069691999792308605)｜[𝕏-小简拍立得](https://x.com/FINEBOYS_JP/status/2069692000345972796)
     > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30)简秀吉底封登场情报解禁** ⇨ [𝕏文字解禁](https://x.com/FINEBOYS_JP/status/2069737311777313124)
-    > **【杂志｜简秀吉】《Butter》05(6/30) 简秀吉版封面解禁**{: .text-solo} HMV限定版 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)｜[𝕏特典明信片](https://x.com/Auditionblue/status/2069744847091651026)｜[𝕏-HMV](https://x.com/HMV_Japan/status/2069708476440600645) 一共9版封面，只有小简的封面最抽象2333
+    > **【杂志｜简秀吉】《Butter》05(6/30) 简秀吉版封面封底解禁**{: .text-solo} HMV限定版 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)｜[𝕏特典明信片](https://x.com/Auditionblue/status/2069744847091651026)｜[𝕏-HMV](https://x.com/HMV_Japan/status/2069708476440600645)｜[𝕏-set(6/25)](https://x.com/Auditionblue/status/2070072635703304668/) 一共9版封面，只有小简的封面最抽象2333
     > **【杂志｜藤本洸大】《TV LIFE》13号(6/24)发售**{: .text-solo-k} 不定期巻末企画『Time to Talk』登场 ⇨ [𝕏-告知&文字花絮](https://x.com/tv_life/status/2069684254196580356)
 * **260623**
     > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS＋plus Share》vol.4(5/29) 洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/DZ7J296BQMT/) 特别烧的宝宝……
@@ -180,7 +189,7 @@ permalink: /flattened_timeline/
     > **【修学旅行｜双人】韩国见面会(6/6)周边盒子告知** 6/6 10:00~ 现场开售 ⇨ [𝕏](https://x.com/p_en_kr/status/2060585627444547949)
     > **【个人活动｜简秀吉】香港见面会(5/30)**{: .text-solo}
 * **260529**
-    > **【修学旅行】modelpress最想和他当同学排行榜结果** 日置第2名，渡会第8名！ ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
+    > **【修学旅行】modelpress「最想和他当同学」排行榜结果** 日置第2名，渡会第8名！ ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
     > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS＋plus Share》vol.4(5/29) 杂志发售** 简洸分别登场 小简12P, 主题是足球^^; 洸大也是12P, 主题是服装改造 ⇨ [封面](https://x.com/hinode_pub/status/2060146601784705221)｜[详情](https://fineboys-online.jp/fashion/detail.php?id=6111)｜[𝓲简-世界杯应援](https://www.instagram.com/p/DY64b7-AX4s/)｜[𝓲洸](https://www.instagram.com/p/DZFR2xqlDaS)｜[𝓲-小简宣传视频](https://www.instagram.com/p/DY6WcsGBMFD/)｜[𝓲-洸大宣传视频](https://www.instagram.com/p/DY6rFbHh3TY/)
     > **【杂志｜双人】《Preppy》6月号(5/1) Sugiura造型师发图** ⇨ [ins-洸大](https://www.instagram.com/p/DY6rifTCdjR/)
     > **【杂志｜简秀吉】《FINEBOYS》7月号(6/9)登场情报解禁**{: .text-solo} ヒデヨシくんをチョコっと。 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2060214038878175249)
@@ -475,7 +484,7 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】大西利空×藤本洸大 TopCoat Land限定活动**{: .text-solo-k} ⇨ [𝓲洸(2/20)](https://www.instagram.com/p/DU-cB_OktuO/)｜[𝓲洸-跳舞小视频(2/22)](https://www.instagram.com/p/DWLkwOPCThP/)
 * **260320**
     > **【杂志｜双人】《Lemon》(3/24)中国首封情报解禁** ⇨ 定档: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab886000000001b003a8c?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY_wMA8ddo0Hy73gP42Nmvas=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278594249265385)/[𝕏](https://x.com/lemon_mag_cn/status/2034922896926310502)/[ins](https://www.instagram.com/p/DWGdtXBiG3W/)｜预热: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab6b70000000023012550?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY7Bob8RJM2UbEmMgJKbNa0w=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278532347364342)/[ins](https://www.instagram.com/p/DWGBuoXiC0B/)
-    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」播出**{: .text-solo-k} 3月20日（祝・金）配信「三人組ってむずかしくない？」篇
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」播出**{: .text-solo-k} 3月20日（祝・金）配信「三人組ってむずかしくない？」篇 ⇨ [𝓲短剧](https://www.instagram.com/reel/DWFxo9FhMP4/)
     > **【个人活动｜藤本洸大】Hulu「時計館の殺人」出演 7-8话配信**{: .text-solo-k}
 * **260319**
     > **【行程｜双人】《Preppy》6月号(5/1)拍摄**{: .text-grey}
@@ -488,7 +497,7 @@ permalink: /flattened_timeline/
     > **【杂志｜藤本洸大】《S Cawaii!》5月号(3/17) 发售**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DV-9MwvlCpb/)/[𝕏(3/18)](https://x.com/mag_scawaii/status/2034223292773810418)/[ins(3/18)](https://www.instagram.com/p/DWBgWG6Cazm/)｜[封面](https://x.com/mag_scawaii/status/2033732826391318891)
 * **260316**
     > **【个人活动｜简秀吉】簡秀吉FM3.14 牧野造型师发图**{: .text-solo} ⇨ [ins](https://www.instagram.com/p/DV7Ac-Sk9sx/)
-    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」播出**{: .text-solo-k} 3月16日（月）配信「好きぴに気に入られたい三人」篇 ⇨ [𝓲洸-自拍](https://www.instagram.com/p/DV8gI-cFGqf/)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」播出**{: .text-solo-k} 3月16日（月）配信「好きぴに気に入られたい三人」篇 ⇨ [𝓲短剧](https://www.instagram.com/reel/DV7ecx1kyvV/)｜[𝓲洸-自拍](https://www.instagram.com/p/DV8gI-cFGqf/)
     > TikTok [@z_drama_ntv](https://www.tiktok.com/@z_drama_ntv)/Instagram [＠z_drama_ntv](https://www.instagram.com/z_drama_ntv/)/X [@z_drama_ntv](https://x.com/z_drama_ntv)
     > **【杂志｜藤本洸大】《Retro》2月号(2/16) 横版花絮**{: .text-solo-k} ⇨ [📕](https://www.xiaohongshu.com/discovery/item/69b7d83c000000002800a4d5?source=webshare&xhsshare=pc_web&xsec_token=ABP90l-WO7kHX8-ldaZQ-0CFNG4UMiDV_KReSYa3HYJs8=&xsec_source=pc_share)
 * **260315**
