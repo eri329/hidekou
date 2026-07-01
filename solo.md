@@ -24,6 +24,7 @@ permalink: /solo/
     > **260618 进组宣传视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2067585219461620164)/[ins](https://www.instagram.com/reel/DZuiSjAPAMp/)
     > **260622 第1话预告** 00:27~00:30小简出现 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2069000241597280718)
     > **260623 放送2周前宣传视频** 小简with男主 ⇨ [ins](https://www.instagram.com/reel/DZ7HSWKPH9q/)
+    > **260630 新预告** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2071900169197813850)｜[ins](https://www.instagram.com/p/DaNLcxmP_4s/) 有事后躺床镜头
 * **260701 CTV电视剧「おちたらおわり」开播** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **260617 出演情报解禁** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜 ⇨ [𝕏](https://x.com/official_MR8/status/2067224617107038401)｜[𝓲简告知](https://www.instagram.com/p/DZr9A8HAXnV/)
 * **260702 DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
@@ -41,9 +42,10 @@ permalink: /solo/
     > **260624 封面封底解禁** HMV限定版 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)｜[𝕏特典明信片](https://x.com/Auditionblue/status/2069744847091651026)｜[𝕏-HMV](https://x.com/HMV_Japan/status/2069708476440600645)｜[𝕏-set(6/25)](https://x.com/Auditionblue/status/2070072635703304668/) 一共9版封面，只有小简的封面最抽象2333
     > **260626 小简宣传视频** ⇨ [𝕏-红色look介绍](https://x.com/Auditionblue/status/2070436907310526689)
     > **260629 各种宣传** ⇨ [𝓲简](https://www.instagram.com/p/DaKojEXAfNe/) 全身牛仔+小黄花瞩目！｜[𝕏图透](https://x.com/Auditionblue/status/2071564340864692681)｜[𝕏-牛仔look介绍](https://x.com/Auditionblue/status/2071531620675293397)
+    > **260630 杂志发售+小简发ins** ⇨ [𝓲简](https://www.instagram.com/p/DaNVYX_E69S/) 条纹衬衫又帅晕谁了……顺便快拍庆祝了第200条post(哥你太有仪式感了)｜[𝕏封面封底特典](https://x.com/auditionblue/status/2071940401678909755)
 * **260630【快拍】小简熬夜看球中: 日本vs巴西**
 * **260629【FC｜直播】21꞉15~ 电台直播** 有提到7/2会上DAZN的世界杯节目，当天节目出演表也出来了。
-* **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！**
+* **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！** ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2071475048502939874)
 * **260627【快拍】小简追星中: 去看了乃紫演唱会** 乃紫(ins@noa_aburasoba) 2026 tour @Tokyo 
 * **260625 CHANEL RADIO SHINE FM 香奈儿活动** 使用了『ROUGE COCO HYDRA GLOSS』443 ⇨ [𝓲简](https://www.instagram.com/p/DaAlGJGAcGG/)
 * **260625 小简在造型师津野真吾的频道Youtube出道~** 是香港宣传海报的拍摄工作 ⇨ [ins](https://www.instagram.com/p/DaAg0gTRrbK)｜[🆈【芸能人出演】俳優 簡秀吉さん登場！！ファッションスタイリスト津野真吾の1日に密着！](https://www.youtube.com/watch?v=6pcPwz-VUdc)
@@ -57,6 +59,7 @@ permalink: /solo/
     > **260529 情报解禁** ヒデヨシくんをチョコっと。 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2060214038878175249)
     > **260609 杂志发售+小简图透** ヒデヨシくんをチョコっと。 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[𝕏简-图透](https://x.com/kan_hideyoshi/status/2064317847854363087)｜[𝓲简(图多)](https://www.instagram.com/p/DZXRIUBAcAw/)
     > **260612 小简宣传视频** ⇨ [ins](https://www.instagram.com/reel/DZeE9zbhok7/)
+    > **260630 巧克力造型拍摄花絮** ⇨ [ins](https://www.instagram.com/p/DaNEiush5j-/) 超级帅！
 * **260609 2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票** 6/9~6/29,每人每天有免费的1～3票 ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2067163840261800432)｜[小简投票处](https://www.ayaglobal.club/idol/1331)
 * **260607 韩国清溪川照片** ⇨ [𝓲简](https://www.instagram.com/p/DZSBcNNAWbj/)
 
@@ -157,6 +160,7 @@ permalink: /solo/
 
 * **260730 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回** 19:00〜19:45
     > **260617 MC出演 配信決定🎉** 配信は11月までの全3回を予定。初回は7/30(木)19:00〜(45分番組) ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2067170394394779690)｜[配信地址](https://www.showroom-live.com/r/junonsuperboyclub)
+* **260716【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
     > **260612 ゲスト出演情报解禁**
     > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏(1min)](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
@@ -164,9 +168,11 @@ permalink: /solo/
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
     > **260626 出演情报解禁** 7/3（金）24:12〜，第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎 役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。
+* **260701 AI短剧「びっくりあいらんど」Season2 开始配信** 毛栗子洸大🈶
+    > **260630 Season2配信决定** 宣传视频里有洸大~ ⇨ [ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
+    > **260701「先生は、昭和アイドル」** ⇨ [ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
 
 ---
-* **260630 AI短剧「びっくりあいらんど」Season2配信决定** 宣传视频里有洸大~ ⇨ [ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨[𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
 * **260624《TV LIFE》13号(6/24)杂志发售** 不定期巻末連載『Time to Talk』登场, 有HMV在线购入特典
     > **260605 情报解禁** ⇨ [𝕏](https://x.com/tv_life/status/2062842331691405385) 

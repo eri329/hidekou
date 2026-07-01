@@ -46,8 +46,9 @@ permalink: /category/
 情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
 仅收录封面/栏目标题/粉丝扫图
 
+* **260701 Seventeen夏号** カップル胸きゅんストーリー ⇨ [封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕粉丝扫图](http://xhslink.com/o/75zutaSZrNq)
 * **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue}
-* **260630 Butter05（表紙）**
+* **260630 Butter05（HMV限定版表紙）**
 * **260609 FINEBOYS 7月号**
 * **260607 Emo!miu（web）**{: .text-red} ⇨ [采访](https://emomiu.jp/news/264220/)
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}

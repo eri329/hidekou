@@ -55,15 +55,19 @@ permalink: /
 
 <div class="line"></div>
 
+* **260701【杂志｜简秀吉】《Seventeen》夏号(7/1)杂志发售** 有超绝不经意提到洸大！⚠️注意这本是和女模特的BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
+    > #### 小简: 最近让我感到心动的是一件从古着店买的外套。这家店是共演过的藤本洸大介绍给我的，我们都很喜欢衣服，所以经常交流推荐的店铺！—— 又超绝不经意提洸大了！FM上都只说FK了这会儿倒是敢带上四个字大名了！仿佛一种走到哪炫耀到哪的孔雀行为……
+
 ### 2026.6
 {: #jun2026}
 
-* **260630【修学旅行】堀田生日快乐！** ⇨ [𝕏官方](https://x.com/dramal_abc/status/2071715511977828473)/[ins](https://www.instagram.com/p/DaL419jzViO/)
+* **260630【修学旅行】ModelPress「雨中场景」排行榜修仲雨中牵手第3位** ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
+* **260630【修学旅行】堀田生日快乐！** ⇨ [𝕏官方](https://x.com/dramal_abc/status/2071715511977828473)/[ins](https://www.instagram.com/p/DaL419jzViO/)｜[𝕏亲妈发推](https://x.com/rcnfe37/status/2071730664228131213)
 * **260630【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30)杂志发售** 简洸分别登场, 小简是封底
     > **260624 简秀吉底封登场情报解禁** ⇨ [𝕏文字解禁](https://x.com/FINEBOYS_JP/status/2069737311777313124)
     > **260625 封面封底解禁** 小简封底解禁+洸大登场解禁 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2070107235414384994)｜[ins封底](https://www.instagram.com/p/DaAdGW9JiGT/)
     > **260629 小简封底look拍摄花絮** ⇨ [ins](https://www.instagram.com/reels/DaKmji7haJU/) 只有10秒
-    > **260630 杂志发售+小简宣传视频** ⇨ [ins-封底](https://www.instagram.com/p/DaLJFFQSmDY/)｜[ins-封面](https://www.instagram.com/p/DaLI0yIShk5/) 官号介绍的时候又在捆绑……｜[ins-小简宣传视频](https://www.instagram.com/p/DaMeAvpyvx1/)
+    > **260630 杂志发售+小简宣传视频** ⇨ [ins-封底](https://www.instagram.com/p/DaLJFFQSmDY/)｜[ins-封面](https://www.instagram.com/p/DaLI0yIShk5/) 官号介绍的时候又在捆绑……｜[ins-小简宣传视频-条纹look](https://www.instagram.com/p/DaMeAvpyvx1/)｜[𝕏-出版社张贴海报中](https://x.com/FINEBOYS_JP/status/2071866326885228781)
 * **260625/260627【个人活动｜简秀吉｜藤本洸大】简洸都参加了CHANEL RADIO SHINE FM 香奈儿活动** ⇨ [𝓲简(6/25)](https://www.instagram.com/p/DaAlGJGAcGG/)｜[𝓲洸(6/27)](https://www.instagram.com/p/DaFqreUFB47/)
     > 6月24～26日の期間限定で東京・表参道;这个活动是专门宣传新品『ROUGE COCO HYDRA GLOSS』的，小简推了443洸大推了442,但是两个人可能不是同一天/同一场。洸大这场更像晚场，还看了live。
 * **260625【修学旅行｜双人】蓝光box追加特典台湾见面会(4/18)making放出**{: .text-red} ⇨ [𝕏-特典预告](https://x.com/dramal_abc/status/2069775132214936009)/[ins](https://www.instagram.com/p/DZ-GdTBzrAU/)｜[封面](https://x.com/tv_life/status/2068847970767003779)
