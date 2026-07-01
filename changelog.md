@@ -26,7 +26,7 @@ modelpress https://mdpr.jp/drama/4662220
 https://x.com/MINNANO_ENT korean event repost
 -->
 
-[ 2026-06-29 ] 同步更新
+[ 2026-06-29 ~ 2026-07-01 ] 同步更新
 
 [ 2026-06-27 ] 6月排版完毕
 

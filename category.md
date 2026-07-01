@@ -43,10 +43,13 @@ permalink: /category/
 * **251025 Emomiu藤本洸大×簡秀吉采访** ⇨ [采访](https://emomiu.jp/news/244577/)+应募拍立得
 
 ## 单人杂志(简 秀吉)
-情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
-仅收录封面/栏目标题/粉丝扫图
+{: #kan-magazine}
 
-* **260701 Seventeen夏号** カップル胸きゅんストーリー ⇨ [封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕粉丝扫图](http://xhslink.com/o/75zutaSZrNq)
+情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
+
+* **260707《andBOY》vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
+* **260701 PREPPY 8月号** 新連載 簡秀吉の「MY 4CUT」⇨ [𝕏封面](https://x.com/preppy_magazine/status/2066460713368125449)｜[📕扫图(kimlin)](http://xhslink.com/o/8oYheyCETor)
+* **260701 Seventeen夏号** カップル胸きゅんストーリー ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕扫图(kimlin)](http://xhslink.com/o/91xh8meuP1l)
 * **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue}
 * **260630 Butter05（HMV限定版表紙）**
 * **260609 FINEBOYS 7月号**
@@ -77,12 +80,14 @@ permalink: /category/
 * 2022年 JUNON 11月号
 
 ## 单人杂志(藤本 洸大)
-情报出处: [TopCoat官网](https://topcoat.co.jp/kodai_fujimoto/contents/schedule/magazine)
-仅收录封面/栏目标题/粉丝扫图
+{: #kou-magazine}
 
+情报出处: [TopCoat官网](https://topcoat.co.jp/kodai_fujimoto/contents/schedule/magazine)
+
+* **260707《andBOY》vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
 * **260630 FINEBOYS+plus FACE**{: .text-blue}
 * **260624 TV LIFE 13号** ⇨[封面目次](https://www.tvlife.jp/latest/793045)
-* **260622 JUNON 8月号** ⇨ [封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[相卡](https://x.com/eprintservice/status/2068861528162369542)/[相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
+* **260622 JUNON 8月号** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
 * **260610 推し楽！(web)** ⇨ [采访](https://fan.books.rakuten.co.jp/articles/8014)
 * **260607 Emo!miu（web）**{: .text-red} ⇨ [采访](https://emomiu.jp/news/264220/)
 * **260604 S Cawaii!特別編集　マブ ～永遠の絆～**

@@ -17,7 +17,7 @@ permalink: /
 
 [【单人物料】]({{ site.baseurl }}/solo/)
 [【平铺时间线】]({{ site.baseurl }}/flattened_timeline/)
-[【分类索引】]({{ site.baseurl }}/category/)
+[【分类索引】]({{ site.baseurl }}/category/) - 含杂志目录/扫图
 
 ### [2026](#year2026)
 * [2026.1](#jan2026) ｜ [2026.2](#feb2026) ｜ [2026.3](#mar2026) ｜ [2026.4](#apr2026) ｜ [2026.5](#may2026) ｜ [2026.6](#jun2026)
@@ -48,8 +48,14 @@ permalink: /
 ### 2026.7
 {: #jul2026}
 
-* **260713【修学旅行｜正片】日本映画専門チャンネル7/13放送1-5话** 是一个付费电视频道；7月13日(月)よる8時30分～ ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)
+* **260713【修学旅行｜正片】日本映画専門チャンネル修学旅行放送纪念特集** 是一个付费电视频道；7月13日(月)よる8時30分～ ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)
+    > 【2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集】 話題作「修学旅行で仲良くないグループに入りました」（全10話）を7月より2ヶ月にわたって放送。本作のW主演を務めた藤本洸大出演「舞台『それってキセキ』」をはじめ、簡秀吉、杢代和人出演の「映画 仮面ライダーギーツ 4人のエースと黒狐」、桜木雅哉出演のオリジナルドラマ「宇宙人の幸福（ハピネス）論」（全3話）もあわせてお届け。
     > **260620 放送告知** ⇨ [𝕏](https://x.com/nihoneiga/status/2068134269550219618)
+    > **260701 8月放送情报公开** 洸大出演的舞台剧『それってキセキ』也会在8/12, 8/28放送；眼镜洸大🈶 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)｜极狐剧场版 8/12, 8/17, 8/28放送 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030422_0001.html)
+    > **260713/260826 修学旅行1-5话**
+    > **260811/260827 修学旅行6-10话**
+* **260707【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 杂志发售** 简洸又分别登场了
+    > **260701 封面解禁** ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
 * **260704【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
     > **260628 TV再放送告知** ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)｜[𝕏亲妈发推欢迎回来～](https://x.com/RcNfe37/status/2071205079949189300)
 
@@ -61,7 +67,7 @@ permalink: /
 ### 2026.6
 {: #jun2026}
 
-* **260630【修学旅行】ModelPress「雨中场景」排行榜修仲雨中牵手第3位** ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
+* **260630【修学旅行】ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位** ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
 * **260630【修学旅行】堀田生日快乐！** ⇨ [𝕏官方](https://x.com/dramal_abc/status/2071715511977828473)/[ins](https://www.instagram.com/p/DaL419jzViO/)｜[𝕏亲妈发推](https://x.com/rcnfe37/status/2071730664228131213)
 * **260630【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30)杂志发售** 简洸分别登场, 小简是封底
     > **260624 简秀吉底封登场情报解禁** ⇨ [𝕏文字解禁](https://x.com/FINEBOYS_JP/status/2069737311777313124)
@@ -152,7 +158,7 @@ permalink: /
 * **260524【修学旅行】DXTEEN旋转木马修仲梗抖音小视频** 真的很好笑…… ⇨ [𝕏](https://x.com/official_DXTEEN/status/2058501044607615339)
 * **260522【修学旅行】日置生日快乐！** 同时预告5.23有告知（是五人见面会） ⇨ [𝕏修仲官方(图)](https://x.com/dramal_abc/status/2057657714604716049)｜[ins修仲(图)](https://www.instagram.com/p/DYnk1lTE2nF/)｜[𝕏亲妈发推](https://x.com/RcNfe37/status/2057594431533162613)｜[𝕏-漫画作者贺图](https://x.com/K_mugi5/status/2057766733348565230)
     > #### 简洸都在快拍祝贺了日置生日快乐~特别是小简凌晨1点就发了(好有心)，洸大晚上才发2333官方是中午12点发的XD
-* **260529【修学旅行】modelpress「最想和他当同学」排行榜结果** 日置第2名，渡会第8名！ ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
+* **260529【修学旅行】ModelPress日腐「最想当同学的角色」排行榜结果** 日置第2名，渡会第8名！ ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
 * **260509【杂志｜简秀吉｜藤本洸大】《FINEBOYS》6月号(5/9) 杂志发售** 简洸分别登场
     > **260501 封面公开** ⇨ [𝕏](https://x.com/hinode_pub/status/2050175903460954559)/[ins](https://www.instagram.com/p/DXy19O3jTa-/)
     > **260509 杂志发售+小简宣传&宣传视频** 撮影中のヒデヨシくん, 7P ⇨ [𝕏封面](https://x.com/hinode_pub/status/2052898844489175298)｜[𝕏简](https://x.com/kan_hideyoshi/status/2052950666172346742)｜[𝓲简(图更多)](https://www.instagram.com/p/DYGjkPigagJ/)｜[𝓲小简宣传视频](https://www.instagram.com/p/DYHLN6Xh2so/)
@@ -206,6 +212,7 @@ permalink: /
 ### 2026.4
 {: #apr2026}
 
+* **260430【修学旅行】ModelPress日腐「相遇名场面」排行榜修仲5位(第7话)** ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
 * **260422【杂志｜简秀吉｜藤本洸大】《JUNON》6月号(4/22) 杂志发售** 简洸分别登场
     > [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[详情](https://www.junon-tv.jp/articles/4315)
     > [𝕏洸大拍摄花絮](https://x.com/junon_jp/status/2046795030250336358)/[ins](https://www.instagram.com/reels/DXawg7nTjMC/)｜[𝕏小简拍摄花絮](https://x.com/JUNON_jp/status/2047963826440544267)/[ins](https://www.instagram.com/reels/DXjIB1HTYqr/)
@@ -399,7 +406,7 @@ permalink: /
     > 正主盖章：渡会日置和简洸的界限正在模糊……
     > 一个嗑美了的小简
 * **260224【修学旅行】真人纪念版小说封面开售** [𝕏](https://x.com/BeLuckbunko/status/2026254009410195721)｜[𝕏](https://x.com/dramal_abc/status/2027224674740981957)
-* **260220【修学旅行】Modelpress修仲喜爱场景排行榜公布** ⇨ [𝕏](https://x.com/modelpress/status/2024756184604168642)
+* **260220【修学旅行】ModelPress修仲最喜爱场景排行榜公布** ⇨ [𝕏](https://x.com/modelpress/status/2024756184604168642)
 * **260218【修学旅行】登上雅虎新闻** ⇨ [関西ローカルから放送終了後も続く余波。『修学旅行で仲良くないグループに入りました』が人気を呼んだ理由](https://news.yahoo.co.jp/expert/articles/0839a7d093cd7b7cd61c02643d5920b5b26531f3)
 * **260214【采访｜藤本洸大】web采访 推し楽:** ⇨ [采访](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
     > #### 讲了很多修仲，值得一读!!

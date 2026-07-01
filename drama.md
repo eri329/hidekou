@@ -54,14 +54,14 @@ permalink: /drama/
 > 27.4万←28.3万（L）←27.3万⑨←26.1万⑧←24.9万⑦←23.6万⑥←21.3万⑤←19.5万④←17.5万③←15.1万②←9.8万①←8.1万←6.4万←4.4万←2.1万
 
 ## 修学旅行榜单排行&受赏
-* 260630 ModelPress「雨中场景」排行榜修仲雨中牵手第3位 ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
+* 260630 ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位 ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
 * 260625 Oricon2026年上半年电视剧Box销量榜3位(2025/12/22~2026/6/15) ⇨ [豆瓣](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&start=1200&_i=2848605TnLQ0nB)
-* 260529 ModelPress「最想和他当同学」排行榜日置2位，渡会8位 ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
+* 260529 ModelPress日腐「最想当同学的角色」排行榜日置2位，渡会8位 ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
 * 260629 Oricon电视剧Box周榜8位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-06-29/) 不知为何突然冲了上来
 * 260608 Oricon电视剧Box周榜10位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-06-08/)
     > *5/14～6/8之间站长没有追踪所以数据缺失*{: .text-small}
 * 260514 Oricon蓝光Box周榜2位 ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
-* 260430 ModelPress「相遇名场面」排行榜修仲5位(第7话) ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
+* 260430 ModelPress日腐「相遇名场面」排行榜修仲5位(第7话) ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
 * 260406～250412 FOD Premium周榜9位 ⇨ [𝕏](https://x.com/fujitvplus/status/2043985112199541224)
 * 260401 HUB Award 2025: Best Japanese BL & Japan Highlight of the Year ⇨ [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)｜[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/)
 * 260330～250405 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2041108724975325445) 小修学又冲上来了!
