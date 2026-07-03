@@ -26,6 +26,9 @@ permalink: /solo/
     > **260622 第1话预告** 00:27~00:30小简出现 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2069000241597280718)
     > **260623 放送2周前宣传视频** 小简with男主 ⇨ [ins](https://www.instagram.com/reel/DZ7HSWKPH9q/)
     > **260630 新预告** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2071900169197813850)｜[ins](https://www.instagram.com/p/DaNLcxmP_4s/) ⚠️有事后躺床镜头
+    > **260703 小简宣传口播** 距离放送日还有4天！⇨ [𝕏](https://x.com/dramaism_mbs/status/2073016663549874516)/[ins](https://www.instagram.com/reels/DaVIUHgPTAZ/)
+* **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 9:30~ 【PARTY LIVE】コロンビア vs ガーナ : ラウンド32
+    > **260703 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2072913602835792082)
 * **260702 DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
     > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
     > **260629 节目解禁** 7/2 FIFA world cup daily highlight
@@ -176,21 +179,21 @@ permalink: /solo/
 * **260708 TVガイドWeb 采访 後編** ⇨
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
     > **260612 ゲスト出演情报解禁**
-    > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏(1min)](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
+    > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
     > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
-* **260703 TVガイドWeb 采访 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)
-    > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
     > **260626 出演情报解禁** 7/3（金）24:12〜，第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎 役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。
+* **260703 TVガイドWeb 采访 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
+    > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
 * **260701 AI短剧「びっくりあいらんど」Season2 开始配信** 毛栗子洸大🈶
-    > **260630 Season2配信决定** 宣传视频里有洸大~ ⇨ [ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
-    > **260701「先生は、昭和アイドル」** ⇨ [ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
-    > **260702 手紙リレーで重大発表 Season2配信决定** ⇨ [ins](https://www.instagram.com/reel/DaRkWuphn8P/)
-    > **260703 「恋リアみたいな転校生」** 背景板ing ⇨ [ins](https://www.instagram.com/p/DaUJJG4JmcN/)
+    > **260630 Season2配信决定** 宣传视频里有洸大~ ⇨ [𝕏](https://x.com/z_drama_ntv/status/2071793462811476317)/[ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
+    > **260701「先生は、昭和アイドル」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072174430273654832)/[ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
+    > **260702 手紙リレーで重大発表 Season2配信决定** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072514928238612640)/[ins](https://www.instagram.com/reel/DaRkWuphn8P/)
+    > **260703「恋リアみたいな転校生」** 背景板ing ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072878384296992929)/[ins](https://www.instagram.com/p/DaUJJG4JmcN/)
 
 ---
-* **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨[𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
+* **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
 * **260624《TV LIFE》13号(6/24)杂志发售** 不定期巻末連載『Time to Talk』登场, 有HMV在线购入特典
     > **260605 情报解禁** ⇨ [𝕏](https://x.com/tv_life/status/2062842331691405385) 
     > **260611 特典解禁** ⇨ [𝕏](https://x.com/tv_life/status/2064891912159699296)

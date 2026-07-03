@@ -53,7 +53,7 @@ permalink: /category/
 * **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue}
 * **260630 Butter05（HMV限定版表紙）**
 * **260609 FINEBOYS 7月号**
-* **260607 Emo!miu（web）**{: .text-red} ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)
+* **260607 Emo!miu（web）**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
 * **260509 FINEBOYS 6月号**{: .text-blue}
@@ -69,7 +69,7 @@ permalink: /category/
 * **260127 awesome! Plus Vol.45**
 
 ---
-* **251025 Emo!miu(web)**{: .text-red} ⇨ [【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)
+* **251025 Emo!miu(web)**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 * 2025年 TVガイドdan vol.57
 * 2025年 JUNON 11月号
 * 2025年 SEEK 11月号（表紙）
@@ -88,12 +88,12 @@ permalink: /category/
 * **260709 FINEBOYS 8月号**
 * **260708 TVガイドWeb(web) 後編**
 * **260707 andBOY vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
-* **260703 TVガイドWeb(web) 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)
+* **260703 TVガイドWeb(web) 前編** ⇨ <span>[「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)</span>{: .text-small}
 * **260630 FINEBOYS+plus FACE**{: .text-blue}
 * **260624 TV LIFE 13号** ⇨ [封面目次](https://www.tvlife.jp/latest/793045)
 * **260622 JUNON 8月号** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
-* **260610 推し楽！(web)** ⇨ [藤本洸大が「クロスロード」で向き合う“決断”――正解のない芝居を模索する日々](https://fan.books.rakuten.co.jp/articles/8014)
-* **260607 Emo!miu（web）**{: .text-red} ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)
+* **260610 推し楽！(web)** ⇨ <span>[藤本洸大が「クロスロード」で向き合う“決断”――正解のない芝居を模索する日々](https://fan.books.rakuten.co.jp/articles/8014)</span>{: .text-small}
+* **260607 Emo!miu（web）**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260604 S Cawaii!特別編集　マブ ～永遠の絆～**
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
@@ -130,7 +130,7 @@ permalink: /category/
 * **251104 CINEMA SQUARE**
 * **251031 GIANNA PLUS（表紙）**{: .text-red}
 * **251030 S Cawaii!**
-* **251025 Emo!miu(web)**{: .text-red} ⇨ [【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)
+* **251025 Emo!miu(web)**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 * **251023 月刊 TV navi**
 * **251016 別冊+act. 42号**
 * **251016 TVガイドdan vol.57**

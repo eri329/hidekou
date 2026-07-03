@@ -56,12 +56,14 @@ permalink: /
     > **260811/260827 修学旅行6-10话**
 * **260707【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 杂志发售** 简洸又分别登场了
     > **260701 封面解禁** ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
-* **260704【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
-    > **260628 TV再放送告知** ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)｜[𝕏亲妈发推欢迎回来～](https://x.com/RcNfe37/status/2071205079949189300)
 
 <div class="line"></div>
 
-* **【修学旅行】ちるちる映像大賞2026投票开始！** 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)
+* **260704【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
+    > **260628 TV再放送告知** ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)｜[𝕏亲妈发推欢迎回来～](https://x.com/RcNfe37/status/2071205079949189300)
+* **260703【修学旅行｜漫画】漫画第10话上线** ⇨ [𝕏](https://x.com/beluckbunko/status/2072988650426790386)
+* **260703【修学旅行｜漫画】漫画原作老师到池袋Animate画了色纸** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2072952799881765253)
+* **260702【修学旅行】ちるちる映像大賞2026投票开始！** 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)/[ins](https://www.instagram.com/p/DaSAWa9E3Xr/)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)
 * **260701【杂志｜简秀吉】《Seventeen》夏号(7/1)杂志发售** 有超绝不经意提到洸大！⚠️注意这本是和女模特的BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
     > #### 小简: 最近让我感到心动的是一件从古着店买的外套。这家店是共演过的藤本洸大介绍给我的，我们都很喜欢衣服，所以经常交流推荐的店铺！—— 又超绝不经意提洸大了！FM上都只说FK了这会儿倒是敢带上四个字大名了！仿佛一种走到哪炫耀到哪的孔雀行为……
 
@@ -110,6 +112,7 @@ permalink: /
     > **260620 小简宣传视频** ⇨ [ins](https://www.instagram.com/p/DZzZYwGiWlv/)｜[𝕏(图)](https://x.com/Emo_miu/status/2068266848983171139) <span>小简这里就正经了很多</span>{: .text-pink}
     > **260626 拍摄花絮**{: .text-red} ⇨ [𝕏](https://x.com/Emo_miu/status/2070453965054165129)/[ins](https://www.instagram.com/reel/DaC5YYdCcPm/)
     > #### 太甜了要在这个花絮里甜晕过去了！！两个人的脸贴近到只剩1cm的秀洸风味是最好最好嗑的……简秀吉这个爱意溢出的眼神，加上洸大捏简秀吉头发的小得意，好甜蜜一对xql……然后这个ins视频洸大共创(会显示在ins主页)+小简转发，三次也甜甜蜜蜜中……
+    > **260703 抽奖奖品图透** ⇨ [𝕏](https://x.com/Emo_miu/status/2072968852607275325/)
 * **260606【修学旅行｜双人】韩国见面会**{: .text-red}
     > 13:00/18:00 Donghae Culture & Arts Center(光云大学东海文化艺术馆) ⇨ [官网](https://www.asahi.co.jp/schooltrip/news/eventkorea.html)
     > **260413 定档6月6日** ⇨ [𝕏](https://x.com/p_en_kr/status/2043554933086326826)
@@ -470,7 +473,7 @@ permalink: /
     > **251227 狐猪杀青视频** ⇨ [𝕏杀青](https://x.com/dramal_abc/status/2004750622177067291)/[ins](https://www.instagram.com/p/DSwFi_1kz0R/)｜[𝕏拥抱](https://x.com/dramal_abc/status/2004887669407649897)/[ins](https://www.instagram.com/p/DSxDROGk492/) <span>到底是谁先张开手准备拥抱的呀～</span>{: .text-pink}
 * **251225【双人】狐猪手势舞小视频+合体比心** ⇨ [ins](https://www.instagram.com/p/DSrkB-DEx0D/)
 * **251223【修学旅行】最终回纪念应募活动** 简洸亲签拍立得 ⇨ [𝕏](https://x.com/dramal_abc/status/2003322514584535516)｜[详情](https://novema.jp/article/beluck/shunaka#present)
-* **251223【修学旅行】五天王xDXTEEN笑太郎x两片想Tiktok小视频** => [TT](https://www.tiktok.com/@official_dxteen/video/7587016776526040338) 
+* **251223【修学旅行】五天王xDXTEEN笑太郎x两片想Tiktok小视频** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7587016776526040338) 
 * **251221~251222【双人】狐猪对口型告白小视频2连发**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DShQ5W6E82T/) <span>超萌小猪喵💕</span>{: .text-pink}｜[ins](https://www.instagram.com/p/DSj2MV8Ey85/) <span>小猪告白的口型说的是渡会💕</span>{: .text-pink}
 * **251221【修学旅行｜直播｜藤本洸大】洸大的最终回同时视听大会(Reaction直播)**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DShxcPniSWr/)
 * **251220【修学旅行｜正片】最终回!25:00～ 第10话「一生心に残り続けていく日々」播出**{: .text-red}
