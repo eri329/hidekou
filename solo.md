@@ -19,6 +19,7 @@ permalink: /solo/
 * **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ
     > **260525 マイナビ TGC 2026 A/W(秋冬)出演決定!** ⇨ [𝕏](https://x.com/TGCnews/status/2058775066377367733)
     > **260603 小简宣传视频** TGC出演希望 個人部門で1位 ⇨ [𝕏](https://x.com/TGCnews/status/2062096953249288594) 表达了对第1位的感谢，以及对初次走秀的憧憬，最后还玩了一把抽象，很忙的一个视频www
+    > **260603 簡秀吉コラボ企画** 向大家征集想要小简实现的愿望 ⇨ [𝕏](https://x.com/tgcnews/status/2062098208109817903)
 * **260707 MBS电视剧「幸せになりたいマサムネ君」开播** ツバサ役 7月7日(火)MBS‣‣24:59〜 ／TBS‣‣25:26〜 ほか
     > **260612「幸せになりたいマサムネ君」（7/7）出演情报解禁** ツバサ役;是暗恋女主的男主朋友剧里还另有炮友；女主是洸大在「share」里也暗恋过的女主，好混乱的一锅粥hhh ⇨ [𝓲简-本人告知(图)](https://www.instagram.com/p/DZe1F1-ge14/)｜[𝕏](https://x.com/dramaism_mbs/status/2065373680314802324)｜[角色介绍](https://x.com/dramaism_mbs/status/2065375213085397217)
     > **260618 进组宣传视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2067585219461620164)/[ins](https://www.instagram.com/reel/DZuiSjAPAMp/)
@@ -29,13 +30,14 @@ permalink: /solo/
     > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
     > **260629 节目解禁** 7/2 FIFA world cup daily highlight
     > **260702 节目播出** ⇨ [𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)｜[📕小简cut中字(小半)](http://xhslink.com/o/7Dkj5wRcV5)｜[𝕏韩粉截的cut](https://x.com/merooonico/status/2072669388252320239)
+    > **260703 应募嘉宾签名T** ⇨ [𝕏嘉宾签名T(7/3)](https://x.com/DAZN_JPN/status/2072861224363233403)
 * **260701 CTV电视剧「おちたらおわり」开播** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **260617 出演情报解禁** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜 ⇨ [𝕏](https://x.com/official_MR8/status/2067224617107038401)｜[𝓲简告知](https://www.instagram.com/p/DZr9A8HAXnV/)
 * **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的新连载, 每期一张自拍+3张其他照片
     > **260527 新连载情报解禁+宣传视频1** ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
     > **260601 宣传视频2** ⇨ [𝕏宣传视频2](https://x.com/preppy_magazine/status/2061387280754053536)
-    > **260701 杂志发售** ⇨ [𝓲简](https://www.instagram.com/p/DaPrzrFAUfG/)
+    > **260701 杂志发售** ⇨ [𝓲简](https://www.instagram.com/p/DaPrzrFAUfG/)/[📕简(7/2)](http://xhslink.com/o/93Wx160jDdS)
 
 ---
 * **260630《Butter》05(6/30) HMV限定版W封面杂志发售**
@@ -49,6 +51,10 @@ permalink: /solo/
 * **260630【快拍】小简熬夜看球中: 日本vs巴西**
 * **260629【FC｜直播】21꞉15~ 电台直播** 有提到7/2会上DAZN的世界杯节目，当天节目出演表也出来了。
 * **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！** ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2071475048502939874)
+    > **260609 投票开始** 6/9~6/29,每人每天有免费的1～3票 ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2067163840261800432)｜[小简投票处](https://www.ayaglobal.club/idol/1331)
+    > **260617 小红书「Let's take first place」** ⇨ [📕简](http://xhslink.com/o/3UansmIRBAb)
+    <!-- > 5天前 http://xhslink.com/o/5CkZvY0SFAD
+    > 4天前 http://xhslink.com/o/9gDA0OouFr7 -->
 * **260627【快拍】小简追星中: 去看了乃紫演唱会** 乃紫(ins@noa_aburasoba) 2026 tour @Tokyo 
 * **260625 CHANEL RADIO SHINE FM 香奈儿活动** 使用了『ROUGE COCO HYDRA GLOSS』443 ⇨ [𝓲简](https://www.instagram.com/p/DaAlGJGAcGG/)
 * **260625 小简在造型师津野真吾的频道Youtube出道~** 是香港宣传海报的拍摄工作 ⇨ [ins](https://www.instagram.com/p/DaAg0gTRrbK)｜[🆈【芸能人出演】俳優 簡秀吉さん登場！！ファッションスタイリスト津野真吾の1日に密着！](https://www.youtube.com/watch?v=6pcPwz-VUdc)
@@ -57,13 +63,12 @@ permalink: /solo/
 * **260620 韩国见面会期间自拍** ⇨ [𝓲简](https://www.instagram.com/p/DZznuroAaXB/)
 * **260611 Mrs.GREEN APPLE presents『CEREMONY』活动** ⇨ [𝓲简](https://www.instagram.com/p/DZcmt1vAfwF/) 正装好帅！！
 * **260610 JO MALONE LONDON Veggies Collection活动** ⇨ [𝓲简](https://www.instagram.com/p/DZZ17Y4AdBd/) 这个条纹衬衫很好看！
-    > **260616 牧野造型师发图** Repost但更高清 ⇨ [ins](https://www.instagram.com/p/DZpLQ_eE1mS/)
+    > **260616 造型师牧野裕大发图** Repost但更高清 ⇨ [ins](https://www.instagram.com/p/DZpLQ_eE1mS/)
 * **260609《FINEBOYS》7月号(6/9)杂志发售**
     > **260529 情报解禁** ヒデヨシくんをチョコっと。 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2060214038878175249)
     > **260609 杂志发售+小简图透** ヒデヨシくんをチョコっと。 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[𝕏简-图透](https://x.com/kan_hideyoshi/status/2064317847854363087)｜[𝓲简(图多)](https://www.instagram.com/p/DZXRIUBAcAw/)
     > **260612 小简宣传视频** ⇨ [ins](https://www.instagram.com/reel/DZeE9zbhok7/)
     > **260630 巧克力造型拍摄花絮** ⇨ [ins](https://www.instagram.com/p/DaNEiush5j-/) 超级帅！
-* **260609 2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票** 6/9~6/29,每人每天有免费的1～3票 ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2067163840261800432)｜[小简投票处](https://www.ayaglobal.club/idol/1331)
 * **260607 韩国清溪川照片** ⇨ [𝓲简](https://www.instagram.com/p/DZSBcNNAWbj/)
 
 ---
@@ -72,20 +77,22 @@ permalink: /solo/
     > **260424 开票** ⇨ [📕简](http://xhslink.com/o/57c4Vg5Jlrh)/[ins](https://www.instagram.com/p/DXgqvsEAcsH/)
     > **260424~260425 造型师发图香港见面会周边图造型** ⇨ [𝓲-黑1](https://www.instagram.com/p/DXhG9wKk7Dr/)｜[𝓲-黑2](https://www.instagram.com/p/DXjtidxk5Kd/)
     > **260427 造型师摄影师发图** ⇨ [𝓲-白](https://www.instagram.com/p/DXolimsE-_s/)｜[𝓲-摄影师发图](https://www.instagram.com/p/DXonXobEXwy/)
-    > **260531 穿着金木研的T的夜晚散步+吃了火锅 @香港** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2061079264137822677)｜[ins(图多)](https://www.instagram.com/p/DZAR-S1AZoi/)
-    > **260603 牧野造型师发图** ⇨ [ins黑色领结](https://www.instagram.com/p/DZHwN2tE3L5/)｜Repost [ins-TVdan封面](https://www.instagram.com/p/DZHz822TR5B/)
-    > **260606 牧野造型师发图** ⇨ [ins黑色珍珠](https://www.instagram.com/p/DZOifrrzpWf/)
+    > **260529 小红书宣传香港见面会&周边** ⇨ [📕简](http://xhslink.com/o/7tZOwbOEbKm)
+    > **260531 穿着金木研的T的夜晚散步+吃了火锅 @香港** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2061079264137822677)｜[ins(图多)](https://www.instagram.com/p/DZAR-S1AZoi/)｜ [📕简](http://xhslink.com/o/6c8AF3aiPQN)
+    > **260603 造型师牧野裕大发图** ⇨ [ins黑色领结](https://www.instagram.com/p/DZHwN2tE3L5/)｜Repost [ins-TVdan封面](https://www.instagram.com/p/DZHz822TR5B/)
+    > **260606 造型师牧野裕大发图** ⇨ [ins黑色珍珠](https://www.instagram.com/p/DZOifrrzpWf/)
     > **260615 官方花絮照公布** ⇨ [ins](https://www.instagram.com/p/DZmm7KVxhia/)｜[GoogleDrive](https://drive.google.com/drive/folders/1oWtf0n4dhPH-Zh7loXttfw56ImUvdRqS)
+    > **260615 香港见面会周边线上通贩上线** ⇨ [📕简](http://xhslink.com/o/36Zl1yxVtAZ)
 * **260520 ins:光合成** 拍花中 ⇨ [𝓲简](https://www.instagram.com/p/DYjy-EpAWrf/)
 * **260509【直播】FC2周年见面会 FM5.9**{: .text-red}
     > **260314 FM3.14中告知本次见面会**
     > **260415 FM5.9直播配信票将于4/18开售** 4月18日（土）12:00～5月17日（日）20:00 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2044340416305328246)/[📕简](http://xhslink.com/o/48yObmZ7TZJ)/[微博](https://weibo.com/7984735683/QAVByD6Js)
     > **260429 见面会周边公开** online受注: 5月9日21:00〜5月15日23:59 ⇨ [𝕏](https://x.com/kan_hideyoshi/status/2049462031343079493)/[📕简](http://xhslink.com/o/8sPrTmDby9p)
     > **260502 宣传FM5.9周边T的春游** ⇨ [𝓲简](https://www.instagram.com/p/DX1aqPtgQdR/)｜[📕简(和ins图不一样)](http://xhslink.com/o/1zSWM5n6PW0)
-    > **260509 粉丝大合照+周边开售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2053075356140347593)/[𝓲简](https://www.instagram.com/p/DYHc_ThATmy/)｜[𝕏简-周边开售](https://x.com/kan_hideyoshi/status/2053083153481576811)
+    > **260509 粉丝大合照+周边开售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2053075356140347593)/[𝓲简](https://www.instagram.com/p/DYHc_ThATmy/)/[📕简](http://xhslink.com/o/3q9bv75PXys)｜[𝕏简-周边开售](https://x.com/kan_hideyoshi/status/2053083153481576811)
     > **260510 小简ins发FM照片** ⇨ [𝓲简](https://www.instagram.com/p/DYKBOf5AQ0h/)
     > **见面会物料** ⇨ [视频回顾](https://kan-hideyoshi.com/movies/128056)｜[文字+对镜自拍](https://kan-hideyoshi.com/member/photos/612140)｜[图1张(5/10)](https://kan-hideyoshi.com/member/photos/612506)｜[官方照片第一部(5/12)](https://kan-hideyoshi.com/group/39630)｜[官方照片第二部(5/13)](https://kan-hideyoshi.com/group/39638)
-    > **260512~260513 牧野造型师发图** Repost但更高清 ⇨ [ins1](https://www.instagram.com/p/DYOaNQSkdLc/)｜[ins2](https://www.instagram.com/p/DYQYxVFE2Pt/)｜[ins-候场视频-棕](https://www.instagram.com/p/DYRaMUkR83V/)｜[ins-候场视频-黑](https://www.instagram.com/p/DYTjV4IxAII/)
+    > **260512~260513 造型师牧野裕大发图** Repost但更高清 ⇨ [ins1](https://www.instagram.com/p/DYOaNQSkdLc/)｜[ins2](https://www.instagram.com/p/DYQYxVFE2Pt/)｜[ins-候场视频-棕](https://www.instagram.com/p/DYRaMUkR83V/)｜[ins-候场视频-黑](https://www.instagram.com/p/DYTjV4IxAII/)
 * **260505 儿童节发小小简照片** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2051636837345800346)
 
 ---
@@ -95,7 +102,7 @@ permalink: /solo/
 * **260413 小简开设小红书账号！**{: .text-red} ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址(4/14)](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)
 * **260413 小简宣布加入新事务所MR8**{: .text-red} 恭喜!!官网资料很齐全宣传照超级帅! ⇨ [官网](https://mr8.jp/talent/簡秀吉/)｜[𝕏简](https://x.com/kan_hideyoshi/status/2043615442208714846)｜[𝓲简](https://www.instagram.com/p/DXEOgKmAQXo/)｜[小简微博](https://weibo.com/7984735683/5287287484318292)｜[𝕏MR8](https://x.com/official_mr8/status/2043572899869753512)｜[𝓲MR8](https://www.instagram.com/p/DXD7TuDk20e/)｜[Oricon新闻](https://www.oricon.co.jp/news/2448553/full/)
     > **260417 宣传照拍摄花絮** [FCblog](https://kan-hideyoshi.com/movies/127412)｜[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
-    > **260420 牧野造型师发图** 宣材图, 没有新图 ⇨ [ins](https://www.instagram.com/p/DXVb3cpE6bB/)
+    > **260420 造型师牧野裕大发图** 宣材图, 没有新图 ⇨ [ins](https://www.instagram.com/p/DXVb3cpE6bB/)
 * **260401《Preppy》5月号(4/1) 杂志发售 & 海报展告知**{: .text-red}
     > **260218 情报解禁** 封面＆16P ３LOOK ⇨ [𝕏](https://x.com/preppy_magazine/status/2023958811040502198)
     > **260227 封面解禁** 樱花粉小简太美了！⇨ [𝕏](https://x.com/preppy_magazine/status/2027307721079615656)｜[𝕏简](https://x.com/kan_hideyoshi/status/2027307750846591088)｜[𝓲简](https://www.instagram.com/p/DVQWq7wATbY/)
@@ -103,7 +110,7 @@ permalink: /solo/
     > **260304 宣传视频1 LOOK PINK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029134769234014703)
     > **260306 宣传视频2 LOOK BLACK** ⇨ [𝕏](https://x.com/preppy_magazine/status/2029859539722371361)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2029861175610200232)｜[𝓲简(照片)](https://www.instagram.com/p/DVifz6UgSqE/)
     > **260309 宣传视频3 LOOK RED** ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲简(照片)](https://www.instagram.com/p/DVqOxLtAd3q/)
-    > **260311 牧野造型师发图** Repost但和小简发的略有不同 ⇨ [ins-樱花粉](https://www.instagram.com/p/DVvbhfIEwrU/)｜[ins-黑](https://www.instagram.com/p/DVvb0Seky_t/)｜[ins-红](https://www.instagram.com/p/DVvcBD6k2cL/)
+    > **260311 造型师牧野裕大发图** Repost但和小简发的略有不同 ⇨ [ins-樱花粉](https://www.instagram.com/p/DVvbhfIEwrU/)｜[ins-黑](https://www.instagram.com/p/DVvb0Seky_t/)｜[ins-红](https://www.instagram.com/p/DVvcBD6k2cL/)
     > **260401 杂志发售** [联动采访+新图](https://preppyweb.com/article/22901)｜[樱花粉跨页大图](https://heritage-onlineshop.com/products/preppy-202605-3)
     > 会自己做饭、控制饮食、吃玄米和优质脂肪的超绝自律贤惠的小简。
     > 春日歌单：《春泥棒》《夢追いベンガル》《ハルコイ》
@@ -122,7 +129,7 @@ permalink: /solo/
     > **260124 3.14FM全三场配信决定！** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2015030271628984688)｜[𝕏简-购票](https://x.com/kan_hideyoshi/status/2015030692657365138)
     > **260314 告知** Kan Hideyoshi FC 2nd Anniversary Event宣布举行 @2026.5.9 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2032795150213361728)｜[𝓲简](https://www.instagram.com/p/DV3Vn0kk78_/)
     > **260315 小简的感谢推** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2033120587661639877)｜[𝓲简](https://www.instagram.com/p/DV5p_dXgRfH/)
-    > **260316 牧野造型师发图** ⇨ [ins](https://www.instagram.com/p/DV7Ac-Sk9sx/)
+    > **260316 造型师牧野裕大发图** ⇨ [ins](https://www.instagram.com/p/DV7Ac-Sk9sx/)
 
 ----
 * **260209~260302 舞台剧『ピーターとアリス』公演**
@@ -166,17 +173,21 @@ permalink: /solo/
 * **260716【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
 * **260709 《FINEBOYS》8月号(7/9)杂志发售**
     > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
+* **260708 TVガイドWeb 采访 後編** ⇨
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
     > **260612 ゲスト出演情报解禁**
     > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏(1min)](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
     > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
+* **260703 TVガイドWeb 采访 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)
+    > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
     > **260626 出演情报解禁** 7/3（金）24:12〜，第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎 役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。
 * **260701 AI短剧「びっくりあいらんど」Season2 开始配信** 毛栗子洸大🈶
     > **260630 Season2配信决定** 宣传视频里有洸大~ ⇨ [ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
     > **260701「先生は、昭和アイドル」** ⇨ [ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
-    > **260703 手紙リレーで重大発表 Season2配信决定** ⇨ [ins](https://www.instagram.com/reel/DaRkWuphn8P/)
+    > **260702 手紙リレーで重大発表 Season2配信决定** ⇨ [ins](https://www.instagram.com/reel/DaRkWuphn8P/)
+    > **260703 「恋リアみたいな転校生」** 背景板ing ⇨ [ins](https://www.instagram.com/p/DaUJJG4JmcN/)
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨[𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
@@ -299,7 +310,7 @@ permalink: /solo/
 * **260227 Hulu「時計館の殺人」出演** 1-6话配信 渡辺涼介役
 * **260220《JUNON》4月5月合并号(2/20)杂志发售** ⇨ [情报](https://www.junon-tv.jp/articles/4215) 给洸大安排的是「藤本洸大 × あざと顔」栏目😇
     > **260218 登场情报解禁** ⇨ [𝕏宣传视频](https://x.com/JUNON_jp/status/2023955645746250055) 超级可爱超级あざとい的小猪和狗狗!
-    > **260312 抽赏活动开始** 3/12~4/2 ⇨ [𝕏](https://x.com/JUNON_jp/status/2032018870941466918)｜[𝕏告知(2/20)](https://x.com/JUNON_jp/status/2024740820927336548)
+    > **260312 くじ抽赏活动开始** 3/12~4/2 ⇨ [抽签&赏品页面](https://kuji.junon-tv.jp/lotteries/1259)｜[𝕏](https://x.com/JUNON_jp/status/2032018870941466918)｜[𝕏告知(2/20)](https://x.com/JUNON_jp/status/2024740820927336548)
 * **260217【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DU3EDxGFETv/)
 * **260216《Retro》2月号(2/16)封面登场&杂志预售**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DU0M7aAFIyX/)/[𝓲配置](https://www.instagram.com/p/DUu4ne0jzPV/)/[𝓲特典](https://www.instagram.com/p/DU21j-5j7A0/) Retro请人手一套好吗
     > **260209** [📕情报解禁&宣传视频](https://www.xiaohongshu.com/discovery/item/6989a234000000001a021293?source=webshare&xhsshare=pc_web&xsec_token=ABAoRtZM1xosEKEZqcEjdXdxPYb7oDp3o6Cpjp0H0-ro8=&xsec_source=pc_share)/[ins](https://www.instagram.com/p/DUiBAR-D3OH/)

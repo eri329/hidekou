@@ -22,7 +22,7 @@ layout: page
 
 <!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
-modelpress https://mdpr.jp/drama/4662220 
+modelpress https://mdpr.jp/drama/4662220, https://mdpr.jp/drama/detail/4701843
 https://x.com/MINNANO_ENT korean event repost
 -->
 
