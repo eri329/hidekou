@@ -42,28 +42,32 @@ permalink: /flattened_timeline/
 * **260730**
     > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回**{: .text-solo-k} 19:00〜19:45
 * **260716**
-    > **【直播｜藤本洸大】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
+    > **【直播｜藤本洸大】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k}
 * **260713**
     > **【修学旅行｜正片】日本映画専門チャンネル 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 是一个付费电视频道；7月13日(月)よる8時30分スタート；7/13, 8/26 ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)｜[详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
+* **260709**
+    > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)杂志发售**{: .text-solo-k}
 * **260707**
     > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7)杂志发售** 简洸分别登场
     > **【个人活动｜简秀吉】MBS电视剧「幸せになりたいマサムネ君」开播**{: .text-solo} ツバサ役 7月7日(火)MBS‣‣24:59〜 ／TBS‣‣25:26〜 ほか
     > **【个人活动｜藤本洸大】电视剧「クロスロード 〜救命救急の約束〜」开播**{: .text-solo-k} 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
 * **260704**
     > **【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
-* **260703**
-    > **【个人活动｜藤本洸大】电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播**{: .text-solo-k} 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
 
 <div class="line"></div>
 
+* **260703**
+    > **【个人活动｜藤本洸大】电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播**{: .text-solo-k} 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
 * **260702**
-    > **【个人活动｜简秀吉】DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
+    > **【修学旅行】ちるちる映像大賞2026投票开始！** 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)
+    > **【个人活动｜简秀吉】DAZN世界杯节目出演**{: .text-solo} DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)｜[𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)｜[📕小简cut中字(小半)](http://xhslink.com/o/7Dkj5wRcV5)｜[𝕏韩粉截的cut](https://x.com/merooonico/status/2072669388252320239)
+    > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)登场情报解禁**{: .text-solo-k} 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
 * **260701**
     > **【修学旅行】日本映画専門チャンネル 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 8月放送情报公开** 除修学旅行外，洸大出演的舞台剧『それってキセキ』也会在8/12, 8/28放送；眼镜洸大🈶 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)｜极狐剧场版 8/12, 8/17, 8/28放送 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030422_0001.html)
     > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7)封面解禁** 简洸又分别登场了 ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
-    > **【杂志｜简秀吉】《Seventeen》夏号(7/1)杂志发售** 有超绝不经意提到洸大！ ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
-    > **【杂志｜简秀吉】《Preppy》8月号(7/1)杂志发售** 簡秀吉の「MY 4CUT」持续一年的新连载 ⇨ [𝓲简](https://www.instagram.com/p/DaPrzrFAUfG/)｜[𝕏](https://x.com/preppy_magazine/status/2072236264565465462)｜[web联动(图)](https://preppyweb.com/article/30542)｜[𝕏](https://x.com/preppy_magazine/status/2066460713368125449)
-    > **【杂志｜简秀吉】《Butter》05(6/30) 图透** => [𝕏](https://x.com/Auditionblue/status/2072247588880068946)
+    > **【杂志｜简秀吉】《Seventeen》夏号(7/1)杂志发售**{: .text-solo} 有超绝不经意提到洸大！ ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
+    > **【杂志｜简秀吉】《Preppy》8月号(7/1)杂志发售**{: .text-solo} 簡秀吉の「MY 4CUT」持续一年的新连载, 每期一张自拍+3张其他照片 ⇨ [𝓲简](https://www.instagram.com/p/DaPrzrFAUfG/)｜[𝕏](https://x.com/preppy_magazine/status/2072236264565465462)｜[web联动(图)](https://preppyweb.com/article/30542)｜[𝕏](https://x.com/preppy_magazine/status/2066460713368125449)
+    > **【杂志｜简秀吉】《Butter》05(6/30) 图透**{: .text-solo} ⇨ [𝕏](https://x.com/Auditionblue/status/2072247588880068946)
     > **【个人活动｜简秀吉】CTV电视剧「おちたらおわり」开播**{: .text-solo} 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」Season2 开始配信**{: .text-solo-k}「先生は、昭和アイドル」回 毛栗子洸大 ⇨ [ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
 
@@ -283,7 +287,7 @@ permalink: /flattened_timeline/
         > 周边 ⇨ [𝕏简-周边开售](https://x.com/kan_hideyoshi/status/2053083153481576811)
         > **260509~260513** 见面会物料 ⇨ [视频回顾](https://kan-hideyoshi.com/movies/128056)｜[文字+对镜自拍](https://kan-hideyoshi.com/member/photos/612140)｜[图1张(5/10)](https://kan-hideyoshi.com/member/photos/612506)｜[官方照片第一部(5/12)](https://kan-hideyoshi.com/group/39630)｜[官方照片第二部(5/13)](https://kan-hideyoshi.com/group/39638)
 * **260508**
-    > **【修学旅行｜双人】蓝光box发售**{: .text-red} ⇨ [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)
+    > **【修学旅行｜双人】蓝光box发售**{: .text-red} ⇨ [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)｜[𝕏包装大图](https://x.com/tce_now/status/2052584276881998075/)
         > 狐猪双人宣传: 本日发售！特典时间小quiz 174分钟 ⇨ [𝕏](https://x.com/dramal_abc/status/2052584281831297175)/[ins](https://www.instagram.com/reel/DYD9LR6hy6h/)
         > Oricon当日1位 ⇨ [𝕏](https://x.com/oricon/status/2052690025721299295)
         > 亲妈发推祝贺 ⇨ [𝕏](https://x.com/RcNfe37/status/2053461049375105455)
@@ -511,7 +515,9 @@ permalink: /flattened_timeline/
 * **260319**
     > **【行程｜双人】《Preppy》6月号(5/1)拍摄**{: .text-grey}
     > **【修学旅行｜双人】公式书手渡会 周边情报** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2034555487333810403)
-    > **260319【直播｜藤本洸大】19:00〜 NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k} ⇨ [𝓲洸-回顾+咖啡厅活动告知](https://www.instagram.com/p/DWEMJkxFOhV/)
+    > **【修学旅行｜双人】台湾见面会(4/18) GagaOOLala VIP抽奖送票活动** ⇨ [𝕏](https://x.com/gagaoolala/status/2034585681876705708)
+    > **【修学旅行】守崎生日快乐！** ⇨ [𝕏](https://x.com/dramal_abc/status/2034587184603570283)
+    > **【直播｜藤本洸大】19:00〜 NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k} ⇨ [𝓲洸-回顾+咖啡厅活动告知](https://www.instagram.com/p/DWEMJkxFOhV/)
 * **260318**
     > **260318~260326【杂志｜简秀吉｜藤本洸大】《CYAN MAN》4月号(3/12) 小简9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWBR5OfGt3I/?img_index=1)
     > **260318~260325【杂志｜简秀吉｜藤本洸大】《CYAN MAN》4月号(3/12) 小简拍摄花絮** ⇨ [𝓲(3/18)](https://www.instagram.com/reel/DWBSY58Tbcs/)｜[𝓲(3/22)](https://www.instagram.com/reel/DWLlpbdT08S/)｜[𝓲(3/2(3/25)](https://www.instagram.com/reel/DWV40H8z5t1/)
@@ -547,6 +553,7 @@ permalink: /flattened_timeline/
     > **【杂志｜藤本洸大】《Blaze》1月号(1/17) 大屏案内**{: .text-solo-k} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2031572634966831344)｜[快拍合集](https://www.instagram.com/stories/highlights/17999715503889522/)
     > **【杂志｜藤本洸大】《S Cawaii!》5月号(3/17) 特典贴纸**{: .text-solo-k} ⇨ [𝕏](https://x.com/mag_scawaii/status/2031641931152007436)
 * **260309**
+    > **【修学旅行】渡会日置立绘展示中** 平日9:00〜18:00, 展示到5月末 ⇨ [𝕏](https://x.com/dramal_abc/status/2030941180524159315)｜[𝕏步汰打卡](https://x.com/official_DXTEEN/status/2037477072315224334)
     > **【杂志｜双人】《GIANNA BOYFRIEND》11(3/30) 拍摄花絮1** ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/2030837853492793701)
     > **【杂志｜简秀吉】《Preppy》5月号(4/1) 宣传视频3 LOOK RED**{: .text-solo} ⇨ [𝕏](https://x.com/preppy_magazine/status/2030946709312872943)｜[𝕏简(照片)](https://x.com/kan_hideyoshi/status/2030949588375585115)｜[𝓲简(照片)](https://www.instagram.com/p/DVqOxLtAd3q/)
     > **【杂志｜藤本洸大】《FINEBOYS》4月号(3/9) 杂志发售**{: .text-solo-k} ⇨ [ins洸大宣传视频(3/10)](https://www.instagram.com/reel/DVs5MzUEd3A/)
@@ -575,7 +582,7 @@ permalink: /flattened_timeline/
 {: #feb2026}
 
 * **260228**
-    > **【修学旅行】蓝光box设计初公开** ⇨ [𝕏](https://x.com/dramal_abc/status/2027700315768902040)｜[ins](https://www.instagram.com/p/DVSST2ok8Sl/?img_index=1)｜[𝕏店铺特典一览](https://x.com/dramal_abc/status/2027580128876986608)｜[𝕏电子版及特典](https://x.com/kadokawa_ls/status/2026778010389717389)｜[𝕏封面](https://x.com/KinoShinjuku/status/2008827365888254002)
+    > **【修学旅行】蓝光box设计初公开** ⇨ [𝕏](https://x.com/dramal_abc/status/2027700315768902040)｜[ins](https://www.instagram.com/p/DVSST2ok8Sl/?img_index=1)｜[𝕏店铺特典一览](https://x.com/dramal_abc/status/2027580128876986608)
     > **【直播｜藤本洸大】 ins直播 GREEN SPOON吃播**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DVTXkltiRFe/)
     > **【杂志｜藤本洸大】《TRENDiCON》No.14(2/16)图透**{: .text-solo-k} ⇨ [𝕏](https://x.com/trendicon_info/status/2027670108848722145)/[ins](https://www.instagram.com/p/DVTQIxlgevn/)
     > **【杂志｜藤本洸大】《Men's Preppy》4月号(2/28) 杂志发售+照片展(2/28-3/1)**{: .text-solo-k} ⇨ [𝕏照片展情报(2/28)](https://x.com/MensPREPPY/status/2027575734475047011)｜[𝕏照片展情报(3/1)](https://x.com/MensPREPPY/status/2027881506861895943)
@@ -585,12 +592,13 @@ permalink: /flattened_timeline/
     > **【杂志｜藤本洸大】《Men's Preppy》4月号(2/28) 照片展宣传(有图)**{: .text-solo-k} ⇨ [𝕏](https://x.com/MensPREPPY/status/2027330370614518041)
     > **【个人活动｜藤本洸大】Hulu「時計館の殺人」出演**{: .text-solo-k} 1-6话配信 渡辺涼介役
 * **260226**
+    > **【修学旅行】公式书公式写真集 电子版+特典+纪伊国屋赠送签名收据+特典小卡2** ⇨ [𝕏电子版及特典](https://x.com/kadokawa_ls/status/2026778010389717389)｜[𝕏特典收据](https://x.com/KinoUmeda/status/2026842731583336916)｜[𝕏纪伊国屋特典小卡2](https://x.com/KinoUmeda/status/2026842618307686897)
     > **【杂志｜藤本洸大】《Men's Preppy》4月号(2/28) heritage特典照片**{: .text-solo-k} ⇨ [𝕏](https://x.com/MensPREPPY/status/2026854744182964407)
 * **260225**
     > **【杂志｜藤本洸大】《TRENDiCON》No.14(2/16)追加特典**{: .text-solo-k} ⇨ [𝕏2-25](https://x.com/trendicon_info/status/2026628241352782070)/[ins](https://www.instagram.com/p/DVLhvaPD6rr/)
     > **【杂志｜藤本洸大】《Retro》2月号(2/16) LOOK1介绍(小香风)**{: .text-solo-k} ⇨ [📕](https://www.xiaohongshu.com/discovery/item/699ed8420000000028020a5f?source=webshare&xhsshare=pc_web&xsec_token=ABPr86ML7mkP339vaqfYW_oPWagj4b61erkCDLSABL6zE=&xsec_source=pc_share)/[ins](https://www.instagram.com/p/DVYNVuCD6CB/)
 * **260224**
-    > **【修学旅行】真人纪念版小说封面开售** [𝕏](https://x.com/BeLuckbunko/status/2026254009410195721)｜[𝕏](https://x.com/dramal_abc/status/2027224674740981957)
+    > **【修学旅行】真人纪念版小说封面开售+特别网页** [𝕏](https://x.com/BeLuckbunko/status/2026254009410195721)｜[𝕏](https://x.com/dramal_abc/status/2027224674740981957)｜[特别网页](https://novema.jp/article/beluck/shunaka#dekaobi)
 * **260223**
     > **【杂志｜藤本洸大】《Retro》2月号(2/16) 快问快答**{: .text-solo-k} ⇨ [📕](https://www.xiaohongshu.com/discovery/item/699c478e000000000e03c6ea?source=webshare&xhsshare=pc_web&xsec_token=ABWZI-VZDRo2y93qgF_H_DaeZnL9LlwiG3EV4JVaVjXFA=&xsec_source=pc_share)/[ins](https://www.instagram.com/p/DVGbXAMj4DJ/)
 * **260222**
@@ -599,6 +607,7 @@ permalink: /flattened_timeline/
     > **【杂志｜双人】《Starside》#2 Spring 2026(4/3)「Over the Moon」2分钟花絮视频** ⇨ [𝕏视频很糊](https://x.com/starside_x/status/2025163611123884147)/[官网-清晰版](https://www.starsidemagazine.com/)｜[𝕏歌手留言](https://x.com/asAhi_staff111/status/2025169467089846310)
     > **【杂志｜藤本洸大】《TRENDiCON》No.14(2/16)宣传视频**{: .text-solo-k} ⇨ [𝕏](https://x.com/trendicon_info/status/2025178689650995203)/[ins](https://www.instagram.com/p/DVBOkGLkfC-/)
 * **260220**
+    > **【修学旅行｜原作】真人纪念版小说封面解禁** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2024800051768512670)
     > **【修学旅行】Modelpress修仲最喜爱场景排行榜公布** ⇨ [𝕏](https://x.com/modelpress/status/2024756184604168642)
     > **【杂志｜双人】《Starside》#2 Spring 2026(4/3) 开启预约**
         > [𝕏官方封面更高清-D](https://x.com/starside_x/status/2024801568231747936)/[𝕏官方封面C](https://x.com/starside_x/status/2024801564037439495)/[𝕏官方封面A](https://x.com/starside_x/status/2024801555904647388)|[𝕏配置一览](https://x.com/starside_x/status/2024829552514748858)
@@ -711,6 +720,7 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】終点のあの子 电影公开**{: .text-solo-k} 大学友人役 ⇨ [官网](https://endof-theline.com/)
     > **【杂志｜藤本洸大】《Blaze》1月号(1/17) 小视频挂件小猪**{: .text-solo-k} ⇨ [📕](https://www.xiaohongshu.com/discovery/item/69735492000000000a029e8b?source=webshare&xhsshare=pc_web&xsec_token=ABAo-zOk1mhD_7HHiNCekf8C-2ABntOImK877Dl8KHBMQ=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2014655601897570639)/[ins](https://www.instagram.com/p/DT2dUIwE1Hj/)
 * **260122**
+    > **【修学旅行】最喜欢的场景读者调查** 1/22～2/9 ⇨ [𝕏](https://x.com/modelpress/status/2014246949088870836)
     > **【SNS｜藤本洸大】成人式**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DT0CKbZlHwx/)
     > **【杂志｜藤本洸大】《Blaze》1月号(1/17) 单词连读挑战游戏**{: .text-solo-k} ⇨ [📕](https://www.xiaohongshu.com/discovery/item/69720375000000000a02e841?source=webshare&xhsshare=pc_web&xsec_token=ABeKi32Oy9xEWGGcWfQSyMm3NvsF_Hfzrejd7UAicp1Aw=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2014294388890009986)
     > **【杂志｜藤本洸大】《Higoto日每》(1/1) 杂志内容**{: .text-solo-k} ⇨ [𝓲-服装改造采访](https://www.instagram.com/p/DTzmoiUky1c/)
@@ -754,6 +764,7 @@ permalink: /flattened_timeline/
 * **260107**
     > **【修学旅行】OST上线** ⇨ [𝕏](https://x.com/dramal_abc/status/2008690855469891897)｜[🆈Youtube Music](https://music.youtube.com/playlist?list=OLAK5uy_nABGX9DWKvssj5OQtduPBQL5oi5qnA29Y)｜[各平台一览](https://nex-tone.link/A00209589)
     > 作者鈴木ヤスヨシ感谢OST进入iTunes trend ⇨ [𝕏](https://x.com/Yasu_coda/status/2008853925462773796)
+    > **【修学旅行】公式书纪伊国屋照片展告知+线下特典** ⇨ [𝕏照片展情报](https://x.com/KinoShinjuku/status/2008827365888254002)｜[𝕏纪伊国屋特典](https://x.com/KinoShinjuku/status/2008827374696292429)
     > **【直播｜藤本洸大】新年ins直播**{: .text-solo-k}  ⇨ [𝓲洸](https://www.instagram.com/p/DTNhoUziWmG/)
     > **【杂志｜藤本洸大】《Higoto日每》(1/1) 花絮视频**{: .text-solo-k} ⇨ [𝓲-BTS1](https://www.instagram.com/reel/DTM-fF1E6_8/)
 * **260105**
@@ -810,7 +821,7 @@ permalink: /flattened_timeline/
     > **【修学旅行｜双人】狐猪小视频** ⇨ [𝕏圣诞祝贺+番外宣传](https://x.com/dramal_abc/status/2003752510910050698)/[ins](https://www.instagram.com/p/DSo_GFyE084/)
     > **【杂志｜藤本洸大】《Higoto日每》(12/1) 杂志内容**{: .text-solo-k} ⇨ [𝓲-一个人的圣诞](https://www.instagram.com/p/DSo3Cngk-kl/)
 * **251223**
-    > **【修学旅行】最终回纪念应募活动** 特典简洸亲签拍立得 ⇨ [𝕏](https://x.com/dramal_abc/status/2003322514584535516)
+    > **【修学旅行】最终回纪念应募活动** 特典简洸亲签拍立得 ⇨ [𝕏](https://x.com/dramal_abc/status/2003322514584535516)｜[详情](https://novema.jp/article/beluck/shunaka#present)
     > **【修学旅行｜双人】最终回简洸Reaction片段视频**
         > [𝕏Re渡会的暴言](https://x.com/dramal_abc/status/2003430622577217897)/[ins](https://www.instagram.com/p/DSmsjZCglxV/)｜[𝕏-不想结束的小简](https://x.com/dramal_abc/status/2003413286663127474)/[ins](https://www.instagram.com/p/DSmk_WWgh1g/)
 * **251222**

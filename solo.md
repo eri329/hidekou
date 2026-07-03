@@ -28,9 +28,10 @@ permalink: /solo/
 * **260702 DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
     > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
     > **260629 节目解禁** 7/2 FIFA world cup daily highlight
+    > **260702 节目播出** ⇨ [𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)｜[📕小简cut中字(小半)](http://xhslink.com/o/7Dkj5wRcV5)｜[𝕏韩粉截的cut](https://x.com/merooonico/status/2072669388252320239)
 * **260701 CTV电视剧「おちたらおわり」开播** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **260617 出演情报解禁** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜 ⇨ [𝕏](https://x.com/official_MR8/status/2067224617107038401)｜[𝓲简告知](https://www.instagram.com/p/DZr9A8HAXnV/)
-* **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的连载
+* **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的新连载, 每期一张自拍+3张其他照片
     > **260527 新连载情报解禁+宣传视频1** ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
     > **260601 宣传视频2** ⇨ [𝕏宣传视频2](https://x.com/preppy_magazine/status/2061387280754053536)
@@ -163,6 +164,8 @@ permalink: /solo/
 * **260730 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回** 19:00〜19:45
     > **260617 MC出演 配信決定🎉** 配信は11月までの全3回を予定。初回は7/30(木)19:00〜(45分番組) ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2067170394394779690)｜[配信地址](https://www.showroom-live.com/r/junonsuperboyclub)
 * **260716【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
+* **260709 《FINEBOYS》8月号(7/9)杂志发售**
+    > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
     > **260612 ゲスト出演情报解禁**
     > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏(1min)](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
@@ -173,6 +176,7 @@ permalink: /solo/
 * **260701 AI短剧「びっくりあいらんど」Season2 开始配信** 毛栗子洸大🈶
     > **260630 Season2配信决定** 宣传视频里有洸大~ ⇨ [ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
     > **260701「先生は、昭和アイドル」** ⇨ [ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
+    > **260703 手紙リレーで重大発表 Season2配信决定** ⇨ [ins](https://www.instagram.com/reel/DaRkWuphn8P/)
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨[𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)

@@ -60,7 +60,7 @@ permalink: /drama/
 * 260629 Oricon电视剧Box周榜8位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-06-29/) 不知为何突然冲了上来
 * 260608 Oricon电视剧Box周榜10位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-06-08/)
     > *5/14～6/8之间站长没有追踪所以数据缺失*{: .text-small}
-* 260514 Oricon蓝光Box周榜2位 ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
+* 260514 Oricon蓝光Box周榜2位(5/18付) ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
 * 260430 ModelPress日腐「相遇名场面」排行榜修仲5位(第7话) ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
 * 260406～250412 FOD Premium周榜9位 ⇨ [𝕏](https://x.com/fujitvplus/status/2043985112199541224)
 * 260401 HUB Award 2025: Best Japanese BL & Japan Highlight of the Year ⇨ [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)｜[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/)

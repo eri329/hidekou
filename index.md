@@ -61,6 +61,7 @@ permalink: /
 
 <div class="line"></div>
 
+* **【修学旅行】ちるちる映像大賞2026投票开始！** 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)
 * **260701【杂志｜简秀吉】《Seventeen》夏号(7/1)杂志发售** 有超绝不经意提到洸大！⚠️注意这本是和女模特的BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
     > #### 小简: 最近让我感到心动的是一件从古着店买的外套。这家店是共演过的藤本洸大介绍给我的，我们都很喜欢衣服，所以经常交流推荐的店铺！—— 又超绝不经意提洸大了！FM上都只说FK了这会儿倒是敢带上四个字大名了！仿佛一种走到哪炫耀到哪的孔雀行为……
 
@@ -170,11 +171,11 @@ permalink: /
     > **260626 简秀吉图透**「ヒデヨシくん、撮影入りまーす！」 ⇨ [ins](https://www.instagram.com/p/DaCO82zkp1n/)
 * **260508【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)｜[🆈Official Audio](https://www.youtube.com/watch?v=NNyvLNoHYfA)
 * **260508【修学旅行｜双人】蓝光box发售**{: .text-red} ⇨ 初动6101
-    > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)
+    > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)｜[𝕏包装大图](https://x.com/tce_now/status/2052584276881998075/)
     > **251219 蓝光box发售决定&开始预约** ⇨ [𝕏特典情报](https://x.com/dramal_abc/status/2001942876432076937)/[ins](https://www.instagram.com/p/DScIVk9E3Vz/)
     > **260215 PR解禁** 特典包括: 修学旅行making, 圣诞上映会，最终回双人reaction
     > [𝕏PR视频](https://x.com/dramal_abc/status/2022702374196846893)/[ins](https://www.instagram.com/p/DUvof0ODzHn/) <span>看完无人会不想买box！感觉此视频已被狐猪妹盘包浆</span>{: .text-pink}
-    > **260228 蓝光box设计初公开** ⇨ [𝕏](https://x.com/dramal_abc/status/2027700315768902040)｜[ins](https://www.instagram.com/p/DVSST2ok8Sl/?img_index=1)｜[𝕏店铺特典一览](https://x.com/dramal_abc/status/2027580128876986608)｜[𝕏电子版及特典](https://x.com/kadokawa_ls/status/2026778010389717389)｜[𝕏封面](https://x.com/KinoShinjuku/status/2008827365888254002)
+    > **260228 蓝光box设计初公开** ⇨ [𝕏](https://x.com/dramal_abc/status/2027700315768902040)｜[ins](https://www.instagram.com/p/DVSST2ok8Sl/?img_index=1)｜[𝕏店铺特典一览](https://x.com/dramal_abc/status/2027580128876986608)
     > **260308 蓝光box追加特典台湾见面会making** ⇨ [𝕏](https://x.com/dramal_abc/status/2030312524504027431)/[ins](https://www.instagram.com/p/DVltM0Rkyld/)｜[711(3/13)](https://x.com/7_netshopping/status/2032328299972620599) ｜ [蓝光box情报](https://www.asahi.co.jp/schooltrip/goods/)
     > **260501 狐猪预制小视频 - 倒计时1周+推荐box看点** 看起来像是3/22东京手渡会拍的 ⇨ [𝕏](https://x.com/dramal_abc/status/2050138168066814265)/[ins](https://www.instagram.com/reel/DXykyRdBCCW/)
     > **260505 推荐观看顺序** 最终回reaction -> 花絮 -> 上映会 ⇨ [𝕏](https://x.com/dramal_abc/status/2051633014556238206)/[ins](https://www.instagram.com/p/DX9MmGSk3eT/)
@@ -238,6 +239,7 @@ permalink: /
     > **260503** [微博-品牌方新图](https://weibo.com/7061972932/QDBGB8t6l)
 * **260418【修学旅行｜双人】台湾见面会**{: .text-red}
     > **260301 台湾见面会定档4/18** ⇨ [𝕏](https://x.com/dramal_abc/status/2027783353915625940)/[ins](https://www.instagram.com/p/DVTvCWpEUWP/)
+    > **260319 GagaOOLala VIP抽奖送票活动** ⇨ [𝕏](https://x.com/gagaoolala/status/2034585681876705708)
     > **260327** [𝕏情报](https://x.com/manga10_tw/status/2037471140638310839)｜[活动详情](https://world.manga10.com/blogs/eventstaiwan/shugakuryokofm2026)
     > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}｜[FCblog更新](https://kan-hideyoshi.com/member/photos/609823)
     > **260418** [yahoo新闻(视频)(look1)(已删除)](https://news.yahoo.co.jp/articles/f9c7570f8d84ec91c48acd7c1b2c8d449b124982)/[𝕏新闻转载](https://x.com/altjdsus__/status/2045481021970514176)｜[修仲公式𝕏](https://x.com/dramal_abc/status/2045480150788456897)
@@ -369,6 +371,7 @@ permalink: /
     > #### 角川官方已带上#ひでこう建設tag，是会嗑的😇
     > **260403～260420 手渡会场贩周边已开通贩** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2039991414986326114)
     > **260319 手渡会周边情报** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2034555487333810403)
+* **260329【修学旅行】守崎生日快乐！** ⇨ [𝕏](https://x.com/dramal_abc/status/2034587184603570283)
 * **260315【修学旅行｜藤本洸大】洸大ins发了大量疑似修学旅行片场风景照**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DV5_H11FI6u/)
     > #### 小猪你也在想念修仲了吗？
 * **260315【修学旅行｜双人】上线韩国Heavenly** ⇨ [𝕏宣传视频](https://x.com/heavenly_pick/status/2033151232098054342)｜[𝕏亲妈发推祝贺](https://x.com/RcNfe37/status/2033854211394572756)
@@ -391,21 +394,26 @@ permalink: /
     > **260327~260404 CYAN MAN 洸大9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWYdGqoml8T/?img_index=1)
     > **260328~260402 洸大拍摄花絮** ⇨ [𝓲-白(3/28)](https://www.instagram.com/reel/DWbCY7GTXYa/)｜[𝓲-粉(3/31)](https://www.instagram.com/reel/DWiwulJTDII/) | [𝓲-黄蓝(4/2)](https://www.instagram.com/reel/DWn6XZOTA-M/)
     > #### 被第3条的笑容击倒!!为什么小猪的花絮全是躺倒的hhh他真的随地大小躺☺️
+* **260309【修学旅行】渡会日置立绘展示中** 平日9:00〜18:00, 展示到5月末 ⇨ [𝕏](https://x.com/dramal_abc/status/2030941180524159315)｜[𝕏步汰打卡](https://x.com/official_DXTEEN/status/2037477072315224334)
 * **260302【修学旅行】纪伊国屋书店2026/2/23～3/1best seller** ⇨ [𝕏](https://x.com/Kinokuniya/status/2028363528592400861)
 
 ### 2026.2
 {: #feb2026}
 * **260227【修学旅行】公式书公式写真集发售**{: .text-red}
-    > [𝕏角川限定封面](https://x.com/dramal_abc/status/2027580128876986608)｜[𝕏纪伊国屋梅田店照片展](https://x.com/KinoUmeda/status/2027198278270640531)
     > **251214 公式书发售决定+封面+特典情报** ⇨ [𝕏封面](https://x.com/dramal_abc/status/1999875360746537000)/[ins](https://www.instagram.com/p/DSNb52ok_Cb/)
     > 特典: 日亚(明信片)/角川(特别封面)/乐天(特典花絮)/711(特典花絮)/两位主演FC ⇨ [𝕏](https://x.com/kadokawa_ls/status/1999875758618296491)
     > #### FC特典的生写还是从公式书合照里直接截的，分别买还能凑回一张……狐猪妹被精准狙击的一集
     > **260105 公式书宣传视频** ⇨ [𝓲洸](https://www.instagram.com/p/DTIN0hKiRPT/)
+    > **260107 纪伊国屋照片展情报+线下特典** 新宿本店・梅田本店限定ミニフォトカード ⇨ [𝕏照片展告知]([𝕏照片展情报](https://x.com/KinoShinjuku/status/2008827365888254002))｜[𝕏特典小卡](https://x.com/KinoShinjuku/status/2008827374696292429) <span>这张特典特别美！！</span>{: .text-pink}
     > **260112 公式书狐猪开箱版**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DTaLq-HiX4v/)
     > 小猪特意说了这个不是他剪的www
     > 正主盖章：渡会日置和简洸的界限正在模糊……
     > 一个嗑美了的小简
-* **260224【修学旅行】真人纪念版小说封面开售** [𝕏](https://x.com/BeLuckbunko/status/2026254009410195721)｜[𝕏](https://x.com/dramal_abc/status/2027224674740981957)
+    > **260226 电子版情报及特典** ⇨ [𝕏电子版及特典](https://x.com/kadokawa_ls/status/2026778010389717389)
+    > **260226 纪伊国屋赠送签名收据** ⇨ [𝕏](https://x.com/KinoUmeda/status/2026842731583336916)｜[𝕏特典小卡2](https://x.com/KinoUmeda/status/2026842618307686897)
+    > **260227 公式书发售+照片展** ⇨ [𝕏角川限定封面](https://x.com/kadokawastore/status/2027213876929212554)｜[𝕏纪伊国屋梅田店照片展](https://x.com/KinoUmeda/status/2027198278270640531)
+* **260224【修学旅行】真人纪念版小说封面开售** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2026254009410195721)｜[𝕏](https://x.com/dramal_abc/status/2027224674740981957)｜[特别网页](https://novema.jp/article/beluck/shunaka#dekaobi)
+    > **260220 封面解禁** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2024800051768512670)
 * **260220【修学旅行】ModelPress修仲最喜爱场景排行榜公布** ⇨ [𝕏](https://x.com/modelpress/status/2024756184604168642)
 * **260218【修学旅行】登上雅虎新闻** ⇨ [関西ローカルから放送終了後も続く余波。『修学旅行で仲良くないグループに入りました』が人気を呼んだ理由](https://news.yahoo.co.jp/expert/articles/0839a7d093cd7b7cd61c02643d5920b5b26531f3)
 * **260214【采访｜藤本洸大】web采访 推し楽:** ⇨ [采访](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
@@ -433,6 +441,7 @@ permalink: /
     > 后篇 [母への超絶反抗期を後悔「絵に描いたような反抗少年でした（笑）」](https://storyweb.jp/lifestyle/680232/)
     >  ⇨ <span>讲了一些进入演艺圈的契机和展望，站长已被这套造型迷晕</span>{: .text-pink}
     > 特別cut集 [あどけなさと艶やかさが共存する唯一無二の色気](https://storyweb.jp/lifestyle/680307/)
+* **260122【修学旅行】最喜欢的场景读者调查** 1/22～2/9 ⇨ [𝕏](https://x.com/modelpress/status/2014246949088870836)
 * **260119【修学旅行】thetv报道** ⇨ [藤本洸大“日置”×簡秀吉“渡会”によるキュンが大渋滞「修学旅行で仲良くないグループに入りました」アフターストーリーが尊い](https://thetv.jp/news/detail/1320817/)
 * **260110【修学旅行】官方X最后一条常规投稿** ⇨ [𝕏修仲拍摄花絮](https://x.com/dramal_abc/status/2009928588632764733)/[ins](https://www.instagram.com/p/DTU3UMkE7b8/)
     > #### 特别幸福幸福到会流泪的一条视频, BGM是站长《main theme》里第二喜欢的一段(泪)
@@ -459,7 +468,8 @@ permalink: /
     > **251224 狐猪小视频** ⇨ [𝕏圣诞祝贺+番外宣传](https://x.com/dramal_abc/status/2003752510910050698)/[ins](https://www.instagram.com/p/DSo_GFyE084/)
     > **251225 番外篇前篇配信PR** ⇨ [𝕏](https://x.com/dramal_abc/status/2004145410814943333)/[ins](https://www.instagram.com/p/DSpM2MkE-rl/)
     > **251227 狐猪杀青视频** ⇨ [𝕏杀青](https://x.com/dramal_abc/status/2004750622177067291)/[ins](https://www.instagram.com/p/DSwFi_1kz0R/)｜[𝕏拥抱](https://x.com/dramal_abc/status/2004887669407649897)/[ins](https://www.instagram.com/p/DSxDROGk492/) <span>到底是谁先张开手准备拥抱的呀～</span>{: .text-pink}
-* **251225【双人】狐猪手势舞小视频+合体比心** ⇨ [ins](https://www.instagram.com/p/DSrkB-DEx0D/) 
+* **251225【双人】狐猪手势舞小视频+合体比心** ⇨ [ins](https://www.instagram.com/p/DSrkB-DEx0D/)
+* **251223 最终回纪念应募活动** 简洸亲签拍立得 ⇨ [𝕏](https://x.com/dramal_abc/status/2003322514584535516)｜[详情](https://novema.jp/article/beluck/shunaka#present)
 * **251221~251222【双人】狐猪对口型告白小视频2连发**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DShQ5W6E82T/) <span>超萌小猪喵💕</span>{: .text-pink}｜[ins](https://www.instagram.com/p/DSj2MV8Ey85/) <span>小猪告白的口型说的是渡会💕</span>{: .text-pink}
 * **251221【修学旅行｜直播｜藤本洸大】洸大的最终回同时视听大会(Reaction直播)**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DShxcPniSWr/)
 * **251220【修学旅行｜正片】最终回!25:00～ 第10话「一生心に残り続けていく日々」播出**{: .text-red}
@@ -478,7 +488,6 @@ permalink: /
     > **251223 最终回简洸Reaction片段视频**
     > [𝕏Re渡会的暴言](https://x.com/dramal_abc/status/2003430622577217897)/[ins](https://www.instagram.com/p/DSmsjZCglxV/)｜[𝕏-不想结束的小简](https://x.com/dramal_abc/status/2003413286663127474)/[ins](https://www.instagram.com/p/DSmk_WWgh1g/)
     > #### 特别能共鸣小简；；全体狐猪妹会跟小简一起哭
-    > **251223 最终回纪念应募活动** 特典简洸亲签拍立得 ⇨ [𝕏](https://x.com/dramal_abc/status/2003322514584535516)
     > **251229 TVguide repo** ⇨ [「恋人になってってことだよ」日置が渡会に思いを告げた「修学旅行」最終回](https://www.tvguide.or.jp/feature/feature-4248910/)/[𝕏剧照4张](https://x.com/TVGweb/status/2005603669920841788)
 * **251219【修学旅行｜双人】最终回先行上映会**{: .text-red}
     >【1部】16:30 START 【2部】19:30 START @ユナイテッド・シネマ 豊洲; 影院同步放映 ⇨ [详情](https://liveviewing.jp/schooltrip/)
