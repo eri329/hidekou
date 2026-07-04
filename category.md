@@ -33,14 +33,17 @@ permalink: /category/
 * **251018 修学旅行开播 双人首次直播**
 
 ## 双人杂志 & 采访
-* **260607 Emo!miu（web）** ⇨ [采访](https://emomiu.jp/news/264220/)
+* **260607 Emo!miu x Clayge联动企画（web）** 应募亲签洗发水+晒单抽送周边 ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260501《Preppy》6月号 双人封面** 3版随机特典+海报展特典+应募拍立得+[联动采访](https://preppyweb.com/article/26576)
 * **260420《Retro》双人特刊** 3版封面大全套打包 ⇨ [📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)
 * **260403《Starside》#2 Spring 2026 双人特刊** ABCD3版封面+大全套set ⇨ [𝕏配置](https://x.com/starside_x/status/2024829552514748858)
 * **260330《GIANNA BOYFRIEND》11 双人底封** 底封+A4双面特典+[联动采访](https://gianna.jp/archives/8695)
 * **260324 中国首封《Lemon凝眸》＜This Moment’s Youth＞ 双人特刊** A+B版封面+全套典藏版set
+* **251121《JUNON》1月号**
+* **251121《月刊TVガイド》1月号** ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)
+* **251031《GIANNA PLUS》** 封面
 * **251030《S Cawaii!特別編集　Pair 尊い二人。》** 4版随机特典+应募拍立得
-* **251025 Emomiu藤本洸大×簡秀吉采访** ⇨ [采访](https://emomiu.jp/news/244577/)+应募拍立得
+* **251025 Emo!miu藤本洸大×簡秀吉采访（web）** 应募拍立得 ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 
 ## 单人杂志(简 秀吉)
 {: #kan-magazine}
@@ -53,7 +56,7 @@ permalink: /category/
 * **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue}
 * **260630 Butter05（HMV限定版表紙）**
 * **260609 FINEBOYS 7月号**
-* **260607 Emo!miu（web）**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
+* **260607 Emo!miu（web）**{: .text-red}
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
 * **260509 FINEBOYS 6月号**{: .text-blue}
@@ -69,7 +72,10 @@ permalink: /category/
 * **260127 awesome! Plus Vol.45**
 
 ---
-* **251025 Emo!miu(web)**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
+* **251121 JUNON 1月号**{: .text-red}
+* **251121 月刊TVガイド 1月号**{: .text-red}
+* **251030 S Cawaii!**{: .text-red}
+* **251025 Emo!miu(web)**{: .text-red}
 * 2025年 TVガイドdan vol.57
 * 2025年 JUNON 11月号
 * 2025年 SEEK 11月号（表紙）
@@ -93,7 +99,7 @@ permalink: /category/
 * **260624 TV LIFE 13号** ⇨ [封面目次](https://www.tvlife.jp/latest/793045)
 * **260622 JUNON 8月号** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
 * **260610 推し楽！(web)** ⇨ <span>[藤本洸大が「クロスロード」で向き合う“決断”――正解のない芝居を模索する日々](https://fan.books.rakuten.co.jp/articles/8014)</span>{: .text-small}
-* **260607 Emo!miu（web）**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
+* **260607 Emo!miu（web）**{: .text-red}
 * **260604 S Cawaii!特別編集　マブ ～永遠の絆～**
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
@@ -124,13 +130,13 @@ permalink: /category/
 
 ---
 * **251222 JUNON 2月号**
-* **251121 JUNON 1月号**
-* **251121 月刊TVガイド**
+* **251121 JUNON 1月号**{: .text-red}
+* **251121 月刊TVガイド 1月号**{: .text-red}
 * **251117 Duet LUXE vol.4**
 * **251104 CINEMA SQUARE**
 * **251031 GIANNA PLUS（表紙）**{: .text-red}
-* **251030 S Cawaii!**
-* **251025 Emo!miu(web)**{: .text-red} ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
+* **251030 S Cawaii!**{: .text-red}
+* **251025 Emo!miu(web)**{: .text-red}
 * **251023 月刊 TV navi**
 * **251016 別冊+act. 42号**
 * **251016 TVガイドdan vol.57**

@@ -24,7 +24,19 @@ layout: page
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
 modelpress https://mdpr.jp/drama/4662220, https://mdpr.jp/drama/detail/4701843
 https://x.com/MINNANO_ENT korean event repost
+oricon news https://x.com/oricon/status/1994671451803455850
+https://www.oricon.co.jp/news/2421677/full/?utm_source=Twitter&utm_medium=social&ref_cd=tw_pic&__cf_chl_f_tk=LLc9Z7IVoCqh8GG7XRMqrP87diTgvvH_GMfqstzd07Y-1783145873-1.0.1.1-Az5tNjfiHa0OwaFePV2xPkwvduVTl7Z0IO7DBMyCxOA
+https://www.oricon.co.jp/news/2414683/full/?__cf_chl_f_tk=hukJtMf4wpC37gn4ihQhDCoDBBAj9Qd65sWq0wvPXik-1783145939-1.0.1.1-RTdbDfaVVXlg9yDqTCcancDbOjfJ0OopeSWfkE0vFTA
+新闻这一块可能之后还要好好理一下……
 -->
+
+<!-- 1～9话推特投票最喜欢的场景** 文化祭最后的天台场景 => [!X](https://x.com/BeLuckbunko/status/2000863152951714215) -->
+<!-- 第8话台词投票 https://x.com/BeLuckbunko/status/1998323884555178275 -->
+
+<!-- 11-21 TVguide 1月号
+251206 TVguide 1月号 other cut https://x.com/GEKKAN_TVGUIDE/status/1997159899542004210 -->
+
+[ 2026-07-02 ~ 2026-07-03 ] 重新整理修仲X至12月，继续整理修仲X back-to-11/26
 
 [ 2026-06-29 ~ 2026-07-01 ] 同步更新; 重新整理修仲X - 完成2026年
 
@@ -42,7 +54,7 @@ https://x.com/MINNANO_ENT korean event repost
 
 [ 2026-06-17~2026-06-21 ] 站长韩国归来！时间线布局改版中。增加部分【修学旅行】【分类索引】内容。
 
-[ 2026-05-17 ] 近期物料更新（上）
+[ 2026-05-17 ] 近期物料更新（WIP）
 
 [ 2026-05-03 ] 近期物料更新
 

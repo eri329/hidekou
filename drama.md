@@ -86,6 +86,7 @@ permalink: /drama/
 * 251204～251211 GagaOOLala周榜1位 ⇨ [𝕏]([https://x.com/gagaoolala/status/1999313262538621397)
 * 251208 第7回 TVer日榜(?)电视剧4位 ⇨ [𝕏](https://x.com/gagaoolala/status/1995148106917392397)
 * 251127～251204 GagaOOLala周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1996776559370248368)
+* 251120～251127 GagaOOLala周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1994239867178385427)
 * 251124～251130 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996512302414389538)
 * 251110～251116 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1990714097000984910)
 * 251101～251130 FOD Premium月榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996149911801213088)
