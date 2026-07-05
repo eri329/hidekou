@@ -36,7 +36,9 @@ https://www.oricon.co.jp/news/2414683/full/?__cf_chl_f_tk=hukJtMf4wpC37gn4ihQhDC
 <!-- 11-21 TVguide 1月号
 251206 TVguide 1月号 other cut https://x.com/GEKKAN_TVGUIDE/status/1997159899542004210 -->
 
-[ 2026-07-02 ~ 2026-07-03 ] 重新整理修仲X至12月，继续整理修仲X back-to-11/26
+[ 2026-07-04 ] 补档修仲X back-to-11/20
+
+[ 2026-07-02 ~ 2026-07-03 ] 重新整理修仲X至12月，继续补档修仲X back-to-11/26
 
 [ 2026-06-29 ~ 2026-07-01 ] 同步更新; 重新整理修仲X - 完成2026年
 

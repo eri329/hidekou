@@ -39,7 +39,7 @@ permalink: /category/
 * **260403《Starside》#2 Spring 2026 双人特刊** ABCD3版封面+大全套set ⇨ [𝕏配置](https://x.com/starside_x/status/2024829552514748858)
 * **260330《GIANNA BOYFRIEND》11 双人底封** 底封+A4双面特典+[联动采访](https://gianna.jp/archives/8695)
 * **260324 中国首封《Lemon凝眸》＜This Moment’s Youth＞ 双人特刊** A+B版封面+全套典藏版set
-* **251121《JUNON》1月号**
+* **251121《JUNON》1月号** 藤本洸大×簡 秀吉 愛とときめき、届きました。=> [!X封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)
 * **251121《月刊TVガイド》1月号** ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)
 * **251031《GIANNA PLUS》** 封面
 * **251030《S Cawaii!特別編集　Pair 尊い二人。》** 4版随机特典+应募拍立得
