@@ -27,8 +27,11 @@ permalink: /solo/
     > **260623 放送2周前宣传视频** 小简with男主 ⇨ [ins](https://www.instagram.com/reel/DZ7HSWKPH9q/)
     > **260630 新预告** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2071900169197813850)｜[ins](https://www.instagram.com/p/DaNLcxmP_4s/) ⚠️有事后躺床镜头
     > **260703 小简宣传口播** 距离放送日还有4天！⇨ [𝕏](https://x.com/dramaism_mbs/status/2073016663549874516)/[ins](https://www.instagram.com/reels/DaVIUHgPTAZ/)
-* **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 9:30~ 【PARTY LIVE】コロンビア vs ガーナ : ラウンド32
+* **260707 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 8:30~配信開始；アメリカvsベルギー : ラウンド16
+* **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 9:30~ コロンビアvsガーナ : ラウンド32
     > **260703 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2072913602835792082)
+    > **260704 小简宣传视频** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2073215758654755065)
+    > **260704 小简发ins** 全身牛仔🈶，希望麦粒肿早点好起来！ ⇨ [𝕏简](https://www.instagram.com/p/DaXYd03AejB/)｜[📕粉丝截的cut(小半)](http://xhslink.com/o/4UCYkGZ4vjR)
 * **260702 DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
     > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
     > **260629 节目解禁** 7/2 FIFA world cup daily highlight
@@ -36,6 +39,8 @@ permalink: /solo/
     > **260703 应募嘉宾签名T** ⇨ [𝕏嘉宾签名T(7/3)](https://x.com/DAZN_JPN/status/2072861224363233403)
 * **260701 CTV电视剧「おちたらおわり」开播** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **260617 出演情报解禁** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜 ⇨ [𝕏](https://x.com/official_MR8/status/2067224617107038401)｜[𝓲简告知](https://www.instagram.com/p/DZr9A8HAXnV/)
+* **260701《Seventeen》夏号(7/1)杂志发售** ⚠️是BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
+    > **260705 宣传视频with女模特** ⇨ [ins](https://www.instagram.com/reel/DaZus8rztJE/)
 * **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的新连载, 每期一张自拍+3张其他照片
     > **260527 新连载情报解禁+宣传视频1** ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
@@ -51,6 +56,8 @@ permalink: /solo/
     > **260629 各种宣传** ⇨ [𝓲简](https://www.instagram.com/p/DaKojEXAfNe/) 全身牛仔+小黄花瞩目！｜[𝕏图透](https://x.com/Auditionblue/status/2071564340864692681)｜[𝕏-牛仔look介绍](https://x.com/Auditionblue/status/2071531620675293397)
     > **260630 杂志发售+小简发ins** ⇨ [𝓲简](https://www.instagram.com/p/DaNVYX_E69S/) 条纹衬衫又帅晕谁了……顺便快拍庆祝了第200条post(哥你太有仪式感了)｜[𝕏封面封底特典](https://x.com/auditionblue/status/2071940401678909755)
     > **260701 图透** ⇨ [𝕏](https://x.com/Auditionblue/status/2072247588880068946)
+    > **270704 继续图透** 公园散步中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073278129079230685)
+    > **260705 继续图透** 公园游玩中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073614092493844722)
 * **260630【快拍】小简熬夜看球中: 日本vs巴西**
 * **260629【FC｜直播】21꞉15~ 电台直播** 有提到7/2会上DAZN的世界杯节目，当天节目出演表也出来了。
 * **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！** ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2071475048502939874)
@@ -72,6 +79,7 @@ permalink: /solo/
     > **260609 杂志发售+小简图透** ヒデヨシくんをチョコっと。 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[𝕏简-图透](https://x.com/kan_hideyoshi/status/2064317847854363087)｜[𝓲简(图多)](https://www.instagram.com/p/DZXRIUBAcAw/)
     > **260612 小简宣传视频** ⇨ [ins](https://www.instagram.com/reel/DZeE9zbhok7/)
     > **260630 巧克力造型拍摄花絮** ⇨ [ins](https://www.instagram.com/p/DaNEiush5j-/) 超级帅！
+    > **260705 巧克力造型拍摄花絮2** ⇨ [ins](https://www.instagram.com/reels/DaZ8eLRhxln/)
 * **260607 韩国清溪川照片** ⇨ [𝓲简](https://www.instagram.com/p/DZSBcNNAWbj/)
 
 ---
@@ -181,6 +189,8 @@ permalink: /solo/
     > **260612 ゲスト出演情报解禁**
     > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
     > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
+* **260705 Mantan Web采访** ⇨ [藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)
+* **260628~260705** 在这期间的某一天洸大去看了TC同事的舞台剧《オーファンズ》 ⇨ [舞台剧主页](https://orphans2026.com/)
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
     > **260626 出演情报解禁** 7/3（金）24:12〜，第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎 役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。

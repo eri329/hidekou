@@ -36,6 +36,11 @@ https://www.oricon.co.jp/news/2414683/full/?__cf_chl_f_tk=hukJtMf4wpC37gn4ihQhDC
 <!-- 11-21 TVguide 1月号
 251206 TVguide 1月号 other cut https://x.com/GEKKAN_TVGUIDE/status/1997159899542004210 -->
 
+<!-- 一些直播！！ 11/24/25 https://www.instagram.com/reel/DRcKSZ3j4JV/
+https://www.instagram.com/dxteen_official/reels/ -->
+
+[ 2026-07-05 ] 补档修仲X back-to-11/16
+
 [ 2026-07-04 ] 补档修仲X back-to-11/20
 
 [ 2026-07-02 ~ 2026-07-03 ] 重新整理修仲X至12月，继续补档修仲X back-to-11/26

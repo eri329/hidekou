@@ -32,20 +32,21 @@ permalink: /category/
 ## 直播
 * **251018 修学旅行开播 双人首次直播**
 
-## 双人杂志 & 采访
-* **260607 Emo!miu x Clayge联动企画（web）** 应募亲签洗发水+晒单抽送周边 ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
+## 双人杂志/采访
+* **260607 Emo!miu x Clayge联动企画（web）** 应募抽奖+晒单抽送周边 ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260501《Preppy》6月号 双人封面** 3版随机特典+海报展特典+应募拍立得+[联动采访](https://preppyweb.com/article/26576)
 * **260420《Retro》双人特刊** 3版封面大全套打包 ⇨ [📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)
 * **260403《Starside》#2 Spring 2026 双人特刊** ABCD3版封面+大全套set ⇨ [𝕏配置](https://x.com/starside_x/status/2024829552514748858)
 * **260330《GIANNA BOYFRIEND》11 双人底封** 底封+A4双面特典+[联动采访](https://gianna.jp/archives/8695)
 * **260324 中国首封《Lemon凝眸》＜This Moment’s Youth＞ 双人特刊** A+B版封面+全套典藏版set
-* **251121《JUNON》1月号** 藤本洸大×簡 秀吉 愛とときめき、届きました。=> [!X封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)
+* **251121《JUNON》1月号** 藤本洸大×簡 秀吉 愛とときめき、届きました。⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)
 * **251121《月刊TVガイド》1月号** ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)
+* **251117 Duet LUXE vol.4** ⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)
 * **251031《GIANNA PLUS》** 封面
 * **251030《S Cawaii!特別編集　Pair 尊い二人。》** 4版随机特典+应募拍立得
 * **251025 Emo!miu藤本洸大×簡秀吉采访（web）** 应募拍立得 ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 
-## 单人杂志(简 秀吉)
+## 杂志/采访/书籍(简 秀吉)
 {: #kan-magazine}
 
 情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
@@ -74,6 +75,7 @@ permalink: /category/
 ---
 * **251121 JUNON 1月号**{: .text-red}
 * **251121 月刊TVガイド 1月号**{: .text-red}
+* **251117 Duet LUXE vol.4**{: .text-red}
 * **251030 S Cawaii!**{: .text-red}
 * **251025 Emo!miu(web)**{: .text-red}
 * 2025年 TVガイドdan vol.57
@@ -86,7 +88,7 @@ permalink: /category/
 * 2022年 ACTIMAGE Vol.001
 * 2022年 JUNON 11月号
 
-## 单人杂志(藤本 洸大)
+## 杂志/采访/书籍(藤本 洸大)
 {: #kou-magazine}
 
 情报出处: [TopCoat官网](https://topcoat.co.jp/kodai_fujimoto/contents/schedule/magazine)
@@ -94,14 +96,15 @@ permalink: /category/
 * **260709 FINEBOYS 8月号**
 * **260708 TVガイドWeb(web) 後編**
 * **260707 andBOY vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
+* **260705 MantanWeb(web)** ⇨ <span>[藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)</span>{: .text-small}
 * **260703 TVガイドWeb(web) 前編** ⇨ <span>[「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)</span>{: .text-small}
 * **260630 FINEBOYS+plus FACE**{: .text-blue}
 * **260624 TV LIFE 13号** ⇨ [封面目次](https://www.tvlife.jp/latest/793045)
 * **260622 JUNON 8月号** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)
 * **260610 推し楽！(web)** ⇨ <span>[藤本洸大が「クロスロード」で向き合う“決断”――正解のない芝居を模索する日々](https://fan.books.rakuten.co.jp/articles/8014)</span>{: .text-small}
 * **260607 Emo!miu（web）**{: .text-red}
-* **260604 S Cawaii!特別編集　マブ ～永遠の絆～**
-* **260602 TVガイドdan vol.60（表紙）**{: .text-blue}
+* **260604 S Cawaii!特別編集　マブ ～永遠の絆～（表紙）**
+* **260602 TVガイドdan vol.60**{: .text-blue}
 * **260529 FINEBOYS+Share 04**{: .text-blue}
 * **260521 JUNON 7月号**
 * **260509 FINEBOYS 6月号**{: .text-blue}
@@ -132,7 +135,7 @@ permalink: /category/
 * **251222 JUNON 2月号**
 * **251121 JUNON 1月号**{: .text-red}
 * **251121 月刊TVガイド 1月号**{: .text-red}
-* **251117 Duet LUXE vol.4**
+* **251117 Duet LUXE vol.4**{: .text-red}
 * **251104 CINEMA SQUARE**
 * **251031 GIANNA PLUS（表紙）**{: .text-red}
 * **251030 S Cawaii!**{: .text-red}
@@ -144,7 +147,7 @@ permalink: /category/
 * Seventeen-Web(web)（10月下旬配信）
 * TVer(web)（10月下旬配信）
 * 推し楽(web)（10月下旬配信）
-*「イケメン図鑑」(web)(7月下旬配信)
+* 「イケメン図鑑」(web)(7月下旬配信)
 * **250620 JUNON**
 * FAST(web)（6月中旬配信）
 
@@ -152,7 +155,7 @@ permalink: /category/
 * **241011 コミックBe vol.129**
 * **241031 awesome! Vol.69**
 * **241028 TVガイドAlpha EPISODE.FFFF VOL.84**
-* **241022 JUNON**
+* **241022 JUNON 12月号**
 * **241015 TVガイドdan vol.53**
 * **241002 TV LIFE**
 * WEBザテレビジョン(web)
