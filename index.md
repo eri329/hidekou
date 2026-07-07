@@ -56,6 +56,8 @@ permalink: /
     > **260811/260827 修学旅行6-10话**
 * **260707【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 杂志发售** 简洸又分别登场了
     > **260701 封面解禁** ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
+    > **260704 小简图透** ⇨ [ins](https://www.instagram.com/p/DaXTW9Dzn85/) <span>帅成啥了！</span>{: .text-pink}
+    > **260706 洸大图透** ⇨ [ins](https://www.instagram.com/p/Dab7Yd3k5JY/) <span>很清新！</span>{: .text-pink}
 
 <div class="line"></div>
 
@@ -66,7 +68,6 @@ permalink: /
     > **260704 官方ins在快拍征集「你最喜欢的小众场景」** ⇨ [𝕏](https://x.com/dramal_abc/status/2073395740718875023)
     > **260704 OST作者鈴木发推** ⇨ [𝕏](https://x.com/Yasu_coda/status/2073376356046606491) 说本来打算给主题BGM取名为《Five⭐︎stars》233
 * **260704【杂志｜双人】《Lemon》(3/24) 上架纪伊国屋** 紀伊國屋書店グランフロント大阪店, 到第二天早上9点就完售了 ⇨ [𝕏](https://x.com/Kino_GFOsaka/status/2073289625112654239)
-* **260407【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 小简图透** ⇨ [ins](https://www.instagram.com/p/DaXTW9Dzn85/) <span>帅成啥了！</span>{: .text-pink}
 * **260703【修学旅行｜漫画】漫画第10话上线** ⇨ [𝕏](https://x.com/beluckbunko/status/2072988650426790386)
 * **260703【修学旅行｜漫画】漫画原作老师到池袋Animate画了色纸** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2072952799881765253)
 * **260702【修学旅行】ちるちる映像大賞2026投票开始！** 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)/[ins](https://www.instagram.com/p/DaSAWa9E3Xr/)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)
@@ -546,6 +547,7 @@ permalink: /
     > **251220** [𝓲最终回](https://www.instagram.com/p/DSejU5nk-TY/) <span>「2人の距離がグッと近づくシーンもあるので」小猪就是这样委婉地说kiss的</span>{: .text-pink}
 * **251205~260131【修学旅行】快闪店in天王寺** ⇨ [官网+周边](https://www.manga10.com/event/3619)
 * **251205~260118【修学旅行】快闪店in涉谷** ⇨ [官网+周边](https://www.manga10.com/event/3619)｜[𝕏相关推文](https://x.com/search?q=from%3Amanga10_torico%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query) *快闪店发的周边情报太琐碎了省略了很多*
+    > **251114 情报解禁！** => 2025/12/5(金)～2026/1/6(火) @涉谷/天王寺[!X](https://x.com/manga10_torico/status/1989272865758380035)
     > **251121 最初3日入场预约** 12/5(金)～12/7(日)需要抽选预约入场，预约期间11/21～11/24 ⇨ [𝕏告知](https://x.com/manga10_torico/status/1991780186355036236)
     > **251126 狐猪双人宣传视频** ⇨ [𝕏](https://x.com/manga10_torico/status/1993620816555315652)
     > **251127 第1-2弹谷子解禁+先行上映会联动特典告知**  ⇨ [𝕏](https://x.com/manga10_torico/status/1993968931778756660)｜[𝕏先行上映会特典告知](https://x.com/manga10_torico/status/1993969045272711289)
@@ -589,16 +591,18 @@ permalink: /
     > **251111 封面解禁+简洸登场** ⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)
 * **251116【修学旅行】拍摄花絮** 早晚安 ⇨ [𝕏-清晨的眼镜日置](https://x.com/dramal_abc/status/1989825723063046470) 直接说了一声「きゅん」www ｜[𝕏-五天王温泉旅馆下班](https://x.com/dramal_abc/status/1989742692553953386)
 * **251115【修学旅行｜正片】25:00～ 第5话「学校で見せないで！止まらない嫉妬心」播出**{: .text-red}
+    > **251114 来自狐猪的放送中途感言** => [!X](https://x.com/dramal_abc/status/1989302295054709246) 吐槽小简「请成为我们的粉丝吧」的洸大可爱死了XD小简也很可爱！
+    > **251115 小简发推本日第5话** => [!X简-窗帘](https://x.com/kan_hideyoshi/status/1989635501918462251)
     > **251116 小简发推第5话结束** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1990010082571256153)
-    > **剧照** ⇨ [𝕏窗帘渡日1](https://x.com/dramal_abc/status/1989709985300008980)｜[𝕏窗帘渡日2](https://x.com/dramal_abc/status/1991808814564483460)｜[𝕏第5话综合](https://x.com/dramal_abc/status/1990027071104450647)
-    > **花絮照** ⇨ [𝕏渡日握手](https://x.com/dramal_abc/status/1989722560204869810)｜[𝕏渡日握手悬疑版](https://x.com/dramal_abc/status/1991114235502297231)｜[𝕏操场渡日](https://x.com/dramal_abc/status/1990359264670466478)｜[𝕏渡日怀抱坐offshot](https://x.com/dramal_abc/status/1989732626907705626)｜[𝕏窗帘之中](https://x.com/dramal_abc/status/1990011976479875229)｜[𝓲F3@体育馆](https://www.instagram.com/p/DRrZurnE8Nz/)｜[𝕏ぴおぴ-烟花桶日置](https://x.com/dramal_abc/status/1989731662838857923)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[𝕏男子高校生の日常1-走廊](https://x.com/dramal_abc/status/1989891926838145104)｜[𝕏男子高校生の日常2-天王对决](https://x.com/dramal_abc/status/1989996872501514468)｜[𝕏男子高校生の日常3-年级大会](https://x.com/dramal_abc/status/1990344157098111035)｜[𝕏男子高中生的日常4-便当](https://x.com/dramal_abc/status/1991084042389717367)｜[𝕏仲里](https://x.com/official_DXTEEN/status/1991817365236167154)
+    > **剧照** ⇨ [!X渡会的朋友行为](https://x.com/dramal_abc/status/1989619381681430915)｜[!X年级大会1](https://x.com/dramal_abc/status/1989649584667463877)｜[!X年级大会2](https://x.com/dramal_abc/status/1989679782905438438)｜[𝕏窗帘渡日1](https://x.com/dramal_abc/status/1989709985300008980)｜[𝕏窗帘渡日2](https://x.com/dramal_abc/status/1991808814564483460)｜[!X第5话综合1](https://x.com/asahi_tv/status/1989558990817382635)｜[𝕏第5话综合2](https://x.com/dramal_abc/status/1990027071104450647)
+    > **花絮照** ⇨ [𝕏渡日握手](https://x.com/dramal_abc/status/1989722560204869810)｜[𝕏渡日握手悬疑版](https://x.com/dramal_abc/status/1991114235502297231)｜[𝕏操场渡日](https://x.com/dramal_abc/status/1990359264670466478)｜[𝕏渡日怀抱坐offshot](https://x.com/dramal_abc/status/1989732626907705626)｜[𝕏窗帘之中](https://x.com/dramal_abc/status/1990011976479875229)｜[!X羽毛球部合照](https://x.com/dramal_abc/status/1989528789588783189)｜[𝓲F3@体育馆](https://www.instagram.com/p/DRrZurnE8Nz/)｜[𝕏ぴおぴ-烟花桶日置](https://x.com/dramal_abc/status/1989731662838857923)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[𝕏男子高校生の日常1-走廊](https://x.com/dramal_abc/status/1989891926838145104)｜[𝕏男子高校生の日常2-天王对决](https://x.com/dramal_abc/status/1989996872501514468)｜[𝕏男子高校生の日常3-年级大会](https://x.com/dramal_abc/status/1990344157098111035)｜[𝕏男子高中生的日常4-便当](https://x.com/dramal_abc/status/1991084042389717367)｜[𝕏仲里](https://x.com/official_DXTEEN/status/1991817365236167154)
     > **切片** ⇨ [𝕏请和我做朋友](https://x.com/dramal_abc/status/1990059708443725885)｜[𝕏扔日置](https://x.com/dramal_abc/status/1990399520782553413)｜[𝕏便当喂菠萝](https://x.com/dramal_abc/status/1990760935221571924)
-    > **PR** ⇨ []()｜[𝕏FOD-渡日怀抱坐](https://x.com/fujitvplus/status/1989740224352850212)
+    > **PR** ⇨ []()｜[!X15sPR](https://x.com/dramal_abc/status/1989460835761361348)｜[𝕏FOD-渡日怀抱坐](https://x.com/fujitvplus/status/1989740224352850212)
 ｜[]()｜[]()
     > **DXTEEN第5话修仲场景还原Tiktok小视频** 还原了日置被扔到渡会怀里的一段 ⇨ [TT(11/17)](https://www.tiktok.com/@official_dxteen/video/7573675433103772936)
 * **251108【修学旅行｜正片】25:00～ 第4话播出**{: .text-red}
-    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **花絮照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **剧照** ⇨ [!X公园"告白"前](https://x.com/dramal_abc/status/1989287194281054243)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **花絮照** ⇨ [!X寺庙买伴手礼的F5背影](https://x.com/dramal_abc/status/1989317396432290160)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **切片** ⇨ []()｜[]()｜[]()｜[]()
     > **PR** ⇨ []()｜[]()｜[]()｜[]()
 * **251101【修学旅行｜正片】25:00～ 第3话播出**{: .text-red}

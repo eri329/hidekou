@@ -28,10 +28,14 @@ permalink: /solo/
     > **260630 新预告** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2071900169197813850)｜[ins](https://www.instagram.com/p/DaNLcxmP_4s/) ⚠️有事后躺床镜头
     > **260703 小简宣传口播** 距离放送日还有4天！⇨ [𝕏](https://x.com/dramaism_mbs/status/2073016663549874516)/[ins](https://www.instagram.com/reels/DaVIUHgPTAZ/)
 * **260707 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 8:30~配信開始；アメリカvsベルギー : ラウンド16
+    > **260706 告知** => [!X](https://x.com/DAZN_JPN/status/2074052722723365249)
+    > **260707 小简宣传视频** => [!X](https://x.com/DAZN_JPN/status/2074269730480009264)
+* **260706 小简发小红书: 7月会有什么呢？** => [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 9:30~ コロンビアvsガーナ : ラウンド32
     > **260703 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2072913602835792082)
     > **260704 小简宣传视频** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2073215758654755065)
     > **260704 小简发ins** 全身牛仔🈶，希望麦粒肿早点好起来！ ⇨ [𝕏简](https://www.instagram.com/p/DaXYd03AejB/)｜[📕粉丝截的cut(小半)](http://xhslink.com/o/4UCYkGZ4vjR)
+    > **260706 造型师牧野裕大repost小简ins** 是高清大图 => [ins](https://www.instagram.com/p/Dacy4TzE91y/)
 * **260702 DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
     > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
     > **260629 节目解禁** 7/2 FIFA world cup daily highlight
@@ -201,6 +205,10 @@ permalink: /solo/
     > **260701「先生は、昭和アイドル」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072174430273654832)/[ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
     > **260702 手紙リレーで重大発表 Season2配信决定** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072514928238612640)/[ins](https://www.instagram.com/reel/DaRkWuphn8P/)
     > **260703「恋リアみたいな転校生」** 背景板ing ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072878384296992929)/[ins](https://www.instagram.com/p/DaUJJG4JmcN/)
+    > **260706「春に舞う」** 手势舞 => [!X](https://x.com/z_drama_ntv/status/2073972604516683783)/[ins](https://www.instagram.com/reels/Dab3iUTpYf2/) 孩子跳得太可爱了！和日置手势舞完全是两种风味！！
+    > **260707「告白、今日じゃない」** 洸大告白 => [!X](https://x.com/z_drama_ntv/status/2074327733468094542)/[ins](https://www.instagram.com/reel/DaecRwsJhWc/) 很搞笑……这一话终于看出一些AI参与的影子了！
+
+
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)

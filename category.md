@@ -51,7 +51,7 @@ permalink: /category/
 
 情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
 
-* **260707 andBOY vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599) 
+* **260707 andBOY vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕电子版(喵)](http://xhslink.com/o/84yFhSo4VAQ)
 * **260701 PREPPY 8月号** 新連載 簡秀吉の「MY 4CUT」⇨ [𝕏封面](https://x.com/preppy_magazine/status/2066460713368125449)｜[📕扫图(小半)](http://xhslink.com/o/6DVnG9ArKC2)｜[web联动](https://preppyweb.com/article/30542)
 * **260701 Seventeen夏号** カップル胸きゅんストーリー ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕扫图(小半)](http://xhslink.com/o/75zutaSZrNq)
 * **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue}
@@ -95,7 +95,8 @@ permalink: /category/
 
 * **260709 FINEBOYS 8月号**
 * **260708 TVガイドWeb(web) 後編**
-* **260707 andBOY vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
+* **260707 Astage(web)** => <span>[藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)</span>{: .text-small}
+* **260707 andBOY vol.6**{: .text-blue} ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕电子版(bala)](http://xhslink.com/o/7pQxWl8CzpH)
 * **260705 MantanWeb(web)** ⇨ <span>[藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)</span>{: .text-small}
 * **260703 TVガイドWeb(web) 前編** ⇨ <span>[「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)</span>{: .text-small}
 * **260630 FINEBOYS+plus FACE**{: .text-blue}
