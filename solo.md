@@ -58,7 +58,7 @@ permalink: /solo/
     > **260624 封面封底解禁** HMV限定版 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)｜[𝕏特典明信片](https://x.com/Auditionblue/status/2069744847091651026)｜[𝕏-HMV](https://x.com/HMV_Japan/status/2069708476440600645)｜[𝕏-set(6/25)](https://x.com/Auditionblue/status/2070072635703304668/) 一共9版封面，只有小简的封面最抽象2333
     > **260626 小简宣传视频** ⇨ [𝕏-红色look介绍](https://x.com/Auditionblue/status/2070436907310526689)
     > **260629 各种宣传** ⇨ [𝓲简](https://www.instagram.com/p/DaKojEXAfNe/) 全身牛仔+小黄花瞩目！｜[𝕏图透](https://x.com/Auditionblue/status/2071564340864692681)｜[𝕏-牛仔look介绍](https://x.com/Auditionblue/status/2071531620675293397)
-    > **260630 杂志发售+小简发ins** ⇨ [𝓲简](https://www.instagram.com/p/DaNVYX_E69S/) 条纹衬衫又帅晕谁了……顺便快拍庆祝了第200条post(哥你太有仪式感了)｜[𝕏封面封底特典](https://x.com/auditionblue/status/2071940401678909755)
+    > **260630 杂志发售+小简发ins** ⇨ [𝕏封面封底特典](https://x.com/auditionblue/status/2071940401678909755)
     > **260701 图透** ⇨ [𝕏](https://x.com/Auditionblue/status/2072247588880068946)
     > **270704 继续图透** 公园散步中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073278129079230685)
     > **260705 继续图透** 公园游玩中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073614092493844722)
@@ -193,6 +193,7 @@ permalink: /solo/
     > **260612 ゲスト出演情报解禁**
     > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
     > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
+    > **260707 剧照预告** ⇨ [𝕏](https://x.com/TVGweb/status/2074237198656782520)/[ins](https://www.instagram.com/p/DadzrsBFEFm) ins图要大一些
 * **260705 Mantan Web采访** ⇨ [藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)
 * **260628~260705** 在这期间的某一天洸大去看了TC同事的舞台剧《オーファンズ》 ⇨ [舞台剧主页](https://orphans2026.com/)
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)

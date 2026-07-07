@@ -34,33 +34,43 @@ permalink: /
 
 <!-- <div class="line"></div> -->
 
+* **261010【修学旅行｜正片】修学旅行TV再放送 第10话(最终回)** ※25:00～25:30
+* **261003【修学旅行｜正片】修学旅行TV再放送 第9话** ※25:00～25:30
+* **260912【修学旅行｜正片】修学旅行TV再放送 第8话**
+* **260905【修学旅行｜正片】修学旅行TV再放送 第7话**
+
 ### 2026.8
 {: #aug2026}
 
+* **260822【修学旅行｜正片】修学旅行TV再放送 第6话**
 * **260810【修学旅行｜双人】修仲夏日同窗会**{: .text-red} ⇨ [活动详情](https://www.mahocast.com/ce/c/124)
     > **260523 情报解禁+抽选开票** 两部15:30/19:00，五人出演(虽然很开心但是等着宣第二季的大家又被溜了……) ⇨ [𝕏](https://x.com/dramal_abc/status/2058020089727947241)/[ins](https://www.instagram.com/p/DYqlGASk3PD/)
     > **260528 活动说明** 本确+检查行李，祝花不允许使用演员肖像 ⇨ [𝕏](https://x.com/mahocast_jp/status/2059922629214232949)
     > **260602 夏日同窗会配信决定** 各种配信票还附有不同特典 ⇨ [𝕏](https://x.com/dramal_abc/status/2061734570756616244)/[ins](https://www.instagram.com/p/DZE-CGxzmCj/)
     > **260606 VIP升级申请开始** ⇨ [𝕏](https://x.com/mahocast_jp/status/2063093522450841924)
     > **260613 二次抽选开始** ⇨ [𝕏](https://x.com/mahocast_jp/status/2065630246972334220)
-
+* **260808【修学旅行｜正片】修学旅行TV再放送 第5话**
+* **260801【修学旅行｜正片】修学旅行TV再放送 第4话**
 
 ### 2026.7
 {: #jul2026}
 
+* **260725【修学旅行｜正片】修学旅行TV再放送 第3话** ※24:25～24:55
 * **260713【修学旅行｜正片】日本映画専門チャンネル修学旅行放送纪念特集** 是一个付费电视频道；7月13日(月)よる8時30分～ ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)
     > 【2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集】 話題作「修学旅行で仲良くないグループに入りました」（全10話）を7月より2ヶ月にわたって放送。本作のW主演を務めた藤本洸大出演「舞台『それってキセキ』」をはじめ、簡秀吉出演の「映画 仮面ライダーギーツ 4人のエースと黒狐」、...もあわせてお届け。
     > **260620 放送告知** ⇨ [𝕏](https://x.com/nihoneiga/status/2068134269550219618)
     > **260701 8月放送情报公开** 洸大出演的舞台剧『それってキセキ』也会在8/12, 8/28放送；眼镜洸大🈶 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)｜极狐剧场版 8/12, 8/17, 8/28放送 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030422_0001.html)
     > **260713/260826 修学旅行1-5话**
     > **260811/260827 修学旅行6-10话**
-* **260707【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 杂志发售** 简洸又分别登场了
-    > **260701 封面解禁** ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
-    > **260704 小简图透** ⇨ [ins](https://www.instagram.com/p/DaXTW9Dzn85/) <span>帅成啥了！</span>{: .text-pink}
-    > **260706 洸大图透** ⇨ [ins](https://www.instagram.com/p/Dab7Yd3k5JY/) <span>很清新！</span>{: .text-pink}
+* **260711【修学旅行｜正片】修学旅行TV再放送 第2话**
 
 <div class="line"></div>
 
+* **260707【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 杂志发售** 简洸又分别登场了
+    > **260701 封面解禁** ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
+    > **260704 小简图透** ⇨ [ins](https://www.instagram.com/p/DaXTW9Dzn85/) <span>帅成啥了！！</span>{: .text-pink}
+    > **260706 洸大图透** ⇨ [ins](https://www.instagram.com/p/Dab7Yd3k5JY/) <span>很清新！</span>{: .text-pink}
+    > #### 小简回答最近感到幸福的瞬间是因为「某」电视剧去海外开了见面会~请海外粉丝们认领！会用行动表达喜欢，恋爱中是会主动出击的类型，但不会一上来就猛攻，而是会慢慢缩短距离，最后主动采取行动。Yes这就是他追藤本洸大的一句话总结。
 * **260705【修学旅行】TV再放送+夏日同窗会配信PR** ⇨ [𝕏](https://x.com/dramal_abc/status/2073428480545759391)/[ins](https://www.instagram.com/reel/DaYDw01zXln/)
 * **260704【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
     > **260628 TV再放送告知** ABC(関西)7/4(土)〜 ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)｜[𝕏亲妈发推欢迎回来～](https://x.com/RcNfe37/status/2071205079949189300)
@@ -84,6 +94,7 @@ permalink: /
     > **260625 封面封底解禁** 小简封底解禁+洸大登场解禁 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2070107235414384994)｜[ins封底](https://www.instagram.com/p/DaAdGW9JiGT/)
     > **260629 小简封底look拍摄花絮** ⇨ [ins](https://www.instagram.com/reels/DaKmji7haJU/) 只有10秒
     > **260630 杂志发售+小简宣传视频** ⇨ [ins-封底](https://www.instagram.com/p/DaLJFFQSmDY/)｜[ins-封面](https://www.instagram.com/p/DaLI0yIShk5/) 官号介绍的时候又在捆绑……｜[ins-小简宣传视频-条纹look](https://www.instagram.com/p/DaMeAvpyvx1/)｜[𝕏-出版社张贴海报中](https://x.com/FINEBOYS_JP/status/2071866326885228781)
+    > **260630 小简发ins** ⇨ [𝓲简](https://www.instagram.com/p/DaNVYX_E69S/) 条纹衬衫又帅晕谁了……顺便快拍庆祝了第200条post(哥你太有仪式感了)
 * **260625/260627【个人活动｜简秀吉｜藤本洸大】简洸都参加了CHANEL RADIO SHINE FM 香奈儿活动** ⇨ [𝓲简(6/25)](https://www.instagram.com/p/DaAlGJGAcGG/)｜[𝓲洸(6/27)](https://www.instagram.com/p/DaFqreUFB47/)
     > 6月24～26日の期間限定で東京・表参道;这个活动是专门宣传新品『ROUGE COCO HYDRA GLOSS』的，小简推了443洸大推了442,但是两个人可能不是同一天/同一场。洸大这场更像晚场，还看了live。
 * **260625【修学旅行｜双人】蓝光box追加特典台湾见面会(4/18)making放出**{: .text-red} ⇨ [𝕏-特典预告](https://x.com/dramal_abc/status/2069775132214936009)/[ins](https://www.instagram.com/p/DZ-GdTBzrAU/)｜[封面](https://x.com/tv_life/status/2068847970767003779)
@@ -145,8 +156,7 @@ permalink: /
     > **260618 回放开始+狐猪宣传视频**{: .text-red} ⇨ [𝕏-宣传视频](https://x.com/dramal_abc/status/2067532775801143304)/[ins](https://www.instagram.com/p/DZuK9NLhSzF/)
     > **260618 韩国见面会活动repo** ⇨ [𝕏](https://x.com/abc_mgzn/status/2067533023428456704)｜[abc-magazine(大图)](https://abc-magazine.asahi.co.jp/post-82077/)
 * **260605【修学旅行｜漫画】漫画第9话上线** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2062778639398429050)
-* **260602【杂志｜简秀吉｜藤本洸大】《TVガイドdan》vol.60(6/2)** 简洸分
-别登场；表纸+卷头特辑:简秀吉；企划: 池田匡志×草川直弥×藤本洸大 ⇨ [杂志详情](https://zasshi.tv/products/58788/)
+* **260602【杂志｜简秀吉｜藤本洸大】《TVガイドdan》vol.60(6/2)** 简洸分别登场；表纸+卷头特辑:简秀吉；企划: 池田匡志×草川直弥×藤本洸大 ⇨ [杂志详情](https://zasshi.tv/products/58788/)
     > **260515 情报+特典解禁** ⇨ [𝕏情报解禁](https://x.com/TVguidePERSON/status/2055121275002171693)｜[𝕏简秀吉特典版](https://x.com/TVguidePERSON/status/2055123507663827029)｜[𝕏洸大特典版](https://x.com/TVguidePERSON/status/2055124746052993051)｜[𝕏-HMV限定封面版发售决定(无图)](https://x.com/TVguidePERSON/status/2055127044007264267)
     > **260525 HMV限定表紙版+海报展+线下特典** 现场会有限定封面杂志，附一张线下特典 ⇨ [𝕏](https://x.com/TVguidePERSON/status/2058850845136142428)｜[𝕏特典卡](https://x.com/TVguidePERSON/status/2058851513108504995)
     > **260526 两版封面解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2059183389496992182)｜[𝕏-HMV限定版封底](https://x.com/TVguidePERSON/status/2059184041790980175)
