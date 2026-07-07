@@ -56,15 +56,15 @@ permalink: /flattened_timeline/
     > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7)杂志发售** 简洸分别登场
     > **【个人活动｜简秀吉】MBS电视剧「幸せになりたいマサムネ君」开播**{: .text-solo} ツバサ役 7月7日(火)MBS‣‣24:59〜／TBS‣‣25:26〜 ほか
     > **【个人活动｜简秀吉】DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演**{: .text-solo} 8:30~配信開始；アメリカvsベルギー:ラウンド16
-        > **小简宣传视频** => [!X](https://x.com/DAZN_JPN/status/2074269730480009264)
-    > **【个人活动｜藤本洸大】电视剧「クロスロード 〜救命救急の約束〜」开播**{: .text-solo-k} 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル => [!X预告剧照](https://x.com/TVGweb/status/2074237198656782520)/[ins](https://www.instagram.com/p/DadzrsBFEFm) ins图要大一些
-    > **【采访｜藤本洸大】Astage采访** => [!X告知](https://x.com/astage_ent/status/2074327543759683771)｜[藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)
-    > **【采访｜藤本洸大】JJ采访预告+洸大宣传视频** => [!X](https://x.com/jj_official_jj/status/2074328229238968809)
+        > **小简宣传视频** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074269730480009264)
+    > **【个人活动｜藤本洸大】电视剧「クロスロード 〜救命救急の約束〜」开播**{: .text-solo-k} 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏预告剧照](https://x.com/TVGweb/status/2074237198656782520)/[ins](https://www.instagram.com/p/DadzrsBFEFm) ins图要大一些
+    > **【采访｜藤本洸大】Astage采访** ⇨ [𝕏告知](https://x.com/astage_ent/status/2074327543759683771)｜[藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)
+    > **【采访｜藤本洸大】JJ采访预告+洸大宣传视频** ⇨ [𝕏](https://x.com/jj_official_jj/status/2074328229238968809)
 * **260706**
     > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 洸大图透** ⇨ [ins](https://www.instagram.com/p/Dab7Yd3k5JY/)
-    > **【SNS｜简秀吉】发小红书: 7月会有什么呢？** => [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
-    > **【个人活动｜简秀吉】7月7日 DAZN PARTY LIVE出演告知** => [!X告知](https://x.com/DAZN_JPN/status/2074052722723365249)
-    > **【个人活动｜简秀吉】7月4日DAZN造型 造型师牧野裕大repost小简ins** 是高清大图 => [ins](https://www.instagram.com/p/Dacy4TzE91y/)
+    > **【SNS｜简秀吉】发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
+    > **【个人活动｜简秀吉】7月7日 DAZN PARTY LIVE出演告知** ⇨ [𝕏告知](https://x.com/DAZN_JPN/status/2074052722723365249)
+    > **【个人活动｜简秀吉】7月4日DAZN造型 造型师牧野裕大repost小简ins** 是高清大图 ⇨ [ins](https://www.instagram.com/p/Dacy4TzE91y/)
 * **260705**
     > **【修学旅行】TV再放送+夏日同窗会配信PR** ⇨ [𝕏](https://x.com/dramal_abc/status/2073428480545759391)/[ins](https://www.instagram.com/reel/DaYDw01zXln/)
     > **【杂志｜简秀吉】《FINEBOYS》7月号(6/9) 巧克力造型拍摄花絮2**{: .text-solo} ⇨ [ins](https://www.instagram.com/reels/DaZ8eLRhxln/)
@@ -1069,16 +1069,16 @@ permalink: /flattened_timeline/
     > **【修学旅行】第6话PR** ⇨ [𝕏](https://x.com/dramal_abc/status/1989740178315911585)
 * **251115**
     > **【修学旅行｜正片】25:00～ 第5话播出**{: .text-red}
-    > **【修学旅行｜SNS｜简秀吉】小简发推本日第5话** => [!X简-窗帘](https://x.com/kan_hideyoshi/status/1989635501918462251)
-    > **【修学旅行】官推发剧照** ⇨ [!X渡会的朋友行为](https://x.com/dramal_abc/status/1989619381681430915)｜[!X年级大会1](https://x.com/dramal_abc/status/1989649584667463877)｜[!X年级大会2](https://x.com/dramal_abc/status/1989679782905438438)｜[!X第5话综合1](https://x.com/asahi_tv/status/1989558990817382635)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **【修学旅行】官推发花絮照** ⇨ [!X羽毛球部合照](https://x.com/dramal_abc/status/1989528789588783189)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **【修学旅行｜SNS｜简秀吉】小简发推本日第5话** ⇨ [𝕏简-窗帘](https://x.com/kan_hideyoshi/status/1989635501918462251)
+    > **【修学旅行】官推发剧照** ⇨ [𝕏渡会的朋友行为](https://x.com/dramal_abc/status/1989619381681430915)｜[𝕏年级大会1](https://x.com/dramal_abc/status/1989649584667463877)｜[𝕏年级大会2](https://x.com/dramal_abc/status/1989679782905438438)｜[𝕏第5话综合1](https://x.com/asahi_tv/status/1989558990817382635)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **【修学旅行】官推发花絮照** ⇨ [𝕏羽毛球部合照](https://x.com/dramal_abc/status/1989528789588783189)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **【修学旅行】官推发切片** ⇨ []()｜[]()｜[]()｜[]()
-    > **【修学旅行】官推PR** ⇨ [!X15sPR](https://x.com/dramal_abc/status/1989460835761361348)｜[]()｜[]()｜[]()
+    > **【修学旅行】官推PR** ⇨ [𝕏15sPR](https://x.com/dramal_abc/status/1989460835761361348)｜[]()｜[]()｜[]()
 * **251114**
-    > **【修学旅行｜双人】来自狐猪的放送中途感言** => [!X](https://x.com/dramal_abc/status/1989302295054709246)
-    > **【修学旅行】官推发剧照** ⇨ [!X公园"告白"前](https://x.com/dramal_abc/status/1989287194281054243)
-    > **【修学旅行】官推发花絮照** ⇨ [!X寺庙买伴手礼的F5背影](https://x.com/dramal_abc/status/1989317396432290160)
-    > **【修学旅行】快闪店情报解禁！** => 2025/12/5(金)～2026/1/6(火) @涉谷/天王寺[!X](https://x.com/manga10_torico/status/1989272865758380035)
+    > **【修学旅行｜双人】来自狐猪的放送中途感言** ⇨ [𝕏](https://x.com/dramal_abc/status/1989302295054709246)
+    > **【修学旅行】官推发剧照** ⇨ [𝕏公园"告白"前](https://x.com/dramal_abc/status/1989287194281054243)
+    > **【修学旅行】官推发花絮照** ⇨ [𝕏寺庙买伴手礼的F5背影](https://x.com/dramal_abc/status/1989317396432290160)
+    > **【修学旅行】快闪店情报解禁！** ⇨ 2025/12/5(金)～2026/1/6(火) @涉谷/天王寺[𝕏](https://x.com/manga10_torico/status/1989272865758380035)
 * **251113**
     > **【杂志｜双人】《S Cawaii!特別編集 Pair 尊い二人。》(10/30) 应募特典拍立得** ⇨ [𝕏](https://x.com/mag_scawaii/status/1988909709680894410)
 * **251111**
