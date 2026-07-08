@@ -215,8 +215,6 @@ permalink: /solo/
     > **260706「春に舞う」** 手势舞 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2073972604516683783)/[ins](https://www.instagram.com/reels/Dab3iUTpYf2/) 孩子跳得太可爱了！和日置手势舞完全是两种风味！！
     > **260707「告白、今日じゃない」** 洸大告白 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2074327733468094542)/[ins](https://www.instagram.com/reel/DaecRwsJhWc/) 很搞笑……这一话终于看出一些AI参与的影子了！
 
-
-
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
 * **260624《TV LIFE》13号(6/24)杂志发售** 不定期巻末連載『Time to Talk』登场, 有HMV在线购入特典
@@ -254,7 +252,9 @@ permalink: /solo/
 
 ---
 * **260428《TV Life》9号(4/28)杂志发售** #今旬コレクション ⇨ [𝕏](https://x.com/tv_life/status/2047504917938753643)｜[详情](https://www.tvlife.jp/latest/787489)
-* **260427《DIGVII》4月号(4/27)杂志发售** ⇨ [𝕏](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
+    > **260512 web联动采访** => [【#今旬コレクション】藤本洸大、他者に負けない自身の“武器”とは？「童顔や後輩らしさ、ピュアに突き進んでいけるところだと思います」](https://www.tvlife.jp/pickup/788667)
+    > **260512 Youtube 7秒问答** => [🆈藤本洸大が7秒で質問に答えます！「#旬コレ 7seconds CHALLENGE」](https://www.youtube.com/watch?v=r9Czzd3bTRA)
+* **260427《DIGVII》4月号(4/27)杂志发售** ⇨ [𝕏封面](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
     > **260428 化妆师图透** ⇨ [ins](https://www.instagram.com/p/DXqOsVKk8Jb/)
     > **260504 摄影师图透** ⇨ [ins](https://www.instagram.com/p/DX6ixNUkbuj/)
     > **260528 摄影师发图** ⇨ [ins](https://www.instagram.com/p/DY4Fn4mEVCb/)
@@ -322,7 +322,7 @@ permalink: /solo/
 * **260314【直播】21:00〜 NATSLIVE「藤本洸大＆桜木雅哉ホワイトデーSP」配信** ⇨ [𝓲洸-眼镜小猪](https://www.instagram.com/p/DV3eoDJFNjj/)
 * **260314【直播】19:00〜 NATSLIVE「藤本洸大ホワイトデーSP」配信** 初次料理直播！
 * **260314 第39回 JUNON SUPER BOY CONTEST藤本洸大寄语** ⇨ [𝕏](https://x.com/JUNON_jp/status/2032743543177904293)｜[𝕏今昔对比](https://x.com/JUNON_jp/status/2032652939605561641) 变化太大了变美太多了小猪!!
-* **260309《FINEBOYS》4月号(3/9) 登场&杂志发售** ⇨ [ins宣传视频(3/10)](https://www.instagram.com/reel/DVs5MzUEd3A/)
+* **260309《FINEBOYS》4月号(3/9) 登场&杂志发售** ⇨ [ins宣传视频(3/10)](https://www.instagram.com/reel/DVs5MzUEd3A/)｜[𝕏封面](https://x.com/hinode_pub/status/2029157408627429421)
     > **260401 特典亲签拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2038994738989375816)
     > **260403 拍摄后采** ⇨ [ins](https://www.instagram.com/reel/DWqelsChh_S/) 喜欢吃的寿司种类是虾🍤，回到老家会想吃妈妈做的土豆炖肉和蛋包饭。
 * **260302 浅草寺抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DVYaIroFN1G/) 粉粉的nike小包出现了~
@@ -336,7 +336,7 @@ permalink: /solo/
     > **260330 抽选特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2038451147397017671)
 * **260228【直播】ins直播 GREEN SPOON吃播** ⇨ [𝓲洸](https://www.instagram.com/p/DVTXkltiRFe/)
 * **260227 Hulu「時計館の殺人」出演** 1-6话配信 渡辺涼介役
-* **260220《JUNON》4月5月合并号(2/20)杂志发售** ⇨ [情报](https://www.junon-tv.jp/articles/4215) 给洸大安排的是「藤本洸大 × あざと顔」栏目😇
+* **260220《JUNON》4月5月合并号(2/20)杂志发售** ⇨ [封面目录](https://www.junon-tv.jp/articles/4215) 给洸大安排的是「藤本洸大 × あざと顔」栏目😇
     > **260218 登场情报解禁** ⇨ [𝕏宣传视频](https://x.com/JUNON_jp/status/2023955645746250055) 超级可爱超级あざとい的小猪和狗狗!
     > **260312 くじ抽赏活动开始** 3/12~4/2 ⇨ [抽签&赏品页面](https://kuji.junon-tv.jp/lotteries/1259)｜[𝕏](https://x.com/JUNON_jp/status/2032018870941466918)｜[𝕏告知(2/20)](https://x.com/JUNON_jp/status/2024740820927336548)
 * **260217【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信** ⇨ [𝓲洸](https://www.instagram.com/p/DU3EDxGFETv/)
@@ -360,14 +360,14 @@ permalink: /solo/
     > **260311** [📕采访-专访上(10min)](https://www.xiaohongshu.com/discovery/item/69b121cc00000000280095d9?source=webshare&xhsshare=pc_web&xsec_token=ABW7F4i0X6LDXNXzUkhzApAkgK4IJ9LvW31uIKbRoj1fQ=&xsec_source=pc_share)
     > **260313** [📕采访-专访下(12min)](https://www.xiaohongshu.com/discovery/item/69b40eea00000000220253f7?source=webshare&xhsshare=pc_web&xsec_token=ABDYhckILwnp8-W6kFL5scCgwTgs8NuklrptONhM4seLo=&xsec_source=pc_share)
     > **260316** [📕横版花絮](https://www.xiaohongshu.com/discovery/item/69b7d83c000000002800a4d5?source=webshare&xhsshare=pc_web&xsec_token=ABP90l-WO7kHX8-ldaZQ-0CFNG4UMiDV_KReSYa3HYJs8=&xsec_source=pc_share)
-* **260216《TRENDiCON》No.14(2/16)杂志发售**{: .text-red} ⇨ [𝕏](https://x.com/trendicon_info/status/2023321459142058133)/[ins](https://www.instagram.com/p/DU0B9DqF3eJ/)｜[𝓲洸(2/20)](https://www.instagram.com/p/DU-qOUAlAm1/)
+* **260216《TRENDiCON》No.14(2/16)发售**{: .text-red} ⇨ [𝕏](https://x.com/trendicon_info/status/2023321459142058133)/[ins](https://www.instagram.com/p/DU0B9DqF3eJ/)｜[𝓲洸(2/20)](https://www.instagram.com/p/DU-qOUAlAm1/)
     > **260214 封面登场情报解禁** ⇨ [𝕏](https://x.com/trendicon_info/status/2022327084715274739)｜[𝕏](https://x.com/trendicon_info/status/2022641974818554192)｜[ins](https://www.instagram.com/p/DUsoLIVj4WX/)｜[𝓲配置](https://www.instagram.com/p/DUvQad9gXHo/)
     > **260215 应募特典** ⇨ [𝕏](https://x.com/trendicon_info/status/2023004371571597768)/[ins](https://www.instagram.com/p/DUxxww0lKQg/)
     > **250225 追加特典** ⇨ [𝕏2-25](https://x.com/trendicon_info/status/2026628241352782070)/[ins](https://www.instagram.com/p/DVLhvaPD6rr/)
     > **260220 图透** ⇨ [𝕏](https://x.com/trendicon_info/status/2024816302851035645)/[ins](https://www.instagram.com/p/DU-pwOpDfV4/)
     > **260221 宣传视频** ⇨ [𝕏](https://x.com/trendicon_info/status/2025178689650995203)/[ins](https://www.instagram.com/p/DVBOkGLkfC-/)
     > **260228 图透** ⇨ [𝕏](https://x.com/trendicon_info/status/2027670108848722145)/[ins](https://www.instagram.com/p/DVTQIxlgevn/)
-* **260214 web采访 推し楽**{: .text-red} ⇨ [采访](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
+* **260214 web采访 推し楽**{: .text-red} ⇨ [「すべてが今の自分につながる」藤本洸大のまっすぐな歩みと、飾らない素顔](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
     > 很有内容的一个采访，对小猪最近演的剧(修仲, 钟表馆, CUT)都问了很多问题
 * **260207 24:40~EX ドラドラ大作戦「CUT.编辑された世界出演** 田中健太役 ⇨ [𝕏角色介绍](https://x.com/dramadaisakusen/status/2019606985600090490)
 * **260206 BOYS meets logirl#064 登场** 以拍摄为主的网络特辑  ⇨ [图](https://tvablog.tv-asahi.co.jp/reading/logirl/14572/)

@@ -33,18 +33,18 @@ permalink: /category/
 * **251018 修学旅行开播 双人首次直播**
 
 ## 双人杂志/采访
-* **260607 Emo!miu x Clayge联动企画（web）** 应募抽奖+晒单抽送周边 ⇨ <span>[【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
-* **260501《Preppy》6月号 双人封面** 3版随机特典+海报展特典+应募拍立得+[联动采访](https://preppyweb.com/article/26576)
-* **260420《Retro》双人特刊** 3版封面大全套打包 ⇨ [📕配置](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)
-* **260403《Starside》#2 Spring 2026 双人特刊** ABCD3版封面+大全套set ⇨ [𝕏配置](https://x.com/starside_x/status/2024829552514748858)
-* **260330《GIANNA BOYFRIEND》11 双人底封** 底封+A4双面特典+[联动采访](https://gianna.jp/archives/8695)
-* **260324 中国首封《Lemon凝眸》＜This Moment’s Youth＞ 双人特刊** A+B版封面+全套典藏版set
-* **251121《JUNON》1月号** 藤本洸大×簡 秀吉 愛とときめき、届きました。⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)
-* **251121《月刊TVガイド》1月号** ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)
-* **251117 Duet LUXE vol.4** ⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)
-* **251031《GIANNA PLUS》** 封面
-* **251030《S Cawaii!特別編集　Pair 尊い二人。》** 4版随机特典+应募拍立得
-* **251025 Emo!miu藤本洸大×簡秀吉采访（web）** 应募拍立得 ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
+* **260607 Emo!miu采访（web）** <span>Clayge联动企画晒单抽送周边 ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
+* **260501 Preppy 6月号（双人封面）** <span>The Rising Star｜3 look｜20p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2038919236148396458)｜[📕内页(偏差值)](http://xhslink.com/o/8x23da3XYsM)｜[联动采访](https://preppyweb.com/article/26576)</span>{: .text-small}
+* **260420 Retro 双人特刊** <span> ⇨ [📕3版封面+特典set](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)</span>{: .text-small}
+* **260403 Starside #2 Spring 2026 双人特刊** <span> ⇨ [𝕏4版封面+特典set](https://x.com/starside_x/status/2024829552514748858)</span>{: .text-small}
+* **260330 GIANNA BOYFRIEND 11（双人底封）** <span> ⇨ [联动采访](https://gianna.jp/archives/8695)</span>{: .text-small}
+* **260324 Lemon凝眸 双人特刊（中国首封）** <span>This Moment’s Youth｜2版封面+特典set</span>{: .text-small}
+* **251121 JUNON 1月号** <span>藤本洸大×簡 秀吉 愛とときめき、届きました。⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)</span>{: .text-small}
+* **251121 月刊TVガイド 1月号** <span>SPECIAL TALK｜修仲校服｜2p ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)｜[📕内页(只想说坏话)](http://xhslink.com/o/8BePGZjH6IF)</span>{: .text-small}
+* **251117 Duet LUXE vol.4** <span>⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)</span>{: .text-small}
+* **251031 GIANNA PLUS（双人封面）** <span> ⇨ </span>{: .text-small}
+* **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> ⇨ </span>{: .text-small}
+* **251025 Emo!miu采访（web）** 应募拍立得 ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 
 ## 杂志/采访/书籍(简 秀吉)
 {: #kan-magazine}
@@ -53,21 +53,21 @@ permalink: /category/
 <span>格式: 栏目名｜妆造/主题｜页数 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
-* **260707 andBOY vol.6**{: .text-blue} <span>カレの素顔にクギづけ｜条纹黑西装 ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕电子版(喵)](http://xhslink.com/o/84yFhSo4VAQ)</span>{: .text-small}
-* **260701 PREPPY 8月号** <span>新連載 簡秀吉の「MY 4CUT」｜橙色西装(渡会版) ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2066460713368125449)｜[📕扫图(小半)](http://xhslink.com/o/6DVnG9ArKC2)｜[web联动](https://preppyweb.com/article/30542)</span>{: .text-small}
-* **260701 Seventeen夏号** <span>カップル胸きゅんストーリー ⚠️BG企画｜浴衣 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕扫图(小半)](http://xhslink.com/o/75zutaSZrNq)</span>{: .text-small}
-* **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue} <span>｜绿条纹polo+眼镜 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2070107235414384994)｜[𝓲小简封底](https://www.instagram.com/p/DaAdGW9JiGT/)</span>{: .text-small}
+* **260707 andBOY vol.6**{: .text-blue} <span>カレの素顔にクギづけ｜条纹黑西装 ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕内页(喵)](http://xhslink.com/o/84yFhSo4VAQ)</span>{: .text-small}
+* **260701 PREPPY 8月号** <span>新連載 簡秀吉の「MY 4CUT」｜橙色西装(渡会版) ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2066460713368125449)｜[📕内页(小半)](http://xhslink.com/o/6DVnG9ArKC2)｜[web联动](https://preppyweb.com/article/30542)</span>{: .text-small}
+* **260701 Seventeen夏号** <span>カップル胸きゅんストーリー ⚠️BG企画｜浴衣 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕内页(小半)](http://xhslink.com/o/75zutaSZrNq)</span>{: .text-small}
+* **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue} <span>绿条纹polo+眼镜 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2070107235414384994)｜[𝓲小简封底](https://www.instagram.com/p/DaAdGW9JiGT/)</span>{: .text-small}
 * **260630 Butter05（HMV限定版表紙）** <span>友だち以上恋人未満をやめて新たな関係で再スタート｜红色无袖/全身牛仔 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)</span>{: .text-small}
-* **260609 FINEBOYS 7月号** <span>ヒデヨシくんをチョコっと。｜巧克力企画 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[📕电子版(软糖)](http://xhslink.com/o/6r2QzTJl4nq)</span>{: .text-small}
+* **260609 FINEBOYS 7月号** <span>ヒデヨシくんをチョコっと。｜巧克力企画 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[📕内页(软糖)](http://xhslink.com/o/6r2QzTJl4nq)</span>{: .text-small}
 * **260607 Emo!miu（web）**{: .text-red}
-* **260602 TVガイドdan vol.60（表紙）**{: .text-blue} <span>Departure｜居家连帽衫 ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/2059183389496992182)｜[𝕏HMV版封底](https://x.com/TVguidePERSON/status/2059184041790980175)</span>{: .text-small}
-* **260529 FINEBOYS+Share 04**{: .text-blue} <span>簡秀吉とサッカー｜足球应援｜12p ⇨ [封面](https://x.com/hinode_pub/status/2060146601784705221)｜[📕电子版(小半)](http://xhslink.com/o/2dyRCZC3mAv)</span>{: .text-small}
-* **260509 FINEBOYS 6月号**{: .text-blue} <span>ヒデヨシくん、撮影に入りまーす！｜休闲装｜7p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2050175903460954559)｜[📕电子版(偏差值)](http://xhslink.com/o/7nPFMpe4KcC)</span>{: .text-small}
+* **260602 TVガイドdan vol.60（表紙）**{: .text-blue} <span>Departure｜居家连帽衫｜10p ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/2059183389496992182)｜[𝕏HMV版封底](https://x.com/TVguidePERSON/status/2059184041790980175)｜[📕内页(偏差值)](http://xhslink.com/o/8Xtrx9YpNJy)</span>{: .text-small}
+* **260529 FINEBOYS+Share 04**{: .text-blue} <span>簡秀吉とサッカー｜足球应援｜12p ⇨ [封面](https://x.com/hinode_pub/status/2060146601784705221)｜[📕内页(小半)](http://xhslink.com/o/2dyRCZC3mAv)</span>{: .text-small}
+* **260509 FINEBOYS 6月号**{: .text-blue} <span>ヒデヨシくん、撮影に入りまーす！｜休闲装｜7p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2050175903460954559)｜[📕内页(偏差值)](http://xhslink.com/o/7nPFMpe4KcC)</span>{: .text-small}
 * **260501 PREPPY 6月号（表紙）**{: .text-red}
-* **260422 JUNON 6月号**{: .text-blue} <span>蓝天吹泡泡 ⇨ [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)</span>{: .text-small}
+* **260422 JUNON 6月号**{: .text-blue} <span>簡秀吉と始まりの春｜蓝天吹泡泡｜3p ⇨ [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[📕内页(kimlin)](http://xhslink.com/o/8fK5f05MWlO)</span>{: .text-small}
 * **260420 RETRO画報（表紙）**{: .text-red}
 * **260403 -STARSIDE Spring 2026- After School（表紙）**{: .text-red}
-* **260401 PREPPY 5月号（表紙）** <span>樱花简/红/黑｜16p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2023958811040502198)</span>{: .text-small}
+* **260401 PREPPY 5月号（表紙）** <span>The Rising Star｜樱花简/红/黑｜16p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2023958811040502198)</span>{: .text-small}
 * **260330 GIANNA BOYFRIEND #11（BACK COVER）**{: .text-red}
 * **260324 Lemon凝眸 3月号（表紙）**{: .text-red}
 * **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-blue} <span> 风衣小简 ⇨ [𝕏封面(简)](https://x.com/CYANMANMAGAZINE/status/2023306422604476833)</span>{: .text-small}
@@ -98,42 +98,42 @@ permalink: /category/
 
 * **260709 FINEBOYS 8月号**
 * **260708 TVガイドWeb(web) 後編**
-* **260707 Astage(web)** ⇨ <span>[藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)</span>{: .text-small}
-* **260707 andBOY vol.6**{: .text-blue} ⇨ <span>[𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕电子版(bala)](http://xhslink.com/o/7pQxWl8CzpH)</span>{: .text-small}
+* **260707 Astage(web)** <span> ⇨ [藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)</span>{: .text-small}
+* **260707 andBOY vol.6**{: .text-blue} <span>2人で楽しむ毎日ビューティ♡｜短发蓝衬衫｜5p ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕内页(bala)](http://xhslink.com/o/7pQxWl8CzpH)</span>{: .text-small}
 * **260705 MantanWeb(web)** ⇨ <span>[藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)</span>{: .text-small}
 * **260703 TVガイドWeb(web) 前編** ⇨ <span>[「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)</span>{: .text-small}
-* **260630 FINEBOYS+plus FACE**{: .text-blue}
+* **260630 FINEBOYS+plus FACE**{: .text-blue} <span> ⇨ </span>{: .text-small}
 * **260624 TV LIFE 13号** ⇨ <span>[封面目次](https://www.tvlife.jp/latest/793045)</span>{: .text-small}
-* **260622 JUNON 8月号** ⇨ <span>[𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)</span>{: .text-small}
+* **260622 JUNON 8月号** <span>NEW LOOK｜短发白衬衫｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)｜[📕中嵌内页(bala)](http://xhslink.com/o/3NDLhKlahYH)</span>{: .text-small}
 * **260610 推し楽！(web)** ⇨ <span>[藤本洸大が「クロスロード」で向き合う“決断”――正解のない芝居を模索する日々](https://fan.books.rakuten.co.jp/articles/8014)</span>{: .text-small}
 * **260607 Emo!miu（web）**{: .text-red}
-* **260604 S Cawaii!特別編集　マブ ～永遠の絆～（表紙）**
-* **260602 TVガイドdan vol.60**{: .text-blue}
-* **260529 FINEBOYS+Share 04**{: .text-blue}
-* **260521 JUNON 7月号**
-* **260509 FINEBOYS 6月号**{: .text-blue}
-* **260502 日経エンタテインメント！6月号**
+* **260604 S Cawaii!特別編集　マブ ～永遠の絆～（表紙）** <span>⇨ [𝕏封面](https://x.com/mag_scawaii/status/2057401154284449935)</span>{: .text-small}
+* **260602 TVガイドdan vol.60**{: .text-blue} <span> 池田匡志x草川直弥x藤本洸大｜灰西装｜8p ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/2059183389496992182)｜[📕内页(偏差值)](http://xhslink.com/o/7pWgiRjrrcp)</span>{: .text-small}
+* **260529 FINEBOYS+Share 04**{: .text-blue} <span> 藤本洸大とリメイク｜眼镜条纹贝雷帽领巾｜13p ⇨ [封面](https://x.com/hinode_pub/status/2060146601784705221)｜[📕内页(摸鱼)](http://xhslink.com/o/8pTlfvOU4hc)</span>{: .text-small}
+* **260521 JUNON 7月号** <span>推したちのキズナ・トーク(和洸大爸爸的对谈)｜蓝色罩衫｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2056646050358960231)｜[📕内页(bala)](http://xhslink.com/o/7cKyNkMAVs8)</span>{: .text-small}
+* **260509 FINEBOYS 6月号**{: .text-blue} <span> 今日の現場｜白T｜2p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2050175903460954559)｜[📕内页(偏差值)](http://xhslink.com/o/35YQVLlEHO)</span>{: .text-small}
+* **260502 日経エンタテインメント！6月号** <span>今、求められる俳優とは？｜蓝色T｜2p ⇨ [𝕏封面](https://x.com/nikkei_ent/status/2050379787701751860)｜[📕内页(摸鱼)](http://xhslink.com/o/3TpgNNsRXmY)</span>{: .text-small}
 * **260501 PREPPY 6月号（表紙）**{: .text-red}
-* **260428 TV LIFE 9号**
-* **260427 DIGVII 4月号**
-* **260422 JUNON 6月号**{: .text-blue}
-* **260421 NAILON Vol.3（W表紙）**
+* **260428 TV LIFE 9号** <span>#今旬コレクション｜绿格子衬衫+深色毛衣｜1p⇨ [𝕏封面](https://x.com/tv_life/status/2047504917938753643)｜[📕内页(偏差值)](http://xhslink.com/o/AO6Sy9TA0oN)｜[📕内页中嵌(bala)](http://xhslink.com/o/7wGPQLGg4JJ)｜[联动采访](https://www.tvlife.jp/pickup/788667)</span>{: .text-small}
+* **260427 DIGVII 4月号** <span> 靴とミライ STORY2｜黑毛衣｜10p ⇨ [𝕏封面](https://x.com/digvii_magazine/status/2042075024883056749)｜[📕内页(摸鱼)](http://xhslink.com/o/1c8L7LYuRTr)</span>{: .text-small}
+* **260422 JUNON 6月号**{: .text-blue} <span>藤本洸大に、間違いはない？｜大熊娃娃｜3p ⇨ [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[📕内页(摸鱼)](http://xhslink.com/o/5FiRNESrS7o)</span>{: .text-small}
+* **260421 NAILON Vol.3（W表紙）** <span>红白T/全身黑/白衬衫｜16p ⇨ [𝕏封面封底](https://x.com/nailonmagazine/status/2046429214421786730)｜[📕内页(摸鱼)](http://xhslink.com/o/6t9lB6LXDm5)</span>{: .text-small}
 * **260420 RETRO画報（表紙）**{: .text-red}
 * **260403 -STARSIDE Spring 2026- After School（表紙）**{: .text-red}
 * **260330 GIANNA BOYFRIEND #11（BACK COVER）**{: .text-red}
 * **260324 Lemon凝眸 3月号（表紙）**{: .text-red}
-* **260324 FASHION SNAP(web)**
-* **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-blue}
-* **260317 S Cawaii!5月号**
-* **260309 FINEBOYS4月号**
-* **260228 Men's Preppy 4月号**
-* **260220 JUNON4月5月合併号**
-* **260216 TRENDiCON No.14（表紙）**
-* **260216 RETRO2月号（表紙）**
-* **260214 推し楽(web)**
-* **260206 BOYS meets logirl(web)**
-* **260123 STORY Web(web)**
-* **260117 Blaze 1月号（初単独表紙）**
+* **260324 FASHION SNAP(web)** <span> ⇨ [彼が思う美意識について。vol.5](https://www.fashionsnap.com/special/sense-of-beauty-05/)</span>{: .text-small}
+* **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-blue} <span> ⇨ [𝕏封面(洸)](https://x.com/CYANMANMAGAZINE/status/2023306428979847311)</span>{: .text-small}
+* **260317 S Cawaii! 5月号** <span> ⇨ [𝕏封面](https://x.com/mag_scawaii/status/2033732826391318891)</span>{: .text-small}
+* **260309 FINEBOYS 4月号** <span>これからの男子メイク｜格子衬衫毛毛外套｜2p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2029157408627429421)｜[📕内页(摸鱼)](http://xhslink.com/o/4HP109KOd2)</span>{: .text-small}
+* **260228 Men's Preppy 4月号** <span> 6p ⇨ [𝕏封面](https://x.com/MensPREPPY/status/1758325338055331891)</span>{: .text-small}
+* **260220 JUNON4月5月合併号** <span>藤本洸大 × あざと顔｜粉毛衣甜甜圈｜4p ⇨ [封面目录](https://www.junon-tv.jp/articles/4215)｜[📕内页(摸鱼)](http://xhslink.com/o/4Wu9B5bwr3B)</span>{: .text-small}
+* **260216 TRENDiCON No.14（表紙）** <span> ⇨ [𝕏封面](https://x.com/trendicon_info/status/2023321459142058133)</span>{: .text-small}
+* **260216 RETRO2月号（表紙）** <span> ⇨ </span>{: .text-small}
+* **260214 推し楽(web)** <span> ⇨ [「すべてが今の自分につながる」藤本洸大のまっすぐな歩みと、飾らない素顔](https://fan.books.rakuten.co.jp/articles/5677)</span>{: .text-small}
+* **260206 BOYS meets logirl(web)** <span> ⇨ [藤本洸大（BOY meets logirl #064）](https://tvablog.tv-asahi.co.jp/reading/logirl/14572/)</span>{: .text-small}
+* **260123 STORY Web(web)** <span> ⇨ [前篇](https://storyweb.jp/lifestyle/680244/)｜[后篇](https://storyweb.jp/lifestyle/680232/)｜[特別cut集](https://storyweb.jp/lifestyle/680307/)</span>{: .text-small}
+* **260117 Blaze 1月号（初単独表紙）** <span> ⇨ </span>{: .text-small}
 
 ---
 * **251222 JUNON 2月号**
@@ -158,7 +158,7 @@ permalink: /category/
 ---
 * **241011 コミックBe vol.129**
 * **241031 awesome! Vol.69**
-* **241028 TVガイドAlpha EPISODE.FFFF VOL.84**
+* **241028 TVガイドAlpha EPISODE.FFFF VOL.84** <!-- [📕内页(bala)](http://xhslink.com/o/AttYAwibla) -->
 * **241022 JUNON 12月号**
 * **241015 TVガイドdan vol.53**
 * **241002 TV LIFE**

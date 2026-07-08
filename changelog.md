@@ -39,6 +39,8 @@ https://www.oricon.co.jp/news/2414683/full/?__cf_chl_f_tk=hukJtMf4wpC37gn4ihQhDC
 <!-- 一些直播！！ 11/24/25 https://www.instagram.com/reel/DRcKSZ3j4JV/
 https://www.instagram.com/dxteen_official/reels/ -->
 
+[ 2026-07-07 ] 填充杂志单
+
 [ 2026-07-06 ] 补档修仲X back-to-11/14 - 15s PR存到第5话
 
 [ 2026-07-05 ] 补档修仲X back-to-11/16
