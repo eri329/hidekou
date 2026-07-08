@@ -61,8 +61,8 @@ permalink: /category/
 * **260609 FINEBOYS 7月号** <span>ヒデヨシくんをチョコっと。｜巧克力企画 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[📕电子版(软糖)](http://xhslink.com/o/6r2QzTJl4nq)</span>{: .text-small}
 * **260607 Emo!miu（web）**{: .text-red}
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue} <span>Departure｜居家连帽衫 ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/2059183389496992182)｜[𝕏HMV版封底](https://x.com/TVguidePERSON/status/2059184041790980175)</span>{: .text-small}
-* **260529 FINEBOYS+Share 04**{: .text-blue} <span>簡秀吉とサッカー｜足球应援 ⇨ [📕电子版(小半)](http://xhslink.com/o/2dyRCZC3mAv)</span>{: .text-small}
-* **260509 FINEBOYS 6月号**{: .text-blue} <span>撮影中のヒデヨシくん ⇨ [𝕏封面](https://x.com/hinode_pub/status/2050175903460954559)</span>{: .text-small}
+* **260529 FINEBOYS+Share 04**{: .text-blue} <span>簡秀吉とサッカー｜足球应援｜12p ⇨ [封面](https://x.com/hinode_pub/status/2060146601784705221)｜[📕电子版(小半)](http://xhslink.com/o/2dyRCZC3mAv)</span>{: .text-small}
+* **260509 FINEBOYS 6月号**{: .text-blue} <span>ヒデヨシくん、撮影に入りまーす！｜休闲装｜7p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2050175903460954559)｜[📕电子版(偏差值)](http://xhslink.com/o/7nPFMpe4KcC)</span>{: .text-small}
 * **260501 PREPPY 6月号（表紙）**{: .text-red}
 * **260422 JUNON 6月号**{: .text-blue} <span>蓝天吹泡泡 ⇨ [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)</span>{: .text-small}
 * **260420 RETRO画報（表紙）**{: .text-red}

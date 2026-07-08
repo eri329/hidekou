@@ -56,7 +56,7 @@ permalink: /
 {: #jul2026}
 
 * **260725【修学旅行｜正片】修学旅行TV再放送 第3话** ※24:25～24:55
-* **260713【修学旅行｜正片】日本映画専門チャンネル修学旅行放送纪念特集** 是一个付费电视频道；7月13日(月)よる8時30分～ ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)
+* **260713【修学旅行｜正片】日本映画専門频道修学旅行放送纪念特集** 是一个付费电视频道；7月13日(月)よる8時30分～ ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)
     > 【2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集】 話題作「修学旅行で仲良くないグループに入りました」（全10話）を7月より2ヶ月にわたって放送。本作のW主演を務めた藤本洸大出演「舞台『それってキセキ』」をはじめ、簡秀吉出演の「映画 仮面ライダーギーツ 4人のエースと黒狐」、...もあわせてお届け。
     > **260620 放送告知** ⇨ [𝕏](https://x.com/nihoneiga/status/2068134269550219618)
     > **260701 8月放送情报公开** 洸大出演的舞台剧『それってキセキ』也会在8/12, 8/28放送；眼镜洸大🈶 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)｜极狐剧场版 8/12, 8/17, 8/28放送 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030422_0001.html)
@@ -87,7 +87,7 @@ permalink: /
 ### 2026.6
 {: #jun2026}
 
-* **260630【修学旅行】ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位** ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
+* **260630【修学旅行】ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位** ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)/[ins](https://www.instagram.com/reels/DafM_JPSD1O/)
 * **260630【修学旅行】堀田生日快乐！** ⇨ [𝕏官方](https://x.com/dramal_abc/status/2071715511977828473)/[ins](https://www.instagram.com/p/DaL419jzViO/)｜[𝕏亲妈发推](https://x.com/rcnfe37/status/2071730664228131213)
 * **260630【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30)杂志发售** 简洸分别登场, 小简是封底
     > **260624 简秀吉底封登场情报解禁** ⇨ [𝕏文字解禁](https://x.com/FINEBOYS_JP/status/2069737311777313124)
@@ -131,6 +131,7 @@ permalink: /
     > **260626 拍摄花絮**{: .text-red} ⇨ [𝕏](https://x.com/Emo_miu/status/2070453965054165129)/[ins](https://www.instagram.com/reel/DaC5YYdCcPm/)
     > #### 太甜了要在这个花絮里甜晕过去了！！两个人的脸贴近到只剩1cm的秀洸风味是最好最好嗑的……简秀吉这个爱意溢出的眼神，加上洸大捏简秀吉头发的小得意，好甜蜜一对xql……然后这个ins视频洸大共创(会显示在ins主页)+小简转发，三次也甜甜蜜蜜中……
     > **260703 抽奖奖品图透** ⇨ [𝕏](https://x.com/Emo_miu/status/2072968852607275325/)
+    > **260707 抽奖奖品小卡图透** ⇨ [𝕏](https://x.com/Emo_miu/status/2074455255782445272)
 * **260606【修学旅行｜双人】韩国见面会**{: .text-red}
     > 13:00/18:00 Donghae Culture & Arts Center(光云大学东海文化艺术馆) ⇨ [官网](https://www.asahi.co.jp/schooltrip/news/eventkorea.html)
     > **260413 定档6月6日** ⇨ [𝕏](https://x.com/p_en_kr/status/2043554933086326826)
@@ -150,7 +151,7 @@ permalink: /
     > **260602 video call抽选(20名)结果发表**
     > **260606 活动当天+狐猪合照+洸大ins** ⇨ [𝕏](https://x.com/dramal_abc/status/2063211059633352837)/[ins](https://www.instagram.com/p/DZPdshyToQL/)｜[𝓲洸](https://www.instagram.com/p/DZPq7Y6FPyn/)｜[𝕏周边拍立得抽选结果](https://x.com/p_en_kr/status/2063117751053672454)
     > **260607 小简ins发清溪川** ⇨ [𝓲简](https://www.instagram.com/p/DZSBcNNAWbj/)
-    > **260608 MC姐姐发ins** ⇨[ins](https://www.instagram.com/p/DZUvBteifwm/) MC姐姐是日韓結婚式司会来的XD 她说自己看了两遍修学旅行，是作为一名粉丝来为活动做准备的。｜[ins(6/26)](https://www.instagram.com/p/DaCMPcoiZGt/)｜[𝕏(6/7)](https://x.com/MINNANO_ENT/status/2063290724494581930)
+    > **260608 MC姐姐发ins** ⇨ [ins](https://www.instagram.com/p/DZUvBteifwm/) MC姐姐是日韓結婚式司会来的XD 她说自己看了两遍修学旅行，是作为一名粉丝来为活动做准备的。｜[ins(6/26)](https://www.instagram.com/p/DaCMPcoiZGt/)｜[𝕏(6/7)](https://x.com/MINNANO_ENT/status/2063290724494581930)
     > **260612 大合照&2:10合照** ⇨ [𝕏](https://x.com/p_en_kr/status/2065357947031683440)
     > **260620 简秀吉韩国见面会期间自拍** ⇨ [𝓲简](https://www.instagram.com/p/DZznuroAaXB/)
     > **260618 回放开始+狐猪宣传视频**{: .text-red} ⇨ [𝕏-宣传视频](https://x.com/dramal_abc/status/2067532775801143304)/[ins](https://www.instagram.com/p/DZuK9NLhSzF/)

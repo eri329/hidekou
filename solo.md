@@ -20,6 +20,7 @@ permalink: /solo/
     > **260525 マイナビ TGC 2026 A/W(秋冬)出演決定!** ⇨ [𝕏](https://x.com/TGCnews/status/2058775066377367733)
     > **260603 小简宣传视频** TGC出演希望 個人部門で1位 ⇨ [𝕏](https://x.com/TGCnews/status/2062096953249288594) 表达了对第1位的感谢，以及对初次走秀的憧憬，最后还玩了一把抽象，很忙的一个视频www
     > **260603 簡秀吉コラボ企画** 向大家征集想要小简实现的愿望 ⇨ [𝕏](https://x.com/tgcnews/status/2062098208109817903)
+    > **260707 电波手势舞** ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
 * **260707 MBS电视剧「幸せになりたいマサムネ君」开播** ツバサ役 7月7日(火)MBS‣‣24:59〜 ／TBS‣‣25:26〜 ほか
     > **260612「幸せになりたいマサムネ君」（7/7）出演情报解禁** ツバサ役;是暗恋女主的男主朋友剧里还另有炮友；女主是洸大在「share」里也暗恋过的女主，好混乱的一锅粥hhh ⇨ [𝓲简-本人告知(图)](https://www.instagram.com/p/DZe1F1-ge14/)｜[𝕏](https://x.com/dramaism_mbs/status/2065373680314802324)｜[角色介绍](https://x.com/dramaism_mbs/status/2065375213085397217)
     > **260618 进组宣传视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2067585219461620164)/[ins](https://www.instagram.com/reel/DZuiSjAPAMp/)
@@ -29,7 +30,7 @@ permalink: /solo/
     > **260703 小简宣传口播** 距离放送日还有4天！⇨ [𝕏](https://x.com/dramaism_mbs/status/2073016663549874516)/[ins](https://www.instagram.com/reels/DaVIUHgPTAZ/)
 * **260707 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 8:30~配信開始；アメリカvsベルギー : ラウンド16
     > **260706 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074052722723365249)
-    > **260707 小简宣传视频** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074269730480009264)
+    > **260707 小简宣传视频** with 冬野心央/増子敦貴 ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074269730480009264)｜[𝕏造型师金田健志发推(无图)](https://x.com/kanedakenshi/status/2074241393619575148)｜[𝕏増子敦貴发三人合照](https://x.com/atsuki_mashiko/status/2074329655688233316)
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 9:30~ コロンビアvsガーナ : ラウンド32
     > **260703 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2072913602835792082)
@@ -62,6 +63,7 @@ permalink: /solo/
     > **260701 图透** ⇨ [𝕏](https://x.com/Auditionblue/status/2072247588880068946)
     > **270704 继续图透** 公园散步中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073278129079230685)
     > **260705 继续图透** 公园游玩中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073614092493844722)
+    > **260707 继续图透** 阳台听音乐 ⇨ [𝕏](https://x.com/Auditionblue/status/2074418150217789732)
 * **260630【快拍】小简熬夜看球中: 日本vs巴西**
 * **260629【FC｜直播】21꞉15~ 电台直播** 有提到7/2会上DAZN的世界杯节目，当天节目出演表也出来了。
 * **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！** ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2071475048502939874)
@@ -183,6 +185,8 @@ permalink: /solo/
 ### 2026
 {: #kodai2026}
 
+* **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
+    > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
 * **260730 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回** 19:00〜19:45
     > **260617 MC出演 配信決定🎉** 配信は11月までの全3回を予定。初回は7/30(木)19:00〜(45分番組) ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2067170394394779690)｜[配信地址](https://www.showroom-live.com/r/junonsuperboyclub)
 * **260716【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
@@ -190,10 +194,12 @@ permalink: /solo/
     > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
 * **260708 TVガイドWeb 采访 後編** ⇨
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
+    > [📕cut(喵)](http://xhslink.com/o/5aMjwhTT2cS)/[📕中字cut(bala)](http://xhslink.com/o/8SQuWP5mp5v)
     > **260612 ゲスト出演情报解禁**
     > **260623 第1话预告** 7月7日(火)21:00～ 初回拡大スペシャル ⇨ [𝕏](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
     > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
     > **260707 剧照预告** ⇨ [𝕏](https://x.com/TVGweb/status/2074237198656782520)/[ins](https://www.instagram.com/p/DadzrsBFEFm) ins图要大一些
+    > **260707 推し楽采访** ⇨ [𝕏相关采访(以前发过)](https://x.com/oshiraku/status/2074252318653210664)
 * **260705 Mantan Web采访** ⇨ [藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)
 * **260628~260705** 在这期间的某一天洸大去看了TC同事的舞台剧《オーファンズ》 ⇨ [舞台剧主页](https://orphans2026.com/)
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
@@ -382,27 +388,27 @@ permalink: /solo/
     > 小猪说自己唱歌和跳舞都不太行做不了爱豆, 别把我萌死了
     > **260116** [📕配置&大屏&特典](https://www.xiaohongshu.com/discovery/item/696a2b2a000000000a03eff2?source=webshare&xhsshare=pc_web&xsec_token=ABbGX3uKGMMoW5o-1adyJDRUcYIjrVvWa3YXUn1-YZdF8=&xsec_source=pc_share)/[𝕏(1/17)](https://x.com/blazeprojectmag/status/2012374536029913579)/[𝕏大屏(1/17)](https://x.com/blazeprojectmag/status/2012374710546481454)｜[📕小猪问候视频](https://www.xiaohongshu.com/discovery/item/696a1bff000000000b013a28?source=webshare&xhsshare=pc_web&xsec_token=ABbGX3uKGMMoW5o-1adyJDRbAylYLk-VKdIwJKuHoSp2U=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2012117584880292031)
     > **260117** [📕封面公开](https://www.xiaohongshu.com/discovery/item/696a7e63000000000903942d?source=webshare&xhsshare=pc_web&xsec_token=ABbGX3uKGMMoW5o-1adyJDRSS4ETlLHmf18jJmKBbHq30=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2012374303573176535)/[ins](https://www.instagram.com/p/DTmP1PCE7Tg/)
-    > **260118** ⇨ [📕销量播报5500+物料照](https://www.xiaohongshu.com/discovery/item/696c5ad4000000000b0089bb?source=webshare&xhsshare=pc_web&xsec_token=ABfGJnGCm6zH-b5AeYlvuepkqyMErZW-s3kauz1MzhXgI=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2012736865305264128)/[ins](https://www.instagram.com/p/DTo0rDGE_9_/)
-    > **260119** ⇨ [📕拍摄花絮(绿)](https://www.xiaohongshu.com/discovery/item/696e10a1000000000b0115a8?source=webshare&xhsshare=pc_web&xsec_token=ABFySv63YpqmrZ29hz5olPJbp_IrLAzcGDmm_pflN78nk=&xsec_source=pc_share)/[𝕏销量6500](https://x.com/blazeprojectmag/status/2013205113834451029)/[ins](https://www.instagram.com/p/DTsJfRuE4VG/)
-    > **260120** ⇨ [📕99问上](https://www.xiaohongshu.com/discovery/item/696f6f12000000000a030b09?source=webshare&xhsshare=pc_web&xsec_token=ABZcvA5Eknyp0-ZkmaHiCuWHLdoGk7d_UbXWTAdsTCKf8=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2013585895929078073)
-    > **260121** ⇨ [📕拍摄花絮图+文字花絮(关于身高)](https://www.xiaohongshu.com/discovery/item/6970b1c9000000000c036042?source=webshare&xhsshare=pc_web&xsec_token=ABYQs49m--BUK8YDnD4y7D7fHiJCiJNm8YT-EmWNRDvKQ=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2013929640474312784)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DTxTwr9k-vQ/)
-    > **260122** ⇨ [📕单词连读挑战](https://www.xiaohongshu.com/discovery/item/69720375000000000a02e841?source=webshare&xhsshare=pc_web&xsec_token=ABeKi32Oy9xEWGGcWfQSyMm3NvsF_Hfzrejd7UAicp1Aw=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2014294388890009986)
-    > **260123** ⇨ [📕抖音小视频挂件小猪](https://www.xiaohongshu.com/discovery/item/69735492000000000a029e8b?source=webshare&xhsshare=pc_web&xsec_token=ABAo-zOk1mhD_7HHiNCekf8C-2ABntOImK877Dl8KHBMQ=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2014655601897570639)/[ins](https://www.instagram.com/p/DT2dUIwE1Hj/)
-    > **260124** ⇨ [📕销量播报7900+物料照](https://www.xiaohongshu.com/discovery/item/6974a89e000000000903911a?source=webshare&xhsshare=pc_web&xsec_token=ABwdB5lljCVLPxtLRfWoq1R_LTaPghf1hQz3rujkoBWek=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2015017515190194330)/[𝕏](https://x.com/blazeprojectmag/status/2015021711608164395)/[ins](https://www.instagram.com/p/DT5ESn9E8Bz/)
-    > **260125** ⇨ [📕拍摄花絮(黑)](https://www.xiaohongshu.com/discovery/item/6975f835000000000a033e16?source=webshare&xhsshare=pc_web&xsec_token=ABal3hxpAAs6SwkozMs9lwAWUdrqjyQiynx6s9EvEM0Zs=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2015380098632003915)/[ins](https://www.instagram.com/p/DT7mtLck_7q/)｜[马内甲记录](https://sp.tcland.jp/contents/1039953)
-    > **260125** ⇨ [📕销量播报9700+物料照](https://www.xiaohongshu.com/discovery/item/697751b1000000000a03ea0a?source=webshare&xhsshare=pc_web&xsec_token=ABP1oazH1gfa2OC_yBk1Z1zcRX60WuKGJiWoMgORUhJdY=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2015749832913367408)/[ins](https://www.instagram.com/p/DT-P4J0k7SX/) 小猪手机壳注目!!
-    > **260127** ⇨ [📕抖音小视频手势舞](https://www.xiaohongshu.com/discovery/item/6978a021000000000903b615?source=webshare&xhsshare=pc_web&xsec_token=ABLZNV6M3z5-OoAN-p5w7-dWznfqBCog-1S4rqsEpMbc8=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2016119076113023279)/[ins](https://www.instagram.com/p/DUA25eCE-EF/)
-    > **260128** ⇨ [📕答非所问游戏](https://www.xiaohongshu.com/discovery/item/697a03bb000000000c035798?source=webshare&xhsshare=pc_web&xsec_token=ABgd549NCLkH_Zq9aUnby_l7fAFR8btA_EvX9tQPuCMaY=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2016491782281072766)
-    > **260129** ⇨ [📕物料照+文字花絮(唱歌)](https://www.xiaohongshu.com/discovery/item/697b4be9000000000a02f466?source=webshare&xhsshare=pc_web&xsec_token=ABh4sx_XyWPD0BnGLZpj0u4qyInztCHOkzeNmpZ8nZ0Rw=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2016848245264465950)/[ins](https://www.instagram.com/p/DUGBEreExNs/)｜[马内甲记录](https://sp.tcland.jp/contents/1040945)｜[马内甲记录(1/30)](https://sp.tcland.jp/contents/1041708)
-    > **260131** ⇨ [📕99问中篇](https://www.xiaohongshu.com/discovery/item/697df269000000000b00bb1e?source=webshare&xhsshare=pc_web&xsec_token=ABC8NeX3Ds6O_3dGbD438DCCDFeDMEFwVahqa5RD6kOQs=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2017573618096677093) 这个杂志太会问问题了…(晕)
-    > **260201** ⇨ [📕拍摄花絮(牛仔)](https://www.xiaohongshu.com/discovery/item/697f3cec000000000903b2fd?source=webshare&xhsshare=pc_web&xsec_token=ABWFhCG3d0GfB5DbxF2qeBgV8SOqXls2q06gRkId5rUJs=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2017926959163150554)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DUNsoHQ3tS/)
-    > **260203** ⇨ [📕销量播报12000+物料照](https://www.xiaohongshu.com/discovery/item/6981e3c3000000000a031c4e?source=webshare&xhsshare=pc_web&xsec_token=ABQb6eerBWpYXLBAiS4IgNjmua6hp_bkZZRdsm5huKXXc=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2018655732305121572)/[ins](https://www.instagram.com/p/DUS4Mj6EyOq/)
-    > **260205** ⇨ [📕99问下篇](https://www.xiaohongshu.com/discovery/item/6984893e000000000a02c80d?source=webshare&xhsshare=pc_web&xsec_token=AB4Mf9SALW3GxblVYjRPSPtK3tsFQ22OO-qdifkiSf6hw=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2019387510879826423)
+    > **260118** [📕销量播报5500+物料照](https://www.xiaohongshu.com/discovery/item/696c5ad4000000000b0089bb?source=webshare&xhsshare=pc_web&xsec_token=ABfGJnGCm6zH-b5AeYlvuepkqyMErZW-s3kauz1MzhXgI=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2012736865305264128)/[ins](https://www.instagram.com/p/DTo0rDGE_9_/)
+    > **260119** [📕拍摄花絮(绿)](https://www.xiaohongshu.com/discovery/item/696e10a1000000000b0115a8?source=webshare&xhsshare=pc_web&xsec_token=ABFySv63YpqmrZ29hz5olPJbp_IrLAzcGDmm_pflN78nk=&xsec_source=pc_share)/[𝕏销量6500](https://x.com/blazeprojectmag/status/2013205113834451029)/[ins](https://www.instagram.com/p/DTsJfRuE4VG/)
+    > **260120** [📕99问上](https://www.xiaohongshu.com/discovery/item/696f6f12000000000a030b09?source=webshare&xhsshare=pc_web&xsec_token=ABZcvA5Eknyp0-ZkmaHiCuWHLdoGk7d_UbXWTAdsTCKf8=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2013585895929078073)
+    > **260121** [📕拍摄花絮图+文字花絮(关于身高)](https://www.xiaohongshu.com/discovery/item/6970b1c9000000000c036042?source=webshare&xhsshare=pc_web&xsec_token=ABYQs49m--BUK8YDnD4y7D7fHiJCiJNm8YT-EmWNRDvKQ=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2013929640474312784)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DTxTwr9k-vQ/)
+    > **260122** [📕单词连读挑战](https://www.xiaohongshu.com/discovery/item/69720375000000000a02e841?source=webshare&xhsshare=pc_web&xsec_token=ABeKi32Oy9xEWGGcWfQSyMm3NvsF_Hfzrejd7UAicp1Aw=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2014294388890009986)
+    > **260123** [📕抖音小视频挂件小猪](https://www.xiaohongshu.com/discovery/item/69735492000000000a029e8b?source=webshare&xhsshare=pc_web&xsec_token=ABAo-zOk1mhD_7HHiNCekf8C-2ABntOImK877Dl8KHBMQ=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2014655601897570639)/[ins](https://www.instagram.com/p/DT2dUIwE1Hj/)
+    > **260124** [📕销量播报7900+物料照](https://www.xiaohongshu.com/discovery/item/6974a89e000000000903911a?source=webshare&xhsshare=pc_web&xsec_token=ABwdB5lljCVLPxtLRfWoq1R_LTaPghf1hQz3rujkoBWek=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2015017515190194330)/[𝕏](https://x.com/blazeprojectmag/status/2015021711608164395)/[ins](https://www.instagram.com/p/DT5ESn9E8Bz/)
+    > **260125** [📕拍摄花絮(黑)](https://www.xiaohongshu.com/discovery/item/6975f835000000000a033e16?source=webshare&xhsshare=pc_web&xsec_token=ABal3hxpAAs6SwkozMs9lwAWUdrqjyQiynx6s9EvEM0Zs=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2015380098632003915)/[ins](https://www.instagram.com/p/DT7mtLck_7q/)｜[马内甲记录](https://sp.tcland.jp/contents/1039953)
+    > **260125** [📕销量播报9700+物料照](https://www.xiaohongshu.com/discovery/item/697751b1000000000a03ea0a?source=webshare&xhsshare=pc_web&xsec_token=ABP1oazH1gfa2OC_yBk1Z1zcRX60WuKGJiWoMgORUhJdY=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2015749832913367408)/[ins](https://www.instagram.com/p/DT-P4J0k7SX/) 小猪手机壳注目!!
+    > **260127** [📕抖音小视频手势舞](https://www.xiaohongshu.com/discovery/item/6978a021000000000903b615?source=webshare&xhsshare=pc_web&xsec_token=ABLZNV6M3z5-OoAN-p5w7-dWznfqBCog-1S4rqsEpMbc8=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2016119076113023279)/[ins](https://www.instagram.com/p/DUA25eCE-EF/)
+    > **260128** [📕答非所问游戏](https://www.xiaohongshu.com/discovery/item/697a03bb000000000c035798?source=webshare&xhsshare=pc_web&xsec_token=ABgd549NCLkH_Zq9aUnby_l7fAFR8btA_EvX9tQPuCMaY=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2016491782281072766)
+    > **260129** [📕物料照+文字花絮(唱歌)](https://www.xiaohongshu.com/discovery/item/697b4be9000000000a02f466?source=webshare&xhsshare=pc_web&xsec_token=ABh4sx_XyWPD0BnGLZpj0u4qyInztCHOkzeNmpZ8nZ0Rw=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2016848245264465950)/[ins](https://www.instagram.com/p/DUGBEreExNs/)｜[马内甲记录](https://sp.tcland.jp/contents/1040945)｜[马内甲记录(1/30)](https://sp.tcland.jp/contents/1041708)
+    > **260131** [📕99问中篇](https://www.xiaohongshu.com/discovery/item/697df269000000000b00bb1e?source=webshare&xhsshare=pc_web&xsec_token=ABC8NeX3Ds6O_3dGbD438DCCDFeDMEFwVahqa5RD6kOQs=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2017573618096677093) 这个杂志太会问问题了…(晕)
+    > **260201** [📕拍摄花絮(牛仔)](https://www.xiaohongshu.com/discovery/item/697f3cec000000000903b2fd?source=webshare&xhsshare=pc_web&xsec_token=ABWFhCG3d0GfB5DbxF2qeBgV8SOqXls2q06gRkId5rUJs=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2017926959163150554)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DUNsoHQ3tS/)
+    > **260203** [📕销量播报12000+物料照](https://www.xiaohongshu.com/discovery/item/6981e3c3000000000a031c4e?source=webshare&xhsshare=pc_web&xsec_token=ABQb6eerBWpYXLBAiS4IgNjmua6hp_bkZZRdsm5huKXXc=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2018655732305121572)/[ins](https://www.instagram.com/p/DUS4Mj6EyOq/)
+    > **260205** [📕99问下篇](https://www.xiaohongshu.com/discovery/item/6984893e000000000a02c80d?source=webshare&xhsshare=pc_web&xsec_token=AB4Mf9SALW3GxblVYjRPSPtK3tsFQ22OO-qdifkiSf6hw=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2019387510879826423)
     > 小猪你知道吗你说自己睡得很沉就会有一种梗大量出现…；对“小猪”这个称呼的理解真的超级棒的!；手势boxing也挺抽象的hhh
-    > **260206** ⇨ [📕终篇预告+拍立得物料](https://www.xiaohongshu.com/discovery/item/6985dc78000000000a03f825?source=webshare&xhsshare=pc_web&xsec_token=ABCf_EWALyn1y9TQbCLuvRBzZkEeN_r-sKOtcClOtxIik=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2019751588127015104)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DUanBuEk5tE/)
-    > **260207** ⇨ [📕最后一条拍摄花絮](https://www.xiaohongshu.com/discovery/item/69872c2e000000000c034f4e?source=webshare&xhsshare=pc_web&xsec_token=ABvPmnC-ckcud2P8O947XRj4dAVGkjneEvLJdr1f9CVuU=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2020106696014889412)/[ins](https://www.instagram.com/p/DUdLZ2BE_i-/)
-    > **260207** ⇨ [📕戴着小猪发箍的小猪](https://www.xiaohongshu.com/discovery/item/6986c209000000000b008ad5?source=webshare&xhsshare=pc_web&xsec_token=ABHW7YvyQe7TSzOZIHH2ETMXW75AUFUt0KsXqcsahYrpg=&xsec_source=pc_share)
-    > **260211** ⇨ [𝕏销量播报15000+物料照](https://x.com/blazeprojectmag/status/2021494398811578765)
+    > **260206** [📕终篇预告+拍立得物料](https://www.xiaohongshu.com/discovery/item/6985dc78000000000a03f825?source=webshare&xhsshare=pc_web&xsec_token=ABCf_EWALyn1y9TQbCLuvRBzZkEeN_r-sKOtcClOtxIik=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2019751588127015104)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DUanBuEk5tE/)
+    > **260207** [📕最后一条拍摄花絮](https://www.xiaohongshu.com/discovery/item/69872c2e000000000c034f4e?source=webshare&xhsshare=pc_web&xsec_token=ABvPmnC-ckcud2P8O947XRj4dAVGkjneEvLJdr1f9CVuU=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2020106696014889412)/[ins](https://www.instagram.com/p/DUdLZ2BE_i-/)
+    > **260207** [📕戴着小猪发箍的小猪](https://www.xiaohongshu.com/discovery/item/6986c209000000000b008ad5?source=webshare&xhsshare=pc_web&xsec_token=ABHW7YvyQe7TSzOZIHH2ETMXW75AUFUt0KsXqcsahYrpg=&xsec_source=pc_share)
+    > **260211** [𝕏销量播报15000+物料照](https://x.com/blazeprojectmag/status/2021494398811578765)
     > **260212~260222** [𝕏新宿大屏](https://x.com/blazeprojectmag/status/2024070685895581700)
     > **260223~260301** [𝕏名古屋大屏](https://x.com/blazeprojectmag/status/2025059718058967370)
     > **260302~260308** [𝕏神户大屏](https://x.com/blazeprojectmag/status/2027233850913620057)
