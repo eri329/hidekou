@@ -65,13 +65,17 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 是一个付费电视频道；7月13日(月)よる8時30分スタート；7/13, 8/26 ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)｜[详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
 * **260711**
     > **【修学旅行｜正片】修学旅行TV再放送 第2话**
-* **260709**
-    > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)杂志发售**{: .text-solo-k}
-* **260708**
-    > **【采访｜藤本洸大】TVガイドWeb 采访 後編**{: .text-solo-k} ⇨ [采访]()
 
 <div class="line"></div>
 
+* **260709**
+    > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)杂志发售**{: .text-solo-k} ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)
+* **260708**
+    > **【SNS｜简秀吉】《andBOY》vol.6(7/7) ins快拍** 16:9都放不下的超级大长腿！⇨ [𝕏粉丝留档](https://x.com/checkey_2002/status/2074757940259762506)
+    > **【个人活动｜简秀吉】DAZN「FIFAワールドカップ デイリーハイライト」出演** 19:00〜 ⇨ [𝕏告知](https://x.com/DAZN_JPN/status/2074742900425101397)
+        > **小简发ins/X总结最近的DAZN** 有和吉田麻也/矢部浩之的合照 ⇨ [!ins简](https://www.instagram.com/p/Dah-xq6gYaH/)/[𝕏简](https://x.com/kan_hideyoshi/status/2074826489787523514)
+        > **造型师金田健志发图** 两边图略有不同 ⇨ [𝕏](https://x.com/kanedakenshi/status/2074855719309078979)｜[ins](https://www.instagram.com/p/DaiFmTyEy2D)
+    > **【采访｜藤本洸大】TVガイドWeb 采访 後編**{: .text-solo-k} ⇨ [𝕏应募拍立得](https://x.com/TVguidePERSON/status/2074690525630967854)｜[藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/) 讲了很多修仲的话题！
 * **260707**
     > **【商务｜双人】Emomiu CLAYGE洗发水 晒单抽奖奖品** ⇨ [𝕏](https://x.com/Emo_miu/status/2074455255782445272)
     > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7)杂志发售** 简洸分别登场
@@ -112,7 +116,6 @@ permalink: /flattened_timeline/
     > **【个人活动｜简秀吉】DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演**{: .text-solo} 9:30~
         > 小简宣传视频 ⇨ [𝕏](https://x.com/DAZN_JPN/status/2073215758654755065)
         > 小简发ins ⇨ [𝕏简](https://www.instagram.com/p/DaXYd03AejB/) 全身牛仔🈶，希望麦粒肿早点好起来！
-        > 粉丝截的cut ⇨ [📕(小半)](http://xhslink.com/o/4UCYkGZ4vjR)
 * **260703**
     > **【修学旅行｜漫画】漫画第10话上线** ⇨ [𝕏](https://x.com/beluckbunko/status/2072988650426790386)
     > **【修学旅行｜漫画】漫画原作老师到池袋Animate画了色纸** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2072952799881765253)
@@ -123,7 +126,7 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」Season2 「恋リアみたいな転校生」**{: .text-solo-k}背景板ing ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072878384296992929)/[ins](https://www.instagram.com/p/DaUJJG4JmcN/)
 * **260702**
     > **【修学旅行】ちるちる映像大賞2026投票开始！** 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)/[ins](https://www.instagram.com/p/DaSAWa9E3Xr/)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)
-    > **【个人活动｜简秀吉】DAZN世界杯节目出演**{: .text-solo} DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)｜[𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)｜[📕小简cut中字(小半)](http://xhslink.com/o/7Dkj5wRcV5)｜[𝕏韩粉截的cut](https://x.com/merooonico/status/2072669388252320239)｜[𝕏应募嘉宾签名T(7/3)](https://x.com/DAZN_JPN/status/2072861224363233403)
+    > **【个人活动｜简秀吉】DAZN世界杯节目出演**{: .text-solo} DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)｜[𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)｜[𝕏应募嘉宾签名T(7/3)](https://x.com/DAZN_JPN/status/2072861224363233403)
     > **【杂志｜简秀吉】《Preppy》8月号(7/1) 小红书宣传**{: .text-solo} ⇨ [📕简(7/2)](http://xhslink.com/o/93Wx160jDdS)
     > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」Season2 手紙リレーで重大発表 Season2配信决定**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072514928238612640)/[ins](https://www.instagram.com/reel/DaRkWuphn8P/)
     > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)登场情报解禁**{: .text-solo-k} 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
@@ -345,7 +348,7 @@ permalink: /flattened_timeline/
     > **【杂志｜简秀吉｜藤本洸大】《JUNON》6月号(4/22) 小简便利店相卡** 5/13～5/20 ⇨ [𝕏](https://x.com/eprintservice/status/2054366012796010934)
 * **260512**
     > **【个人活动｜简秀吉】FM5.9见面会 造型师牧野裕大发图**{: .text-solo} 260512～260513 Repost但更高清 ⇨ [ins1](https://www.instagram.com/p/DYOaNQSkdLc/)｜[ins2](https://www.instagram.com/p/DYQYxVFE2Pt/)｜[ins-候场视频-棕](https://www.instagram.com/p/DYRaMUkR83V/)｜[ins-候场视频-黑](https://www.instagram.com/p/DYTjV4IxAII/)
-    > **【杂志｜藤本洸大】《TV Life》9号(4/28) 联动采访+7秒问答** => [【#今旬コレクション】藤本洸大、他者に負けない自身の“武器”とは？「童顔や後輩らしさ、ピュアに突き進んでいけるところだと思います」](https://www.tvlife.jp/pickup/788667)
+    > **【杂志｜藤本洸大】《TV Life》9号(4/28) 联动采访+7秒问答** ⇨ [【#今旬コレクション】藤本洸大、他者に負けない自身の“武器”とは？「童顔や後輩らしさ、ピュアに突き進んでいけるところだと思います」](https://www.tvlife.jp/pickup/788667)
         > [🆈藤本洸大が7秒で質問に答えます！「#旬コレ 7seconds CHALLENGE」](https://www.youtube.com/watch?v=r9Czzd3bTRA)
 * **260511**
     > **【修学旅行｜双人】韩国见面会(6/6) 线上配信+视讯抽选开票** 平台是hellolive ⇨ [𝕏](https://x.com/hellolivetv/status/2053762044675956865)/[𝕏修仲官方(5/15)](https://x.com/dramal_abc/status/2055243136277119390)/[ins](https://www.instagram.com/p/DYW2TkFzJdf/)

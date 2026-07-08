@@ -28,20 +28,28 @@ permalink: /solo/
     > **260623 放送2周前宣传视频** 小简with男主 ⇨ [ins](https://www.instagram.com/reel/DZ7HSWKPH9q/)
     > **260630 新预告** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2071900169197813850)｜[ins](https://www.instagram.com/p/DaNLcxmP_4s/) ⚠️有事后躺床镜头
     > **260703 小简宣传口播** 距离放送日还有4天！⇨ [𝕏](https://x.com/dramaism_mbs/status/2073016663549874516)/[ins](https://www.instagram.com/reels/DaVIUHgPTAZ/)
-* **260707 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 8:30~配信開始；アメリカvsベルギー : ラウンド16
-    > **260706 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074052722723365249)
-    > **260707 小简宣传视频** with 冬野心央/増子敦貴 ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074269730480009264)｜[𝕏造型师金田健志发推(无图)](https://x.com/kanedakenshi/status/2074241393619575148)｜[𝕏増子敦貴发三人合照](https://x.com/atsuki_mashiko/status/2074329655688233316)
+    > **260708 第2话预告/剧照** 只有一个吃饭镜头 ⇨ [ins预告](https://www.instagram.com/reels/Dahq8XqPKKe/)｜[ins剧照](https://www.instagram.com/p/DahrWnBmamP/)
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
-* **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」出演** 9:30~ コロンビアvsガーナ : ラウンド32
-    > **260703 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2072913602835792082)
-    > **260704 小简宣传视频** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2073215758654755065)
-    > **260704 小简发ins** 全身牛仔🈶，希望麦粒肿早点好起来！ ⇨ [𝕏简](https://www.instagram.com/p/DaXYd03AejB/)｜[📕粉丝截的cut(小半)](http://xhslink.com/o/4UCYkGZ4vjR)
-    > **260706 造型师牧野裕大repost小简ins** 是高清大图 ⇨ [ins](https://www.instagram.com/p/Dacy4TzE91y/)
-* **260702 DAZN世界杯节目出演** DAZN「19時のFIFAワールドカップ-デイリーハイライト-」MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
-    > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
-    > **260629 节目解禁** 7/2 FIFA world cup daily highlight
-    > **260702 节目播出** ⇨ [𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)｜[📕小简cut中字(小半)](http://xhslink.com/o/7Dkj5wRcV5)｜[𝕏韩粉截的cut](https://x.com/merooonico/status/2072669388252320239)
-    > **260703 应募嘉宾签名T** ⇨ [𝕏嘉宾签名T(7/3)](https://x.com/DAZN_JPN/status/2072861224363233403)
+* **260702 DAZN世界杯节目出演** 收费节目
+    > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
+        > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
+        > **260629 节目解禁** 7/2 FIFA world cup daily highlight
+        > **260702 节目播出** ⇨ [𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)
+        > **260703 应募嘉宾签名T** ⇨ [𝕏嘉宾签名T(7/3)](https://x.com/DAZN_JPN/status/2072861224363233403)
+    > **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」** 9:30~ コロンビアvsガーナ:ラウンド32
+        > **260703 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2072913602835792082)
+        > **260704 小简宣传视频** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2073215758654755065)
+        > **260704 小简发ins** 全身牛仔🈶，希望麦粒肿早点好起来！ ⇨ [𝕏简](https://www.instagram.com/p/DaXYd03AejB/)
+        > **260706 造型师牧野裕大repost小简ins** 是高清大图 ⇨ [ins](https://www.instagram.com/p/Dacy4TzE91y/)
+    > **260707 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」** 8:30~ アメリカvsベルギー:ラウンド16
+        > **260706 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074052722723365249)
+        > **260707 小简宣传视频** with 冬野心央/増子敦貴 ⇨ [𝕏](https://x.com/DAZN_JPN/status/2074269730480009264)
+        > **260707 造型师金田健志** ⇨ [𝕏(无图)](https://x.com/kanedakenshi/status/2074241393619575148)
+        > **260707 増子敦貴发三人合照** ⇨ [𝕏](https://x.com/atsuki_mashiko/status/2074329655688233316)
+    > **260708 DAZN「FIFAワールドカップ デイリーハイライト」** 19:00〜
+        > [𝕏告知](https://x.com/DAZN_JPN/status/2074742900425101397)
+        > **小简发ins/X总结最近的DAZN** 有和吉田麻也/矢部浩之的合照 ⇨ [!ins简](https://www.instagram.com/p/Dah-xq6gYaH/)/[𝕏简](https://x.com/kan_hideyoshi/status/2074826489787523514)
+        > **造型师金田健志发图** 两边图略有不同 ⇨ [𝕏](https://x.com/kanedakenshi/status/2074855719309078979)｜[ins](https://www.instagram.com/p/DaiFmTyEy2D)
 * **260701 CTV电视剧「おちたらおわり」开播** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **260617 出演情报解禁** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜 ⇨ [𝕏](https://x.com/official_MR8/status/2067224617107038401)｜[𝓲简告知](https://www.instagram.com/p/DZr9A8HAXnV/)
 * **260701《Seventeen》夏号(7/1)杂志发售** ⚠️是BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
@@ -190,7 +198,7 @@ permalink: /solo/
 * **260730 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回** 19:00〜19:45
     > **260617 MC出演 配信決定🎉** 配信は11月までの全3回を予定。初回は7/30(木)19:00〜(45分番組) ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2067170394394779690)｜[配信地址](https://www.showroom-live.com/r/junonsuperboyclub)
 * **260716【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
-* **260709 《FINEBOYS》8月号(7/9)杂志发售**
+* **260709 《FINEBOYS》8月号(7/9)杂志发售** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)
     > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
 * **260708 TVガイドWeb 采访 後編** ⇨
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
@@ -205,8 +213,10 @@ permalink: /solo/
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
     > **260626 出演情报解禁** 7/3（金）24:12〜，第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎 役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。
-* **260703 TVガイドWeb 采访 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
+* **260703/260708 TVガイドWeb 采访**
+    > **260703 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
     > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
+    > **260708 後編** ⇨ [𝕏应募拍立得](https://x.com/TVguidePERSON/status/2074690525630967854)｜[藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/) 讲了很多修仲的话题！
 * **260701 AI短剧「びっくりあいらんど」Season2 开始配信** 毛栗子洸大🈶
     > **260630 Season2配信决定** 宣传视频里有洸大~ ⇨ [𝕏](https://x.com/z_drama_ntv/status/2071793462811476317)/[ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
     > **260701「先生は、昭和アイドル」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072174430273654832)/[ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
@@ -252,8 +262,8 @@ permalink: /solo/
 
 ---
 * **260428《TV Life》9号(4/28)杂志发售** #今旬コレクション ⇨ [𝕏](https://x.com/tv_life/status/2047504917938753643)｜[详情](https://www.tvlife.jp/latest/787489)
-    > **260512 web联动采访** => [【#今旬コレクション】藤本洸大、他者に負けない自身の“武器”とは？「童顔や後輩らしさ、ピュアに突き進んでいけるところだと思います」](https://www.tvlife.jp/pickup/788667)
-    > **260512 Youtube 7秒问答** => [🆈藤本洸大が7秒で質問に答えます！「#旬コレ 7seconds CHALLENGE」](https://www.youtube.com/watch?v=r9Czzd3bTRA)
+    > **260512 web联动采访** ⇨ [【#今旬コレクション】藤本洸大、他者に負けない自身の“武器”とは？「童顔や後輩らしさ、ピュアに突き進んでいけるところだと思います」](https://www.tvlife.jp/pickup/788667)
+    > **260512 Youtube 7秒问答** ⇨ [🆈藤本洸大が7秒で質問に答えます！「#旬コレ 7seconds CHALLENGE」](https://www.youtube.com/watch?v=r9Czzd3bTRA)
 * **260427《DIGVII》4月号(4/27)杂志发售** ⇨ [𝕏封面](https://x.com/digvii_magazine/status/2042075024883056749) 連載: 靴とミライ STORY2 藤本洸大
     > **260428 化妆师图透** ⇨ [ins](https://www.instagram.com/p/DXqOsVKk8Jb/)
     > **260504 摄影师图透** ⇨ [ins](https://www.instagram.com/p/DX6ixNUkbuj/)
