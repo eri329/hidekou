@@ -34,8 +34,8 @@ permalink: /drama/
 * **播出时间/标题**
     > 251018
     > 251025
-    > 251101
-    > 251108
+    > 251101 25:00~ 第3话「同じベッドで過ごす夜」
+    > 251108 25:00~ 第4话「最終日。一軍男子、決意の告白」
     > 251115 25:00~ 第5话「学校で見せないで！止まらない嫉妬心」
     > 251122 25:00~ 第6话「夏の海、想いが溢れる」
     > 251129 25:00~ 第7话「気になる子と同じグループになった」
@@ -51,7 +51,7 @@ permalink: /drama/
 ## 修学旅行制作组
 * **导演**
     > 1, 7, 8, 10话: [進藤丈広](https://x.com/shindo59512) (《コスメティック・プレイラバー》《PUNKS△TRIANGLE》《しもべの王子様》)
-    > 2, 3, 4话: [藤澤浩和](https://x.com/fujisawa44) (《低体温男子になつかれました。》《》)
+    > 2, 3, 4话: [藤澤浩和](https://x.com/fujisawa44) (《低体温男子になつかれました。》)
     > 5, 6话, 番外前篇: [ハセガワタクヤ(長谷川 卓也)](https://x.com/hasetaku0227)
     > 9话, 疑似番外后篇: [安見悟朗](https://x.com/lennono560)
 
@@ -64,6 +64,11 @@ permalink: /drama/
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
 ## 修学旅行音乐
+* **ED/主題歌:「両片想い」DXTEEN** ⇨ [Youtube-MV](https://www.youtube.com/watch?v=esiaDnFotXQ)
+    > **260508** DXTEEN 両片想い(Acoustic Ver.) ⇨ [Youtube](https://www.youtube.com/watch?v=NNyvLNoHYfA)
+* **OP:「トレモロ」原因は自分にある。** ⇨ [Youtube](https://www.youtube.com/watch?v=g4fUelgqMbU)
+    > **251108 发布** ⇨ [链接集](https://lnk.to/GNJB_tremolo)
+    > **260522「トレモロ」live** from LIVE TOUR 2026 輪廻の箱庭 at 仙台サンプラザホール ⇨ [𝕏](https://x.com/genjibu_sdr/status/2057784535761486247)
 * **260107 官方OST by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595?ADTAG=h5_share_album&redirecttag=mn.redirect.custom&mnst=1.69)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
 > **「ドラマ「修学旅行で仲良くないグループに入りました」オリジナル・サウンドトラック」**
 > 1 4+1のPrologue
@@ -71,14 +76,13 @@ permalink: /drama/
 > 3 朝陽さす優しさ
 > 4 この距離がもどかしい
 > 5 困らせたよな
-* **260522「トレモロ」live** from LIVE TOUR 2026 輪廻の箱庭 at 仙台サンプラザホール ⇨ [𝕏](https://x.com/genjibu_sdr/status/2057784535761486247)
 
 ## 修学旅行销量&数据
 * **260508 蓝光box**: 初动6101，次周累计6400，累计6563(至2026/6/15); 2025年日腐box销量2位, Oricon2026上半年日剧box销量3位 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **260227 公式书**: 初动7639，次周7896，两周累计15535 ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **TVer收藏数** 最高28.3万收藏。
 > 2025(日站统计, 来源豆瓣): 27.4万←28.3万（L）←27.3万⑨←26.1万⑧←24.9万⑦←23.6万⑥←21.3万⑤←19.5万④←17.5万③←15.1万②←9.8万①←8.1万←6.4万←4.4万←2.1万
-> 2026(当日播放上午统计): ①←26.1万(7/4)①←27.1万(1/9)
+> 2026(播放当日上午统计): ①←26.1万(7/4)①←27.1万(1/9)
 
 ## 修学旅行榜单排行&受赏
 * 260706 Oricon电视剧Box周榜10位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-07-06/) 竟然还在榜
@@ -119,9 +123,12 @@ permalink: /drama/
 * 251124～251130 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996512302414389538)
 * 251116 第5回 TVer实时电视剧榜5位 ⇨ [𝕏](https://x.com/dramal_abc/status/1990057691910406208)
 * 251110～251116 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1990714097000984910)
+* 251110 第4回 TVer实时电视剧榜9位 ⇨ [𝕏](https://x.com/dramal_abc/status/1987539270152983009)
 * 251107~251113 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1989166412284174466)
+* 251102 第3回 TVer实时电视剧榜10位 ⇨ [𝕏](https://x.com/dramal_abc/status/1984960931324170353)
 * 251101～251130 FOD Premium月榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996149911801213088)
 * 251020～251026 FOD Premium周榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1983103949398802754)
+* 251001～251031 FOD Premium月榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/1985676600218959924)
 * 251010 DXTEEN「両片想い」获得日本唱片协会2025年9月金曲认证(10万枚) ⇨ [𝕏](https://x.com/riaj_prinfo/status/1976454125216010424)
 
 </div>

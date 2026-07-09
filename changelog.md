@@ -27,6 +27,7 @@ https://x.com/MINNANO_ENT korean event repost
 oricon news https://x.com/oricon/status/1994671451803455850
 https://www.oricon.co.jp/news/2421677/full/?utm_source=Twitter&utm_medium=social&ref_cd=tw_pic&__cf_chl_f_tk=LLc9Z7IVoCqh8GG7XRMqrP87diTgvvH_GMfqstzd07Y-1783145873-1.0.1.1-Az5tNjfiHa0OwaFePV2xPkwvduVTl7Z0IO7DBMyCxOA
 https://www.oricon.co.jp/news/2414683/full/?__cf_chl_f_tk=hukJtMf4wpC37gn4ihQhDCoDBBAj9Qd65sWq0wvPXik-1783145939-1.0.1.1-RTdbDfaVVXlg9yDqTCcancDbOjfJ0OopeSWfkE0vFTA
+https://x.com/oricon/status/1987117680177127626
 新闻这一块可能之后还要好好理一下……
 -->
 
@@ -39,7 +40,9 @@ https://www.oricon.co.jp/news/2414683/full/?__cf_chl_f_tk=hukJtMf4wpC37gn4ihQhDC
 <!-- 一些直播！！ 11/24/25 https://www.instagram.com/reel/DRcKSZ3j4JV/
 https://www.instagram.com/dxteen_official/reels/ -->
 
-[ 2026-07-07 ] 填充杂志单
+[ 2026-07-08 ] 补档修仲X back-to-11/3
+
+[ 2026-07-07 ] 建设杂志页【分类索引】增加杂志信息/封面/内页
 
 [ 2026-07-06 ] 补档修仲X back-to-11/14 - 15s PR存到第5话
 
