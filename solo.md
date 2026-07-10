@@ -72,6 +72,7 @@ permalink: /solo/
     > **270704 继续图透** 公园散步中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073278129079230685)
     > **260705 继续图透** 公园游玩中 ⇨ [𝕏](https://x.com/Auditionblue/status/2073614092493844722)
     > **260707 继续图透** 阳台听音乐 ⇨ [𝕏](https://x.com/Auditionblue/status/2074418150217789732)
+    > **260709 继续图透** 起床中 ⇨ [!X](https://x.com/auditionblue/status/2075154241015128130)
 * **260630【快拍】小简熬夜看球中: 日本vs巴西**
 * **260629【FC｜直播】21꞉15~ 电台直播** 有提到7/2会上DAZN的世界杯节目，当天节目出演表也出来了。
 * **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！** ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2071475048502939874)
@@ -195,11 +196,18 @@ permalink: /solo/
 
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
+* **260731~260809【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ活动开始** 完全预约制，点单送小卡+现场贩售周边 2026.7.31(金)～8.9(日) @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
+    > **260709 开放预约** ⇨ [!X](https://x.com/NATSLIVE_app/status/2075037224685424885)
 * **260730 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回** 19:00〜19:45
     > **260617 MC出演 配信決定🎉** 配信は11月までの全3回を予定。初回は7/30(木)19:00〜(45分番組) ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2067170394394779690)｜[配信地址](https://www.showroom-live.com/r/junonsuperboyclub)
 * **260716【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
+* **260709 JJ采访(7/9)** ⇨ [前篇](https://jj-jj.net/lifestyle/182409/)｜[后篇](https://jj-jj.net/lifestyle/182410/)｜[TT-问答](https://www.tiktok.com/@jj_official_1975/video/7660727929520868629)
+    > 采访: 非常“演员”的采访。憧憬的演员是仲野太賀和山田裕貴；关系好的同代演员说了樱木雅哉和山田建人。洸大说《仿佛清新气息》是自己的原点。想演悬疑推理剧。今后的梦想是主演电影。（孩子一头扎进实力派演员的前进路线中）
+    > 问答视频: 相较于采访的老练和冷静，视频反而异常情绪高涨233；最近被人说像蒙奇奇hhh到底为什么会笑得这么开心啊！👀 因为看了恋综想去法国尼斯（伟大的同人老师们听到了吗新梗来了！）
+    > **260707 预告+洸大宣传视频** ⇨ [𝕏](https://x.com/jj_official_jj/status/2074328229238968809)/[ins](https://www.instagram.com/reel/DaedUveBa3E) 三连表情包cut可爱！
 * **260709 《FINEBOYS》8月号(7/9)杂志发售** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)
     > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
+    > **260709 洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/Dakb3D8SB3p)
 * **260708 TVガイドWeb 采访 後編** ⇨
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播** 真島裕人役(ゲスト出演) 7月7日(火)21:00～ 初回拡大スペシャル
     > [📕cut(喵)](http://xhslink.com/o/5aMjwhTT2cS)/[📕中字cut(bala)](http://xhslink.com/o/8SQuWP5mp5v)
@@ -217,13 +225,14 @@ permalink: /solo/
     > **260703 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
     > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
     > **260708 後編** ⇨ [𝕏应募拍立得](https://x.com/TVguidePERSON/status/2074690525630967854)｜[藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/) 讲了很多修仲的话题！
-* **260701 AI短剧「びっくりあいらんど」Season2 开始配信** 毛栗子洸大🈶
+* **260701 AI短剧「びっくりあいらんど」惊奇岛 Season2 开始配信** 毛栗子洸大🈶
     > **260630 Season2配信决定** 宣传视频里有洸大~ ⇨ [𝕏](https://x.com/z_drama_ntv/status/2071793462811476317)/[ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
     > **260701「先生は、昭和アイドル」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072174430273654832)/[ins](https://www.instagram.com/reel/DaO_i_ApRY_/)
     > **260702 手紙リレーで重大発表 Season2配信决定** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072514928238612640)/[ins](https://www.instagram.com/reel/DaRkWuphn8P/)
     > **260703「恋リアみたいな転校生」** 背景板ing ⇨ [𝕏](https://x.com/z_drama_ntv/status/2072878384296992929)/[ins](https://www.instagram.com/p/DaUJJG4JmcN/)
     > **260706「春に舞う」** 手势舞 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2073972604516683783)/[ins](https://www.instagram.com/reels/Dab3iUTpYf2/) 孩子跳得太可爱了！和日置手势舞完全是两种风味！！
     > **260707「告白、今日じゃない」** 洸大告白 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2074327733468094542)/[ins](https://www.instagram.com/reel/DaecRwsJhWc/) 很搞笑……这一话终于看出一些AI参与的影子了！
+    > **260709「食べる女子、好き？」** 洸大的饭都被吃了笑死 ⇨ [!X](https://x.com/z_drama_ntv/status/2075051789855097154)/[ins](https://www.instagram.com/reel/Dajl6JGpCOc)
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)

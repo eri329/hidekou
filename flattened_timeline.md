@@ -55,6 +55,8 @@ permalink: /flattened_timeline/
 ### 2026.7
 {: #jul2026}
 
+* **260731~260809**
+    > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ活动开始** 点单送小卡+现场贩售周边 @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
 * **260730**
     > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回**{: .text-solo-k} 19:00〜19:45
 * **260725**
@@ -69,7 +71,14 @@ permalink: /flattened_timeline/
 <div class="line"></div>
 
 * **260709**
+    > **【修学旅行】TVguide BL编辑座谈会第3回** “胸キュン青春ドラマ” 修仲的魅力解析 ⇨ [!X](https://x.com/TVGweb/status/2074977073995943967)｜[修学旅行の設定が新しい「修仲」、EBiDANカップルがいい「純愛上等！」【BL座談会・胸キュン青春ドラマ】](https://www.tvguide.or.jp/feature/ott26070901/)
+    > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 洸大拍摄花絮** BGM是两片想~ ⇨ [ins](https://www.instagram.com/reel/Dakdbv-h7Kl/)
+    > **【杂志｜简秀吉】《Butter》05(6/30) 继续图透** 起床中 ⇨ [!X](https://x.com/auditionblue/status/2075154241015128130)
     > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)杂志发售**{: .text-solo-k} ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)
+        > **洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/Dakb3D8SB3p)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「食べる女子、好き？」** 洸大的饭都被吃了笑死 ⇨ [!X](https://x.com/z_drama_ntv/status/2075051789855097154)/[ins](https://www.instagram.com/reel/Dajl6JGpCOc)
+    > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ开放预约** 完全预约制，点单送小卡+现场贩售周边 7/31(金)~8/9(日) @NATSLIVE CAFE 表参道店 ⇨ [!X](https://x.com/NATSLIVE_app/status/2075037224685424885)｜[官网](https://cafe.natslive.jp/collabo91)
+    > **【采访｜藤本洸大】JJ采访(7/9)** ⇨ [前篇](https://jj-jj.net/lifestyle/182409/)｜[后篇](https://jj-jj.net/lifestyle/182410/)｜[TT-问答](https://www.tiktok.com/@jj_official_1975/video/7660727929520868629)
 * **260708**
     > **【SNS｜简秀吉】《andBOY》vol.6(7/7) ins快拍** 16:9都放不下的超级大长腿！⇨ [𝕏粉丝留档](https://x.com/checkey_2002/status/2074757940259762506)
     > **【个人活动｜简秀吉】DAZN「FIFAワールドカップ デイリーハイライト」出演**{: .text-solo} 19:00〜 ⇨ [𝕏告知](https://x.com/DAZN_JPN/status/2074742900425101397)
@@ -90,7 +99,7 @@ permalink: /flattened_timeline/
         > [𝕏推し楽-电视剧相关采访(以前发过)](https://x.com/oshiraku/status/2074252318653210664)
         > [📕cut(喵)](http://xhslink.com/o/5aMjwhTT2cS)/[📕中字cut(bala)](http://xhslink.com/o/8SQuWP5mp5v)
     > **【采访｜藤本洸大】Astage采访**{: .text-solo-k} ⇨ [𝕏告知](https://x.com/astage_ent/status/2074327543759683771)｜[藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)
-    > **【采访｜藤本洸大】JJ采访预告+洸大宣传视频**{: .text-solo-k} ⇨ [𝕏](https://x.com/jj_official_jj/status/2074328229238968809)/[ins](https://www.instagram.com/reel/DaedUveBa3E) 三连表情包cut可爱！
+    > **【采访｜藤本洸大】JJ采访(7/9)预告+洸大宣传视频**{: .text-solo-k} ⇨ [𝕏](https://x.com/jj_official_jj/status/2074328229238968809)/[ins](https://www.instagram.com/reel/DaedUveBa3E) 三连表情包cut可爱！
     > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」Season2 「告白、今日じゃない」**{: .text-solo-k}洸大告白 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2074327733468094542)/[ins](https://www.instagram.com/reel/DaecRwsJhWc/) 很搞笑……这一话终于看出一些AI参与的影子了！
     > **【个人活动｜藤本洸大】日本映画専門频道 洸大舞台剧初次TV放送告知**{: .text-solo-k} 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
 * **260706**

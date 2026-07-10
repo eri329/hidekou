@@ -42,7 +42,7 @@ permalink: /category/
 * **251121 JUNON 1月号** <span>藤本洸大×簡 秀吉 愛とときめき、届きました。⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)</span>{: .text-small}
 * **251121 月刊TVガイド 1月号** <span>SPECIAL TALK｜修仲校服｜2p ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)｜[📕内页(只想说坏话)](http://xhslink.com/o/8BePGZjH6IF)</span>{: .text-small}
 * **251117 Duet LUXE vol.4** <span>⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)</span>{: .text-small}
-* **251104 CINEMA SQUARE vol.156** <span>⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)</span>{: .text-small}
+* **251104 CINEMA SQUARE vol.156** <span>秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)</span>{: .text-small}
 * **251031 GIANNA PLUS 06（双人封面）** <span> ⇨ </span>{: .text-small}
 * **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> ⇨ </span>{: .text-small}
 * **251025 Emo!miu采访（web）** 应募拍立得 ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
@@ -100,11 +100,11 @@ permalink: /category/
 <span>格式: 栏目名｜妆造/主题 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
-* **未定 JJ**
+* **260709 JJ(web)** <span> ⇨ [【藤本洸大】ドラマ「クロスロード ～救命救急の約束～」出演記念インタビュー！「自分の中に眠っていた熱を思い出させてもらった作品です」](https://jj-jj.net/lifestyle/182409/)｜[【藤本洸大】「とにかく満足しない俳優になっていきたい」今最注目！実力派若手俳優の素顔に迫る](https://jj-jj.net/lifestyle/182410/)</span>{: .text-small}
 * **260709 FINEBOYS 8月号** <span>藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)</span>{: .text-small}
 * **260708 TVガイドWeb(web) 後編** <span> ⇨ [藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/)</span>{: .text-small}
 * **260707 Astage(web)** <span> ⇨ [藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)</span>{: .text-small}
-* **260707 andBOY vol.6**{: .text-blue} <span>2人で楽しむ毎日ビューティ♡｜短发蓝衬衫｜5p ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕内页(bala)](http://xhslink.com/o/7pQxWl8CzpH)</span>{: .text-small}
+* **260707 andBOY vol.6**{: .text-blue} <span>2人で楽しむ毎日ビューティ♡｜短发黄蓝衬衫毛衣｜5p ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕内页(bala)](http://xhslink.com/o/7pQxWl8CzpH)</span>{: .text-small}
 * **260705 MantanWeb(web)** ⇨ <span>[藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)</span>{: .text-small}
 * **260703 TVガイドWeb(web) 前編** ⇨ <span>[「クロスロード」で挑んだ新たなステージ 藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)</span>{: .text-small}
 * **260630 FINEBOYS+plus FACE**{: .text-blue} <span> ⇨ </span>{: .text-small}
