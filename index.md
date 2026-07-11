@@ -62,12 +62,13 @@ permalink: /
     > **260701 8月放送情报公开** 洸大出演的舞台剧『それってキセキ』也会在8/12, 8/28放送；眼镜洸大🈶 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)｜极狐剧场版 8/12, 8/17, 8/28放送 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030422_0001.html)
     > **260713/260826 修学旅行1-5话**
     > **260811/260827 修学旅行6-10话**
-* **260711【修学旅行｜正片】修学旅行TV再放送 第2话**
 
 <div class="line"></div>
 
-* **260709【修学旅行】TVguide BL编辑座谈会第3回** “胸キュン青春ドラマ” 修仲的魅力解析 ⇨ [!X](https://x.com/TVGweb/status/2074977073995943967)｜[修学旅行の設定が新しい「修仲」、EBiDANカップルがいい「純愛上等！」【BL座談会・胸キュン青春ドラマ】](https://www.tvguide.or.jp/feature/ott26070901/)
-* **260708【采访｜藤本洸大】TVガイドWeb 采访 後編**{: .text-solo-k} ⇨ [𝕏应募拍立得](https://x.com/TVguidePERSON/status/2074690525630967854)｜[藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/)
+* **260711【修学旅行｜正片】修学旅行TV再放送 第2话** ⇨ [𝕏PR](https://x.com/dramal_abc/status/2075716700151136611)
+* **260710【修学旅行】TVguide近期BL人气投票** ⇨ [𝕏](https://x.com/tvg_research/status/2075490214420820410)｜[投票地址](https://www.tvguide.or.jp/column/research-15/)
+* **260709【修学旅行】TVguide BL编辑座谈会第3回** “胸キュン青春ドラマ” 修仲的魅力解析 ⇨ [𝕏](https://x.com/TVGweb/status/2074977073995943967)｜[修学旅行の設定が新しい「修仲」、EBiDANカップルがいい「純愛上等！」【BL座談会・胸キュン青春ドラマ】](https://www.tvguide.or.jp/feature/ott26070901/)
+* **260708【采访｜藤本洸大】TVガイドWeb 采访 後編** ⇨ [𝕏应募拍立得](https://x.com/TVguidePERSON/status/2074690525630967854)｜[藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/)
     > 聊了很多对日置的角色诠释和对修仲的爱！洸大认为日置的魅力在于“纯粹”、“無自覚の人たらし”(无意识地散发魅力)；经纪人评价洸大也是“空气感很柔和”的人；聊到如何饰演一个角色“无意识”的状态时，洸大说演员不能也无意识地去表演，他认为“无意识”的人大概会很少把焦点带回自己身上，而是更多地注视着周围的人（非常厉害的角色理解！）；作为主演，很感激修仲这个机会，不仅对日置，也对修仲这部作品本身有着很深的感情，把自己当成了作品整体的一部分；对第7话日置的告白回应印象很深，认为这是对日置来说非常重要的一个场景，虽然看上去很可爱，但是那时候的日置是很拼命的（所以洸大才让日置不自觉地流下眼泪吧）；后面也有聊到足球，洸大说现在已经完全不(专业地)踢了，既然已经决定转行，演戏也够用，不如花时间在别的地方（确实是转换很快的小孩！）下一个兴趣是从零开始做衣服233
 * **260707【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 杂志发售** 简洸又分别登场了
     > **260701 封面解禁** ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)
@@ -76,6 +77,7 @@ permalink: /
     > #### 小简回答最近感到幸福的瞬间是因为「某」电视剧去海外开了见面会~请海外粉丝们认领！会用行动表达喜欢，恋爱中是会主动出击的类型，但不会一上来就猛攻，而是会慢慢缩短距离，最后主动采取行动。Yes这就是他追藤本洸大的一句话总结。
     > **260708 小简ins快拍** 16:9都放不下的超级大长腿 ⇨ [𝕏粉丝留档](https://x.com/checkey_2002/status/2074757940259762506)
     > **260709 洸大拍摄花絮** BGM是两片想~ ⇨ [ins](https://www.instagram.com/reel/Dakdbv-h7Kl/)
+    > **260710 小简拍摄花絮** ⇨ [ins](https://www.instagram.com/reel/DanCPFoB2ay/)
 * **260705【修学旅行】TV再放送+夏日同窗会配信PR** ⇨ [𝕏](https://x.com/dramal_abc/status/2073428480545759391)/[ins](https://www.instagram.com/reel/DaYDw01zXln/)
 * **260704【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
     > **260628 TV再放送告知** ABC(関西)7/4(土)〜 ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)｜[𝕏亲妈发推欢迎回来～](https://x.com/RcNfe37/status/2071205079949189300)
@@ -614,30 +616,32 @@ permalink: /
     > **切片** ⇨ [𝕏请和我做朋友](https://x.com/dramal_abc/status/1990059708443725885)｜[𝕏扔日置](https://x.com/dramal_abc/status/1990399520782553413)｜[𝕏便当喂菠萝](https://x.com/dramal_abc/status/1990760935221571924)
     > **PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1987204653952737444)｜[𝕏15sPR](https://x.com/dramal_abc/status/1989460835761361348)｜[𝕏FOD-渡日怀抱坐](https://x.com/fujitvplus/status/1989740224352850212)
     > **DXTEEN第5话修仲场景还原Tiktok小视频** 还原了日置被扔到渡会怀里的一段 ⇨ [TT(11/17)](https://www.tiktok.com/@official_dxteen/video/7573675433103772936)
-* **251111【修学旅行】公式谷子预约中** 立牌、文件夹、招财猫吊牌 ⇨ [𝕏](https://x.com/dramal_abc/status/1988174750070591661)
+* **251111【修学旅行】公式谷子预约中** ⇨ [𝕏](https://x.com/dramal_abc/status/1988174750070591661)
+    > **251026 发售决定!** 校服立牌+文件夹 ⇨ [𝕏第一弹](https://x.com/dramal_abc/status/1982118706667716820)
+    > **251109 公式谷子第二弹决定！** 体育服立牌+招财猫吊牌 ⇨ [𝕏](https://x.com/dramal_abc/status/1987203466255605812)
 * **251109【修学旅行】亲妈发推** 说修学旅行小组的组长是仲里，这是渡会在写名字的时候随便决定的233 ⇨ [𝕏](https://x.com/RcNfe37/status/1987460374741098631)
-* **251109【修学旅行】公式谷子第二弹决定！** 体育服立牌+招财猫吊牌 ⇨ [𝕏](https://x.com/dramal_abc/status/1987203466255605812)
 * **251108【修学旅行】DXTEEN再现修仲旋转木马片段** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7570292599467068679)
 * **251108【修学旅行】OP『トレモロ』发布** ⇨ [链接集](https://lnk.to/GNJB_tremolo)
 * **251108【修学旅行｜正片】25:00～ 第4话「最終日。一軍男子、決意の告白」播出**{: .text-red}
     > [𝕏简-本日第4话](https://x.com/kan_hideyoshi/status/1987110646153179307)｜[𝕏简-第4话感谢(11/9)](https://x.com/kan_hideyoshi/status/1987444343322636599) <span>全是浴衣狐猪2shot!!</span>{: .text-pink}
     > **寺庙求签花絮** ⇨ 小简发寺庙求签的渡日自拍照: [𝕏简](https://x.com/kan_hideyoshi/status/1988590018630451511)
     > **剧照** ⇨ [𝕏早晨抱一起睡觉](https://x.com/dramal_abc/status/1987112869297897477)｜[𝕏F5逛寺庙](https://x.com/dramal_abc/status/1987082678630543727)｜[𝕏抽签的F5](https://x.com/dramal_abc/status/1985683696780001649)｜[𝕏日置和杏奈](https://x.com/dramal_abc/status/1987143070404805086)｜[𝕏F5牵手并排走](https://x.com/dramal_abc/status/1986992080627847366)｜[𝕏回程途中送礼物](https://x.com/dramal_abc/status/1987173264494612676)｜[𝕏公园谈话](https://x.com/dramal_abc/status/1987185846127059164)｜[𝕏渡会喂食中](https://x.com/dramal_abc/status/1987192079622254904)｜[𝕏渡会喂食4连拍](https://x.com/dramal_abc/status/1987505453971165634)｜[𝕏公园"告白"前](https://x.com/dramal_abc/status/1989287194281054243)｜[𝕏第4话综合](https://x.com/dramal_abc/status/1986373973001867595)
-    > **花絮照** ⇨ [𝕏早上7点的渡会](https://x.com/dramal_abc/status/1987278967049441781)｜[𝕏寺庙渡日合照](https://x.com/dramal_abc/status/1988894863434149950)｜[𝕏渡日求签合照](https://x.com/dramal_abc/status/1987203980481732852)｜[𝕏渡会浴衣剪刀手](https://x.com/dramal_abc/status/1987520554882998319)｜[𝕏F5水车合照](https://x.com/dramal_abc/status/1985336398900351011)｜[𝕏渡会喂食+擦嘴](https://x.com/dramal_abc/status/1986758029451112638)｜[𝕏日置抱着伴手礼](https://x.com/dramal_abc/status/1987839599134327265) <span>官推透露吃货洸大拍摄时也买了小点心来吃</span>{: .text-pink}｜[𝕏寺庙买伴手礼的F5背影](https://x.com/dramal_abc/status/1989317396432290160)｜[𝕏浴衣摄影中](https://x.com/dramal_abc/status/1987445052860432838)｜[𝕏招财猫2shot](https://x.com/dramal_abc/status/1987354461212184689)
+    > **花絮照** ⇨ [𝕏早上7点的渡会](https://x.com/dramal_abc/status/1987278967049441781)｜[𝕏相拥的手臂](https://x.com/dramal_abc/status/1984669263110566321)｜[𝕏侧过身的日置](https://x.com/dramal_abc/status/1984647872038781222)｜[𝕏寺庙渡日合照](https://x.com/dramal_abc/status/1988894863434149950)｜[𝕏渡日求签合照](https://x.com/dramal_abc/status/1987203980481732852)｜[𝕏渡会浴衣剪刀手](https://x.com/dramal_abc/status/1987520554882998319)｜[𝕏F5水车合照](https://x.com/dramal_abc/status/1985336398900351011)｜[𝕏渡会喂食+擦嘴](https://x.com/dramal_abc/status/1986758029451112638)｜[𝕏日置抱着伴手礼](https://x.com/dramal_abc/status/1987839599134327265) <span>官推透露吃货洸大拍摄时也买了小点心来吃</span>{: .text-pink}｜[𝕏寺庙买伴手礼的F5背影](https://x.com/dramal_abc/status/1989317396432290160)｜[𝕏浴衣摄影中](https://x.com/dramal_abc/status/1987445052860432838)｜[𝕏招财猫2shot](https://x.com/dramal_abc/status/1987354461212184689)
     > **切片** ⇨ []()｜[]()｜[𝕏渡会给日置抹发油](https://x.com/dramal_abc/status/1987475263509119167)｜[𝕏四天王浴衣出场](https://x.com/dramal_abc/status/1987854248303051165)
-    > **PR** ⇨ []()｜[𝕏15sPR](https://x.com/dramal_abc/status/1986931673985073443)｜[𝕏Gaga](https://x.com/gagaoolala/status/1987324264350150673)｜[𝕏FOD-公园“告白”](https://x.com/fujitvplus/status/1987195929670393994)
+    > **PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1984666753696399615)｜[𝕏15sPR](https://x.com/dramal_abc/status/1986931673985073443)｜[𝕏Gaga](https://x.com/gagaoolala/status/1987324264350150673)｜[𝕏FOD-公园“告白”](https://x.com/fujitvplus/status/1987195929670393994)
 * **251104【杂志｜双人】《CINEMA SQUARE》vol.156(11/4) 杂志发售** ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)
 * **251103【修学旅行】abc magazine樱木雅哉采访** ⇨ [abc magazine](https://abc-magazine.asahi.co.jp/post-65607)
 * **251102【修学旅行｜双人】狐猪的一问一答小视频** 角色/电视剧介绍+个人小问答 ⇨ [𝕏](https://x.com/TVer_official/status/1984908347754307952)
     > #### 小简说话的时候努力探出头来的洸大太可爱了！说起自己的修学旅行会去逗别的小情侣的地方的洸大也特别男高🤣最后两个人一起笑场好甜的
 * **251101【修学旅行｜正片】25:00～ 第3话「同じベッドで過ごす夜」播出**{: .text-red}
-    > [𝕏简-第3话感谢帖-旋转木马渡日](https://x.com/kan_hideyoshi/status/1984935983121666258) 「写真は俺目線の日置🫨」传说中的俺目線，天秀了！
+    > [𝕏简-本日第3话](https://x.com/kan_hideyoshi/status/1984576746205954220) 渡会卖萌美颜炫耀老婆中｜[𝕏简-第3话感谢帖-旋转木马渡日](https://x.com/kan_hideyoshi/status/1984935983121666258) 「写真は俺目線の日置🫨」传说中的俺目線，天秀了！
+    > **万圣节渡日宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/1984456476325478730) <span>慢半拍追着洸大出去的小简呆萌得要命!</span>{: .text-pink}
     > **拍摄花絮** ⇨ [𝕏日置抱小孩](https://x.com/dramal_abc/status/1986722084488417645) 完全男妈妈……｜[𝕏奔跑的渡会](https://x.com/dramal_abc/status/1986404762728976793)
-    > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **花絮照** ⇨ [𝕏坐旋转木马的渡日](https://x.com/dramal_abc/status/1984938542070423559)<span>官推暗戳戳地说日置像他骑的那头小熊233</span>{: .text-pink}｜[𝕏鬼屋日置](https://x.com/dramal_abc/status/1985308715613032774) <span>超级超级可爱！官推说洸大有在偷偷练习如何让手电筒完美地滑落（好用心！）</span>{: .text-pink}｜[𝕏鬼屋渡日合照](https://x.com/dramal_abc/status/1986025720066531717)｜[𝕏大型犬渡会offshot](https://x.com/dramal_abc/status/1988215135140540854)｜[𝕏三天王吃饭](https://x.com/dramal_abc/status/1986766017566323097)｜[𝕏躺在床上笑着的渡日](https://x.com/dramal_abc/status/1984953639329247711)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **旋转木马特辑** ⇨ [𝕏白马公主日置](https://x.com/dramal_abc/status/1995100565362401671)｜[𝓲白马公主日置2](https://www.instagram.com/p/DRrglGME_ji/)｜[𝕏F3](https://x.com/dramal_abc/status/1995085516413551083)
+    > **剧照** ⇨ [𝕏游乐园找日置](https://x.com/dramal_abc/status/1984606351520383346)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[𝕏鬼屋](https://x.com/dramal_abc/status/1984636550957711675)｜[𝕏F5吃饭中](https://x.com/dramal_abc/status/1984623310878228650)
+    > **花絮照** ⇨ [𝕏日置比3](https://x.com/dramal_abc/status/1984500657014112442)｜[𝕏小朋友拍的日置](https://x.com/dramal_abc/status/1984817773453983881)｜[𝕏鬼屋日置](https://x.com/dramal_abc/status/1985308715613032774) <span>超级超级可爱！官推说洸大有在偷偷练习如何让手电筒完美地滑落（好用心！）</span>{: .text-pink}｜[𝕏鬼屋渡日合照1](https://x.com/dramal_abc/status/1984756000176652295)｜[𝕏鬼屋渡日合照2](https://x.com/dramal_abc/status/1986025720066531717)｜[𝕏大型犬渡会offshot](https://x.com/dramal_abc/status/1988215135140540854)｜[𝕏三天王吃饭](https://x.com/dramal_abc/status/1986766017566323097)｜[𝕏躺在床上笑着的渡日](https://x.com/dramal_abc/status/1984953639329247711)｜[𝕏在床上比剪刀手的渡日](https://x.com/dramal_abc/status/1984663806468112772)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **旋转木马特辑** ⇨ [𝕏坐旋转木马的渡日](https://x.com/dramal_abc/status/1984938542070423559)<span>官推暗戳戳地说日置像他骑的那头小熊233</span>{: .text-pink}｜[𝕏白马公主日置](https://x.com/dramal_abc/status/1995100565362401671)｜[𝓲白马公主日置2](https://www.instagram.com/p/DRrglGME_ji/)｜[𝕏简](https://x.com/kan_hideyoshi/status/1984935983121666258)｜[𝕏旋转木马渡日单人](https://x.com/dramal_abc/status/1984576194239741985)｜[𝕏F3](https://x.com/dramal_abc/status/1995085516413551083)
     > **切片** ⇨ [𝕏紬嵩哥哥哄小孩](https://x.com/dramal_abc/status/1984981722346492392)｜[𝕏日置的鬼屋悲鸣](https://x.com/dramal_abc/status/1984923437207625807)｜[𝕏渡日同床](https://x.com/dramal_abc/status/1986056462507086303)
-    > **PR** ⇨ []()｜[]()｜[]()｜[]()
+    > **PR** ⇨ [𝕏15sPR](https://x.com/dramal_abc/status/1984395024596156509)｜[𝕏30sPR](https://x.com/asahi_tv/status/1984485552972836914)｜[𝕏FOD-床上对视](https://x.com/fujitvplus/status/1984659226816655603)
 
 ### 2025.10
 {: #oct2025}
@@ -658,6 +662,7 @@ permalink: /
     > (宣传视频里)说せーの的小简太可爱了!(稀有的年上时刻)
     > #### 这套拍得太好看先嗑一大口…身高差的神……一些因为你才做的事:(猪)开始和共演者出去玩了,(简)开始喜欢古着了(⬅️总觉得一个洁癖突然喜欢古着是另有所图)
 * **251025【修学旅行｜正片】25:00～ 第2话播出**{: .text-red}
+    > **花絮** ⇨ [𝕏F5枕头大战](https://x.com/dramal_abc/status/1984562230114075038)
     > **剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **花絮照** ⇨ [𝕏F4游乐园餐桌](https://x.com/dramal_abc/status/1985119733318848696)｜[𝕏F3游乐园餐桌](https://x.com/dramal_abc/status/1983881576761946203)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **切片** ⇨ []()｜[]()｜[]()｜[]()

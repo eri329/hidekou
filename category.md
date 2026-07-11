@@ -100,6 +100,7 @@ permalink: /category/
 <span>格式: 栏目名｜妆造/主题 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
+* **260710 Emo!miu采访(web)** <span>17p ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)</span>{: .text-small}
 * **260709 JJ(web)** <span> ⇨ [【藤本洸大】ドラマ「クロスロード ～救命救急の約束～」出演記念インタビュー！「自分の中に眠っていた熱を思い出させてもらった作品です」](https://jj-jj.net/lifestyle/182409/)｜[【藤本洸大】「とにかく満足しない俳優になっていきたい」今最注目！実力派若手俳優の素顔に迫る](https://jj-jj.net/lifestyle/182410/)</span>{: .text-small}
 * **260709 FINEBOYS 8月号** <span>藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)</span>{: .text-small}
 * **260708 TVガイドWeb(web) 後編** <span> ⇨ [藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/)</span>{: .text-small}
@@ -108,7 +109,7 @@ permalink: /category/
 * **260705 MantanWeb(web)** ⇨ <span>[藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)</span>{: .text-small}
 * **260703 TVガイドWeb(web) 前編** ⇨ <span>[「クロスロード」で挑んだ新たなステージ 藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)</span>{: .text-small}
 * **260630 FINEBOYS+plus FACE**{: .text-blue} <span> ⇨ </span>{: .text-small}
-* **260624 TV LIFE 13号** ⇨ <span>[封面目次](https://www.tvlife.jp/latest/793045)</span>{: .text-small}
+* **260624 TV LIFE 13号** Time to Talk ⇨ <span>[封面目录](https://www.tvlife.jp/latest/793045)</span>{: .text-small}
 * **260622 JUNON 8月号** <span>NEW LOOK｜短发白衬衫｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)｜[📕中嵌内页(bala)](http://xhslink.com/o/3NDLhKlahYH)</span>{: .text-small}
 * **260610 推し楽！(web)** ⇨ <span>[藤本洸大が「クロスロード」で向き合う“決断”――正解のない芝居を模索する日々](https://fan.books.rakuten.co.jp/articles/8014)</span>{: .text-small}
 * **260607 Emo!miu（web）**{: .text-red}

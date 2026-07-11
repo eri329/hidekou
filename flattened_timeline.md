@@ -56,7 +56,7 @@ permalink: /flattened_timeline/
 {: #jul2026}
 
 * **260731~260809**
-    > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ活动开始** 点单送小卡+现场贩售周边 @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
+    > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ活动开始**{: .text-solo-k} 点单送小卡+现场贩售周边 @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
 * **260730**
     > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回**{: .text-solo-k} 19:00〜19:45
 * **260725**
@@ -65,20 +65,26 @@ permalink: /flattened_timeline/
     > **【直播｜藤本洸大】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k}
 * **260713**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 是一个付费电视频道；7月13日(月)よる8時30分スタート；7/13, 8/26 ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)｜[详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
-* **260711**
-    > **【修学旅行｜正片】修学旅行TV再放送 第2话**
 
 <div class="line"></div>
 
+* **260711**
+    > **【修学旅行｜正片】修学旅行TV再放送 第2话** 24:00~ ⇨ [𝕏PR](https://x.com/dramal_abc/status/2075716700151136611)
+* **260710**
+    > **【修学旅行】TVguide近期BL人气投票** ⇨ [𝕏](https://x.com/tvg_research/status/2075490214420820410)｜[投票地址](https://www.tvguide.or.jp/column/research-15/)
+    > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 小简拍摄花絮** ⇨ [ins](https://www.instagram.com/reel/DanCPFoB2ay/)
+    > **【杂志｜简秀吉】《Butter》05(6/30) 继续图透**{: .text-solo} 咖啡厅 ⇨[𝕏](https://x.com/auditionblue/status/2075505310673023104)
+    > **【采访｜藤本洸大】Emo!miu采访(7/10)**{: .text-solo-k} 照片17p+采访 ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)｜[𝕏](https://x.com/Emo_miu/status/2075514089443602928)｜[ins1](https://www.instagram.com/p/Dam2WPQCl3J)｜[ins2](https://www.instagram.com/p/Dam2TiYCHe2)｜[ins3](https://www.instagram.com/p/Dam2QxxiD31) ins上的图比较大!
+    > **【采访｜藤本洸大】JJ采访(7/9) 拍摄花絮视频+应募拍立得**{: .text-solo-k} ⇨ [TT花絮](https://www.tiktok.com/@jj_official_1975/video/7660821115564068116)｜[𝕏拍立得](https://x.com/jj_official_jj/status/2075509238131200262)
 * **260709**
-    > **【修学旅行】TVguide BL编辑座谈会第3回** “胸キュン青春ドラマ” 修仲的魅力解析 ⇨ [!X](https://x.com/TVGweb/status/2074977073995943967)｜[修学旅行の設定が新しい「修仲」、EBiDANカップルがいい「純愛上等！」【BL座談会・胸キュン青春ドラマ】](https://www.tvguide.or.jp/feature/ott26070901/)
+    > **【修学旅行】TVguide BL编辑座谈会第3回** “胸キュン青春ドラマ” 修仲的魅力解析 ⇨ [𝕏](https://x.com/TVGweb/status/2074977073995943967)｜[修学旅行の設定が新しい「修仲」、EBiDANカップルがいい「純愛上等！」【BL座談会・胸キュン青春ドラマ】](https://www.tvguide.or.jp/feature/ott26070901/)
     > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 洸大拍摄花絮** BGM是两片想~ ⇨ [ins](https://www.instagram.com/reel/Dakdbv-h7Kl/)
-    > **【杂志｜简秀吉】《Butter》05(6/30) 继续图透** 起床中 ⇨ [!X](https://x.com/auditionblue/status/2075154241015128130)
+    > **【杂志｜简秀吉】《Butter》05(6/30) 继续图透**{: .text-solo} 起床中 ⇨ [𝕏](https://x.com/auditionblue/status/2075154241015128130)
     > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)杂志发售**{: .text-solo-k} ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)
-        > **洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/Dakb3D8SB3p)
-    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「食べる女子、好き？」** 洸大的饭都被吃了笑死 ⇨ [!X](https://x.com/z_drama_ntv/status/2075051789855097154)/[ins](https://www.instagram.com/reel/Dajl6JGpCOc)
-    > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ开放预约** 完全预约制，点单送小卡+现场贩售周边 7/31(金)~8/9(日) @NATSLIVE CAFE 表参道店 ⇨ [!X](https://x.com/NATSLIVE_app/status/2075037224685424885)｜[官网](https://cafe.natslive.jp/collabo91)
-    > **【采访｜藤本洸大】JJ采访(7/9)** ⇨ [前篇](https://jj-jj.net/lifestyle/182409/)｜[后篇](https://jj-jj.net/lifestyle/182410/)｜[TT-问答](https://www.tiktok.com/@jj_official_1975/video/7660727929520868629)
+        > 洸大宣传视频 ⇨ [ins](https://www.instagram.com/reel/Dakb3D8SB3p)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「食べる女子、好き？」**{: .text-solo-k} 洸大的饭都被吃了笑死 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2075051789855097154)/[ins](https://www.instagram.com/reel/Dajl6JGpCOc)
+    > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ开放预约**{: .text-solo-k} 完全预约制，点单送小卡+现场贩售周边 7/31(金)~8/9(日) @NATSLIVE CAFE 表参道店 ⇨ [𝕏](https://x.com/NATSLIVE_app/status/2075037224685424885)｜[官网](https://cafe.natslive.jp/collabo91)
+    > **【采访｜藤本洸大】JJ采访(7/9)**{: .text-solo-k} ⇨ [前篇](https://jj-jj.net/lifestyle/182409/)｜[后篇](https://jj-jj.net/lifestyle/182410/)｜[TT-问答](https://www.tiktok.com/@jj_official_1975/video/7660727929520868629)
 * **260708**
     > **【SNS｜简秀吉】《andBOY》vol.6(7/7) ins快拍** 16:9都放不下的超级大长腿！⇨ [𝕏粉丝留档](https://x.com/checkey_2002/status/2074757940259762506)
     > **【个人活动｜简秀吉】DAZN「FIFAワールドカップ デイリーハイライト」出演**{: .text-solo} 19:00〜 ⇨ [𝕏告知](https://x.com/DAZN_JPN/status/2074742900425101397)
@@ -926,7 +932,7 @@ permalink: /flattened_timeline/
     > **【修学旅行】官推发剧照** ⇨ [𝕏圣诞大合照](https://x.com/dramal_abc/status/2002710909349937176)/[ins](https://www.instagram.com/p/DShlK_nk6gN/)｜ [𝕏圣诞树前@教室](https://x.com/dramal_abc/status/2002409115205968189)/[ins](https://www.instagram.com/p/DSeYFlkE_OJ/)｜[𝕏F5并排走](https://x.com/dramal_abc/status/2002406135710482686)/[ins](https://www.instagram.com/p/DSfazV6E5ou/)｜[𝕏射击直前](https://x.com/dramal_abc/status/2002393556963529093)/[ins](https://www.instagram.com/p/DSfVGXoEybP/)
     > **【修学旅行】公式PPT剪辑** ⇨ [𝕏](https://x.com/dramal_abc/status/2002423751888060777)/[ins](https://www.instagram.com/p/DSfi0Y_E1KM/)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏渡日片场牵手@学校](https://x.com/dramal_abc/status/2002696450745266310)/[ins](https://www.instagram.com/p/DShe4zgEynw/)｜[𝕏渡日牵手@公园](https://x.com/dramal_abc/status/2002680981422256443)/[ins](https://www.instagram.com/p/DShXyexEzLB/)｜[𝕏渡日笑颜@公园](https://x.com/dramal_abc/status/2002499380868444439)/[ins](https://www.instagram.com/p/DSgFJmwkyJX/)｜[𝕏番外2床上的渡日2shot](https://x.com/dramal_abc/status/2002426267929620511)/[ins](https://www.instagram.com/p/DSfj_HKE4GM/)｜[𝕏10话场记板](https://x.com/dramal_abc/status/2002408660677603464)
-    > **【修学旅行】PR** ⇨ [𝕏FOD](https://x.com/dramal_abc/status/2002416220277276918)｜[𝕏GagaOOLala](https://x.com/gagaoolala/status/2002544552192954431)
+    > **【修学旅行】最终回PR** ⇨ [𝕏FOD](https://x.com/dramal_abc/status/2002416220277276918)｜[𝕏GagaOOLala](https://x.com/gagaoolala/status/2002544552192954431)
 * **251220**
     > **【修学旅行｜正片】最终回!25:00～ 第10话「一生心に残り続けていく日々」播出**{: .text-red}
     > **【修学旅行】官推发杀青合照** ⇨ [𝕏](https://x.com/dramal_abc/status/2002378462150230299)/[ins](https://www.instagram.com/p/DSfORGuEx-W/)
@@ -934,7 +940,7 @@ permalink: /flattened_timeline/
     > **【修学旅行】官推发剧照** ⇨ [𝕏公园](https://x.com/dramal_abc/status/2002363358314381516)/[ins](https://www.instagram.com/p/DSfHTFDEyBZ/)｜[𝕏圣诞聚会](https://x.com/dramal_abc/status/2002333162030940267)/[ins](https://www.instagram.com/p/DSe5plBEx9y/)｜[𝕏最后一幕放学路](https://x.com/dramal_abc/status/2002303247030321648)/[ins](https://www.instagram.com/p/DSer3aVExv9/)｜[𝕏教室牵手](https://x.com/TVGweb/status/2002152212466970787)/[ins](https://www.instagram.com/p/DSODmMVkygT/)｜[𝕏渡会背影@教室](https://x.com/dramal_abc/status/2002259391014396182)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏F3毕业照](https://x.com/dramal_abc/status/2002348260938150374)｜[𝓲F3毕业照-2](https://www.instagram.com/p/DSfAcbwk8sV/)｜[𝕏羽毛球社毕业](https://x.com/dramal_abc/status/2002318194053423544)/[ins](https://www.instagram.com/p/DSezRihkxZL/)
     > [𝕏未公开公式照渡日2shot](https://x.com/dramal_abc/status/2002607019854082398)/[ins-渡](https://www.instagram.com/p/DSg1sTWk0lK/)/[ins-日](https://www.instagram.com/p/DSg1qP-E4Ur/)
-    > **【修学旅行】官推PR** ⇨ [𝕏最终回PR](https://x.com/dramal_abc/status/2002136868729565220)/[ins](https://www.instagram.com/p/DSNhRRIk5TK/)
+    > **【修学旅行】最终回PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/2002136868729565220)/[ins](https://www.instagram.com/p/DSNhRRIk5TK/)
     > **【修学旅行｜杂志｜藤本洸大】《Higoto日每》(12/1) 杂志内容** ⇨ [𝓲-拍摄趣闻/最终回](https://www.instagram.com/p/DSejU5nk-TY/)
     > **【杂志｜藤本洸大】《JUNON》2月号(12/22) 温泉花絮视频**{: .text-solo-k} ⇨ [𝕏泡温泉花絮](https://x.com/JUNON_jp/status/2002333155483922930)｜[𝕏海李也登场了说也取材了修仲相关](https://x.com/kairi_shimizu/status/2002229094440972574)
 * **251219**
@@ -968,7 +974,7 @@ permalink: /flattened_timeline/
     > **【修学旅行｜SNS｜简秀吉】第9话感谢帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2000158364689633315)｜[𝓲简-和女仆日置合照](https://www.instagram.com/p/DSPcmJfAVc7/)
     > **【修学旅行】官推发剧照** ⇨ [𝕏给渡会量腰围的日置](https://x.com/dramal_abc/status/1999872826598473845)｜[𝕏天台抱抱](https://x.com/dramal_abc/status/1999856848669966370)/[ins](https://www.instagram.com/p/DSNTeBnk8w_/)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏渡会辻谷和解](https://x.com/dramal_abc/status/2000173927868563642)/[ins](https://www.instagram.com/p/DSPk5klEw9x/) ⇨ 前情 [𝕏渡会敌人捕获(12/10)](https://x.com/dramal_abc/status/1998724378331091287)/[ins](https://www.instagram.com/p/DSFQhIQEqpg/)｜[𝕏日置辻谷亲友组合照](https://x.com/dramal_abc/status/2000143730402075001)/[ins](https://www.instagram.com/p/DSPV_D2Ewdr/)｜[𝕏超萌日置狼+四天王](https://x.com/dramal_abc/status/2000113678356754550)｜[𝓲文化祭准备中](https://www.instagram.com/p/DSPIQYPk6Cg/)｜[𝕏在天台搞抽象的检修机](https://x.com/dramal_abc/status/1999889678896664942)/[ins](https://www.instagram.com/p/DSNiWBmk6E_/)｜[𝕏检修机x女仆猪](https://x.com/dramal_abc/status/1999879487618691460)/[ins这张和X略有区别!](https://www.instagram.com/p/DSNfjA0k-gI/)
-    > **【修学旅行】官方PR** ⇨ [𝕏FOD宣](https://x.com/fujitvplus/status/1999879516773404977)/[ins](https://www.instagram.com/p/DSNe_bbk4Kk/)
+    > **【修学旅行】官方第9话PR** ⇨ [𝕏FOD宣](https://x.com/fujitvplus/status/1999879516773404977)/[ins](https://www.instagram.com/p/DSNe_bbk4Kk/)
     > **【修学旅行】公式书发售决定+封面+特典情报** ⇨ [𝕏封面](https://x.com/dramal_abc/status/1999875360746537000)/[ins](https://www.instagram.com/p/DSNb52ok_Cb/)
     > 特典: 日亚(明信片)/角川(特别封面)/乐天(特典花絮)/711(特典花絮)/两位主演FC ⇨ [𝕏](https://x.com/kadokawa_ls/status/1999875758618296491)
 * **251213**
@@ -1004,7 +1010,7 @@ permalink: /flattened_timeline/
     > **【修学旅行】周边角色花絮照** ⇨ [𝕏仲里守崎](https://x.com/dramal_abc/status/1997607905907155115)/[ins](https://www.instagram.com/p/DR9U44Dk-1v/)｜[𝕏步汰](https://x.com/official_DXTEEN/status/1997342774346338593)｜[𝕏仲里背影(12/5)](https://x.com/dramal_abc/status/1996919953942106137)/[ins](https://www.instagram.com/p/DR4b_vbkwEq/)
     > **【修学旅行】官推发剧照** ⇨ [𝕏美术教室抱抱](https://x.com/dramal_abc/status/1997342772118892583)/[ins](https://www.instagram.com/p/DR43aY9E81b/)｜[𝕏南瓜](https://x.com/dramal_abc/status/1997332705453732272)/[ins](https://www.instagram.com/p/DR7XtnUE8kQ/)｜[𝕏美术教室](https://x.com/dramal_abc/status/1997320130796089838)/[ins](https://www.instagram.com/p/DR7R-BtE7e5/)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏指尖发光的渡会](https://x.com/dramal_abc/status/1997622119132209253)/[ins](https://www.instagram.com/p/DR9bVHgE8qN/)｜[𝕏日置和某只手](https://x.com/dramal_abc/status/1997594147704971291)|[𝓲教室后方](https://www.instagram.com/p/DR9RxmWEwJ8/?)｜[𝕏窗台的F3&反手剪刀手日置](https://x.com/dramal_abc/status/1997427738031063387)｜[𝓲F3+wink日置](https://www.instagram.com/p/DR8FeZjkxOj/)｜[𝕏脸颊吻](https://x.com/dramal_abc/status/1997352837937009017)/[ins](https://www.instagram.com/p/DR7g4G2kzWz/)
-    > **【修学旅行】官方PR** ⇨ [𝕏9话PR](https://x.com/dramal_abc/status/1997350322931437824)/[ins](https://www.instagram.com/p/DR7fvuQE3R5/)｜[𝕏FOD宣第8话-脸颊吻直前](https://x.com/fujitvplus/status/1997342797184336168)/[ins](https://www.instagram.com/p/DR43aqhE95B/)
+    > **【修学旅行】第9话PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1997350322931437824)/[ins](https://www.instagram.com/p/DR7fvuQE3R5/)｜[𝕏FOD宣第8话-脸颊吻直前](https://x.com/fujitvplus/status/1997342797184336168)/[ins](https://www.instagram.com/p/DR43aqhE95B/)
 * **251206**
     > **【修学旅行｜正片】25:00～ 第8话「泣いてさらけ出す恋心」播出**{: .text-red}
     > **【修学旅行｜SNS｜简秀吉】本日第8话** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1997263984299569607)/[𝓲简-校草渡会](https://www.instagram.com/p/DR64WbSgQa7/)
@@ -1044,13 +1050,12 @@ permalink: /flattened_timeline/
     > **【修学旅行】官推发剧照** ⇨ [𝕏海边拥抱](https://x.com/dramal_abc/status/1994813613400371300)｜[𝕏分组表](https://x.com/dramal_abc/status/1994795990470049793)｜[𝕏日置的回应](https://x.com/dramal_abc/status/1994783407205953845)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏抓手腕笑得很开心的狐猪](https://x.com/dramal_abc/status/1995130796022374430)/[ins](https://www.instagram.com/p/DRruT-ykwpO/)｜ [𝓲F3@体育馆](https://www.instagram.com/p/DRrZurnE8Nz/)｜[𝕏第1话扑倒练习中](https://x.com/dramal_abc/status/1995070376817336434)/[ins](https://www.instagram.com/p/DRrS3LRk5OO/)｜[𝕏教室里的两人](https://x.com/dramal_abc/status/1994801957865996501)
     > **【修学旅行】官推发花絮照:旋转木马** ⇨ [𝕏白马公主日置](https://x.com/dramal_abc/status/1995100565362401671)｜[𝓲白马公主日置2](https://www.instagram.com/p/DRrglGME_ji/)｜[𝕏F3](https://x.com/dramal_abc/status/1995085516413551083)
-    > **【修学旅行】官推PR** ⇨ [𝕏8话PR](https://x.com/dramal_abc/status/1994813607868088819)
+    > **【修学旅行】第8话PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1994813607868088819)
 * **251129**
     > **【修学旅行｜正片】25:00～ 第7话「気になる子と同じグループになった」播出**{: .text-red}
     > **【修学旅行｜SNS｜简秀吉】本日第7话** ⇨ [𝕏简-渡会羽毛球剧场](https://x.com/kan_hideyoshi/status/1994713130363228351)｜[𝓲简(图不一样)](https://www.instagram.com/p/DRowBKogZjx/)
     > **【修学旅行】官推发剧照** ⇨ [𝕏教室的谈话](https://x.com/dramal_abc/status/1994753380510831002)｜[𝕏四天王初遇](https://x.com/dramal_abc/status/1994723033966416230)｜[𝕏分班&海边捧脸](https://x.com/dramal_abc/status/1994692815637680414)｜[𝕏第7话综合](https://x.com/asahi_tv/status/1994617312976978240)｜[𝕏从以前就注视日置](https://x.com/dramal_abc/status/1994609997796577300)｜[𝕏海边相依](https://x.com/TVGweb/status/1994602466223009977)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏羽毛球社](https://x.com/dramal_abc/status/1994966415691096103)/[ins](https://www.instagram.com/p/DRqjqdFEzx9/)｜[𝕏海边的笑颜](https://x.com/dramal_abc/status/1994889511311217111)/[ins](https://www.instagram.com/p/DRqAnh8E-8v/)｜[𝕏仲里](https://x.com/official_DXTEEN/status/1994806057668153622)｜[𝕏守护日置睡颜的人](https://x.com/dramal_abc/status/1995055521423134802)/[ins](https://www.instagram.com/p/DRrMHRhE3iZ/)
-    > **【修学旅行】官推PR** ⇨ []()｜[]()｜[]()｜[]()
     > **【修学旅行】最终回先行上映会(12/19) 演员登场普通票开票** 11/29～12/18 ⇨ [𝕏](https://x.com/LVJ_culture/status/1994572017299816871)
     > **【采访｜双人】Emomiu藤本洸大×簡秀吉采访(10/25) X发双人宣传视频** ⇨ [𝕏](https://x.com/Emo_miu/status/1994741012493959204)
 * **251128**
@@ -1082,7 +1087,7 @@ permalink: /flattened_timeline/
     > **【修学旅行】官推发花絮照** ⇨ [𝕏反向公主抱](https://x.com/dramal_abc/status/1992279914922598771) 官方标题:振り回される大型犬｜[𝕏渡日冰淇淋](https://x.com/dramal_abc/status/1992276893052420219)｜[𝕏渡日没有冰淇淋的牵手练习](https://x.com/dramal_abc/status/1992518529959248085)｜[𝕏渡日放烟花](https://x.com/dramal_abc/status/1992563023010206005)｜[𝕏海边的渡会](https://x.com/dramal_abc/status/1992595114435481925)｜[𝕏三天王海边花絮照](https://x.com/dramal_abc/status/1992533730280562826)
     > **【修学旅行｜SNS｜简秀吉】第6话感谢帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992548954492620817)
     > **【修学旅行】abc-magazine 福田歩汰(仲里)采访** ⇨ [abc-magazine](https://abc-magazine.asahi.co.jp/post-67114/) 里面有一张似乎没见过的五天王并排走的图
-    > **【修学旅行】第7话PR** ⇨ [𝕏](https://x.com/dramal_abc/status/1992276892313870467)
+    > **【修学旅行】第7话PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1992276892313870467)
     > **【个人活动｜藤本洸大】第38回JUNON SUPER BOY CONTEST最终选考会**{: .text-solo-k} @東京・TFTホール1000 repo说小猪曾经整整一年都没有试镜成功
 * **251122**
     > **【修学旅行｜正片】25:00～ 第6话「夏の海、想いが溢れる」播出**{: .text-red}
@@ -1116,14 +1121,13 @@ permalink: /flattened_timeline/
     > **【修学旅行】官推发花絮照** ⇨ [𝕏渡日握手](https://x.com/dramal_abc/status/1989722560204869810)｜[𝕏渡日怀抱坐offshot](https://x.com/dramal_abc/status/1989732626907705626)｜[𝕏窗帘之中](https://x.com/dramal_abc/status/1990011976479875229)｜[𝕏男子高校生の日常2-天王对决](https://x.com/dramal_abc/status/1989996872501514468)｜[𝕏男子高校生の日常1-走廊](https://x.com/dramal_abc/status/1989891926838145104)
     > **【修学旅行】官推发切片** ⇨ [𝕏请和我做朋友](https://x.com/dramal_abc/status/1990059708443725885)
     > **【修学旅行】FOD宣传第5话** ⇨ [𝕏渡日怀抱坐](https://x.com/fujitvplus/status/1989740224352850212)
-    > **【修学旅行】第6话PR** ⇨ [𝕏](https://x.com/dramal_abc/status/1989740178315911585)
+    > **【修学旅行】第6话PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1989740178315911585)
 * **251115**
     > **【修学旅行｜正片】25:00～ 第5话播出**{: .text-red}
     > **【修学旅行｜SNS｜简秀吉】本日第5话** ⇨ [𝕏简-窗帘](https://x.com/kan_hideyoshi/status/1989635501918462251)
-    > **【修学旅行】官推发剧照** ⇨ [𝕏渡会的朋友行为](https://x.com/dramal_abc/status/1989619381681430915)｜[𝕏年级大会1](https://x.com/dramal_abc/status/1989649584667463877)｜[𝕏年级大会2](https://x.com/dramal_abc/status/1989679782905438438)｜[𝕏第5话综合1](https://x.com/asahi_tv/status/1989558990817382635)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **【修学旅行】官推发花絮照** ⇨ [𝕏羽毛球部合照](https://x.com/dramal_abc/status/1989528789588783189)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **【修学旅行】官推发切片** ⇨ []()｜[]()｜[]()｜[]()
-    > **【修学旅行】官推PR** ⇨ [𝕏15sPR](https://x.com/dramal_abc/status/1989460835761361348)｜[]()｜[]()｜[]()
+    > **【修学旅行】官推发剧照** ⇨ [𝕏渡会的朋友行为](https://x.com/dramal_abc/status/1989619381681430915)｜[𝕏年级大会1](https://x.com/dramal_abc/status/1989649584667463877)｜[𝕏年级大会2](https://x.com/dramal_abc/status/1989679782905438438)｜[𝕏第5话综合1](https://x.com/asahi_tv/status/1989558990817382635)
+    > **【修学旅行】官推发花絮照** ⇨ [𝕏羽毛球部合照](https://x.com/dramal_abc/status/1989528789588783189)
+    > **【修学旅行】第5话PR** ⇨ [𝕏15sPR](https://x.com/dramal_abc/status/1989460835761361348)
 * **251114**
     > **【修学旅行｜双人】来自狐猪的放送中途感言** ⇨ [𝕏](https://x.com/dramal_abc/status/1989302295054709246)
     > **【修学旅行】官推发剧照** ⇨ [𝕏公园"告白"前](https://x.com/dramal_abc/status/1989287194281054243)
@@ -1157,7 +1161,7 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】25:00～ 第4话播出**{: .text-red}
     > **【修学旅行｜SNS｜简秀吉】本日第4话** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1987110646153179307)
     > **【修学旅行】官推发剧照** ⇨ [𝕏早晨抱一起睡觉](https://x.com/dramal_abc/status/1987112869297897477)｜[𝕏F5逛寺庙](https://x.com/dramal_abc/status/1987082678630543727)｜[𝕏日置和杏奈](https://x.com/dramal_abc/status/1987143070404805086)｜[𝕏F5牵手并排走](https://x.com/dramal_abc/status/1986992080627847366)
-    > **【修学旅行】官推PR** ⇨ [𝕏4话15sPR](https://x.com/dramal_abc/status/1986931673985073443)
+    > **【修学旅行】第4话PR** ⇨ [𝕏15sPR](https://x.com/dramal_abc/status/1986931673985073443)
     > **【修学旅行】OP『トレモロ』发布** ⇨ [链接集](https://lnk.to/GNJB_tremolo)
     > **【修学旅行】DXTEEN再现修仲旋转木马片段** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7570292599467068679)
 * **251107**
@@ -1180,15 +1184,21 @@ permalink: /flattened_timeline/
 * **251102**
     > **【修学旅行｜双人】狐猪的一问一答小视频** 角色/电视剧介绍+个人小问答 ⇨ [𝕏](https://x.com/TVer_official/status/1984908347754307952)
     > **【修学旅行｜SNS｜简秀吉】第3话感谢帖** ⇨ [𝕏简-旋转木马渡日](https://x.com/kan_hideyoshi/status/1984935983121666258) 「写真は俺目線の日置🫨」传说中的俺目線，天秀了！
-    > **【修学旅行】官推发花絮照** ⇨ [𝕏坐旋转木马的渡日](https://x.com/dramal_abc/status/1984938542070423559) 官推暗戳戳地说日置像他骑的那头小熊233｜[𝕏躺在床上笑着的渡日](https://x.com/dramal_abc/status/1984953639329247711)
+    > **【修学旅行】官推发剧照** ⇨ [𝕏鬼屋](https://x.com/dramal_abc/status/1984636550957711675)
+    > **【修学旅行】官推发花絮照** ⇨ [𝕏小朋友拍的日置](https://x.com/dramal_abc/status/1984817773453983881)｜[𝕏鬼屋渡日合照](https://x.com/dramal_abc/status/1984756000176652295)｜[𝕏坐旋转木马的渡日](https://x.com/dramal_abc/status/1984938542070423559) 官推暗戳戳地说日置像他骑的那头小熊233｜[𝕏躺在床上笑着的渡日](https://x.com/dramal_abc/status/1984953639329247711)｜[𝕏在床上比剪刀手的渡日](https://x.com/dramal_abc/status/1984663806468112772)｜[𝕏相拥的手臂](https://x.com/dramal_abc/status/1984669263110566321)｜[𝕏侧过身的日置](https://x.com/dramal_abc/status/1984647872038781222)
     > **【修学旅行】官推发切片** ⇨ [𝕏紬嵩哥哥哄小孩](https://x.com/dramal_abc/status/1984981722346492392)｜[𝕏日置的鬼屋悲鸣](https://x.com/dramal_abc/status/1984923437207625807)
+    > **【修学旅行】第4话PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1984666753696399615)
+    > **【修学旅行】第3话FOD宣传** ⇨ [𝕏FOD-床上对视](https://x.com/fujitvplus/status/1984659226816655603)
     > **【个人活动｜藤本洸大】第38回JUNON SUPER BOY CONTEST最终选考会出演决定**{: .text-solo-k} ⇨ [新闻](https://www.junon-tv.jp/articles/4033) 
 * **251101**
     > **【修学旅行｜正片】25:00～ 第3话播出**{: .text-red}
-    > **【修学旅行】官推发剧照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
-    > **【修学旅行】官推发花絮照** ⇨ []()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **【修学旅行｜SNS｜简秀吉】本日第3话** 渡会卖萌美颜炫耀老婆中 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1984576746205954220)
+    > **【修学旅行】万圣节渡日宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/1984456476325478730) 慢半拍追着洸大出去的小简呆萌得要命!
+    > **【修学旅行】官推发花絮** ⇨ [𝕏F5枕头大战](https://x.com/dramal_abc/status/1984562230114075038)
+    > **【修学旅行】官推发剧照** ⇨ [𝕏游乐园找日置](https://x.com/dramal_abc/status/1984606351520383346)｜[𝕏旋转木马渡日单人](https://x.com/dramal_abc/status/1984576194239741985)｜[𝕏F5吃饭中](https://x.com/dramal_abc/status/1984623310878228650)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
+    > **【修学旅行】官推发花絮照** ⇨ [𝕏日置比3](https://x.com/dramal_abc/status/1984500657014112442)｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()｜[]()
     > **【修学旅行】官推发切片** ⇨ []()｜[]()｜[]()｜[]()
-    > **【修学旅行】官推PR** ⇨ []()｜[]()｜[]()｜[]()
+    > **【修学旅行】第3话PR** ⇨ [𝕏30sPR](https://x.com/asahi_tv/status/1984485552972836914)｜[𝕏15sPR](https://x.com/dramal_abc/status/1984395024596156509)｜[]()｜[]()
 
 ### 2025.10
 {: #oct2025}
@@ -1198,6 +1208,7 @@ permalink: /flattened_timeline/
     > **【杂志｜双人】《S Cawaii!特別編集 Pair 尊い二人。》(10/30) CP特辑杂志发售**{: .text-red}
 * **251029**
     > **【杂志｜双人】《S Cawaii!特別編集 Pair 尊い二人。》(10/30) 狐猪宣传视频** ⇨ [𝕏](https://x.com/mag_scawaii/status/1983474057963024391)/[ins](https://www.instagram.com/reels/DQY5mjUifT0/)
+* **251026 公式谷子发售决定** ⇨ [𝕏第一弹](https://x.com/dramal_abc/status/1982118706667716820)
 * **251025**
     > **【采访｜双人】Emomiu藤本洸大×簡秀吉采访(10/25)** ⇨ [采访](https://emomiu.jp/news/244577/)｜[𝓲宣传视频](https://www.instagram.com/reels/DRo7oSLgbpz/)
     > **【修学旅行｜正片】25:00～ 第2话播出**{: .text-red}
