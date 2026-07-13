@@ -30,9 +30,9 @@ permalink: /drama/
 <div class="sublist" markdown="1">
 
 ## 修学旅行正片
-* **正片播放平台** [FOD](https://fod.fujitv.co.jp/title/10dk/)｜[GagaOOLala](https://www.gagaoolala.com/en/videos/5925/school-trip-joined-a-group-im-not-close-to-2025-e01)｜(播放期间)[TVer](https://tver.jp/series/sr1es6void)
+* **正片播放平台** [FOD](https://fod.fujitv.co.jp/title/10dk/)｜[GagaOOLala](https://www.gagaoolala.com/en/videos/5925/school-trip-joined-a-group-im-not-close-to-2025-e01)｜[TVer(播放期间)](https://tver.jp/series/sr1es6void)｜[Ameba(播放期间)](https://abema.tv/video/title/871-627)
 * **播出时间/标题**
-    > 251018
+    > 251018 25:00~ 第1话「平凡な高校生、一軍男子に捕まる」
     > 251025 25:00~ 第2话「波乱！遊園地で追いつめられる」
     > 251101 25:00~ 第3话「同じベッドで過ごす夜」
     > 251108 25:00~ 第4话「最終日。一軍男子、決意の告白」
@@ -127,6 +127,7 @@ permalink: /drama/
 * 251107~251113 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1989166412284174466)
 * 251102 第3回 TVer实时电视剧榜10位 ⇨ [𝕏](https://x.com/dramal_abc/status/1984960931324170353)
 * 251101～251130 FOD Premium月榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996149911801213088)
+* 251023~251030 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1984093011009998991)
 * 251020～251026 FOD Premium周榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1983103949398802754)
 * 251001～251031 FOD Premium月榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/1985676600218959924)
 * 251010 DXTEEN「両片想い」获得日本唱片协会2025年9月金曲认证(10万枚) ⇨ [𝕏](https://x.com/riaj_prinfo/status/1976454125216010424)

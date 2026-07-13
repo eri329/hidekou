@@ -3,8 +3,14 @@ title: 更新记录
 layout: page
 ---
 
+#### TODO
+* 没找到TVer采访原作初印象的完整版视频
+* 没找到TVer采访狐猪初印象的完整版原档(有b站中字档)
+* 没找到推しに出会えるABC 修仲VTR原档(有b站中字档)
+
 #### 资讯来源(站长自用)
 * 修仲官方X，修仲官方ins，简秀吉X，简秀吉ins，MR8官网, 藤本洸大ins，TC(schedule,刊载情报,出演情报)
+    > 搜索X语句 `from:dramal_abc since:2025-10-18 until:2025-10-19` + 切换到Latest tab
 * 简秀吉小红书，简秀吉微博
 * 简洸ins其他部分: reels, repost
 * 简洸快拍: story, highlight
@@ -29,6 +35,7 @@ https://www.oricon.co.jp/news/2421677/full/?utm_source=Twitter&utm_medium=social
 https://www.oricon.co.jp/news/2414683/full/?__cf_chl_f_tk=hukJtMf4wpC37gn4ihQhDCoDBBAj9Qd65sWq0wvPXik-1783145939-1.0.1.1-RTdbDfaVVXlg9yDqTCcancDbOjfJ0OopeSWfkE0vFTA
 https://x.com/oricon/status/1987117680177127626
 https://www.oricon.co.jp/news/2416171/?utm_source=Twitter&utm_medium=social&ref_cd=tw_pic
+https://x.com/oricon/status/1982015558515392793
 新闻这一块可能之后还要好好理一下……
 -->
 
@@ -40,6 +47,15 @@ https://www.oricon.co.jp/news/2416171/?utm_source=Twitter&utm_medium=social&ref_
 
 <!-- 一些直播！！ 11/24/25 https://www.instagram.com/reel/DRcKSZ3j4JV/
 https://www.instagram.com/dxteen_official/reels/ -->
+
+<!-- https://fan.books.rakuten.co.jp/articles/7871
+https://fan.books.rakuten.co.jp/articles/8545 -->
+
+<!-- 找到这个出处！！！https://x.com/DONGGEUL_DEGUL/status/2076132023287284031 -->
+
+[ 2026-07-12 ] 补档修仲X back-to-8/8 完成！
+
+[ 2026-07-11 ] 补档修仲X back-to-10/19; 未读:https://www.tvguide.or.jp/feature/feature-4071895/
 
 [ 2026-07-10 ] 日常更新；补档修仲X back-to-11/1
 

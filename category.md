@@ -33,19 +33,24 @@ permalink: /category/
 * **251018 修学旅行开播 双人首次直播**
 
 ## 双人杂志/采访
-* **260607 Emo!miu采访（web）**<span>Clayge联动企画晒单抽送周边 ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
+* **260607 Emo!miu采访（web）**<span>Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260501 Preppy 6月号（双人封面）**<span>The Rising Star｜3 look｜20p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2038919236148396458)｜[📕内页(偏差值)](http://xhslink.com/o/8x23da3XYsM)｜[联动采访](https://preppyweb.com/article/26576)</span>{: .text-small}
 * **260420 Retro 双人特刊** <span> ⇨ [📕3版封面+特典set](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)</span>{: .text-small}
 * **260403 Starside #2 Spring 2026 双人特刊** <span> ⇨ [𝕏4版封面+特典set](https://x.com/starside_x/status/2024829552514748858)</span>{: .text-small}
-* **260330 GIANNA BOYFRIEND 11（双人底封）** <span> ⇨ [联动采访](https://gianna.jp/archives/8695)</span>{: .text-small}
+* **260330 GIANNA BOYFRIEND 11（双人封底）** <span> ⇨ [联动采访](https://gianna.jp/archives/8695)</span>{: .text-small}
 * **260324 Lemon凝眸 双人特刊（中国首封）** <span>This Moment’s Youth｜2版封面+特典set</span>{: .text-small}
 * **251121 JUNON 1月号** <span>藤本洸大×簡 秀吉 愛とときめき、届きました。⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)</span>{: .text-small}
 * **251121 月刊TVガイド 1月号** <span>SPECIAL TALK｜修仲校服｜2p ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)｜[📕内页(只想说坏话)](http://xhslink.com/o/8BePGZjH6IF)</span>{: .text-small}
 * **251117 Duet LUXE vol.4** <span>⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)</span>{: .text-small}
 * **251104 CINEMA SQUARE vol.156** <span>秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)</span>{: .text-small}
-* **251031 GIANNA PLUS 06（双人封面）** <span> ⇨ </span>{: .text-small}
-* **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> ⇨ </span>{: .text-small}
-* **251025 Emo!miu采访（web）** 应募拍立得 ⇨ <span>[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
+* **251031 GIANNA PLUS 06（双人封面封底）** <span>白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271)</span>{: .text-small}
+* **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> 格子衬衫/套头衫｜⇨ [𝕏封面](https://x.com/mag_scawaii/status/1978400528234389517)</span>{: .text-small}
+* **251025 Emo!miu采访（web）**<span>应募拍立得｜修仲校服｜21p ⇨[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
+* **251023 月刊 TV navi 12月号** <span> ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)</span>{: .text-small}
+* **251020 Seventeen采访(web)** <span>应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)</span>{: .text-small}
+* **251018 TVguide Web采访(web)** <span>应募拍立得｜全用的截图 ⇨ [「修学旅行で仲良くないグループに入りました」藤本洸大＆簡秀吉が“青春”な撮影裏話を告白](https://www.tvguide.or.jp/feature/feature-4071895/)</span>{: .text-small}
+* **251016 TVガイドdan vol.57** <span> ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)s</span>{: .text-small}
+* **251016 別冊+act. 42号** <span> ⇨ </span>{: .text-small}
 
 ## 杂志/采访/书籍(简 秀吉)
 {: #kan-magazine}
@@ -73,7 +78,7 @@ permalink: /category/
 * **260324 Lemon凝眸 3月号（表紙）**{: .text-red}
 * **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-blue}<span>风衣小简 ⇨ [𝕏封面(简)](https://x.com/CYANMANMAGAZINE/status/2023306422604476833)</span>{: .text-small}
 * **260130 Men’s PREPPY 3月号** <span> Special Interview｜黑粗呢西装｜4p ⇨ [𝕏封面](https://x.com/MensPREPPY/status/2012004381089284252)｜[📕内页(陈二娜)](http://xhslink.com/o/6BO0dNwDeYK)｜[联动采访](https://preppyweb.com/article/13642)</span>{: .text-small}
-* **260127 awesome! Plus Vol.45** <span> 簡秀吉×Kyleスペシャル対談 ⇨ [𝕏封面](https://x.com/BP25th_awesome/status/2014947061503029580)</span>{: .text-small}
+* **260127 awesome! Plus Vol.45** <span> 簡秀吉×Kyleスペシャル対談｜条纹白西装 ⇨ [𝕏封面](https://x.com/BP25th_awesome/status/2014947061503029580)</span>{: .text-small}
 
 ---
 * **251121 JUNON 1月号**{: .text-red}
@@ -81,12 +86,15 @@ permalink: /category/
 * **251117 Duet LUXE vol.4**{: .text-red}
 * **251104 CINEMA SQUARE vol.156**{: .text-red}
 * **251031 GIANNA PLUS 06（表紙）**{: .text-red}
-* **251030 S Cawaii!**{: .text-red}
+* **251030 S Cawaii!特別編集　Pair 尊い二人。**{: .text-red}
 * **251025 Emo!miu(web)**{: .text-red}
-* 2025年 TVガイドdan vol.57
+* **251020 Seventeen采访(web)**{: .text-red}
+* **251018 TVguide Web采访(web)**{: .text-red}
+* **251016 TVガイドdan vol.57**{: .text-red}
+* **251016 別冊+act. 42号**{: .text-red}
+* **251008 TVstation22号** <span>セルフィー ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)</span>{: .text-small}
 * 2025年 JUNON 11月号
 * 2025年 SEEK 11月号（表紙）
-* 2025年 GIANNA Plus #06（表紙）
 * 2025年 月刊わんこ vol.23（BACK COVER）
 * 2024年 書籍 「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）
 * 2024年 GIANNA BOYFRIEND #06
@@ -148,15 +156,15 @@ permalink: /category/
 * **251117 Duet LUXE vol.4**{: .text-red}
 * **251104 CINEMA SQUARE vol.156**{: .text-red}
 * **251031 GIANNA PLUS 06（表紙）**{: .text-red}
-* **251030 S Cawaii!**{: .text-red}
+* **251030 S Cawaii!特別編集　Pair 尊い二人。**{: .text-red}
 * **251025 Emo!miu(web)**{: .text-red}
-* **251023 月刊 TV navi**
-* **251016 別冊+act. 42号**
-* **251016 TVガイドdan vol.57**
-* TVガイドWEB(web)（10月下旬配信）
-* Seventeen-Web(web)（10月下旬配信）
+* **251025 推し楽！(web)** <span>10p ⇨ [藤本洸大が見つけた“芝居の面白さ”。初主演ドラマ「修学旅行で仲良くないグループに入りました」での気付き](https://fan.books.rakuten.co.jp/articles/3723)</span>{: .text-small}
+* **251023 月刊 TV navi 12月号**{: .text-red}
+* **251020 Seventeen采访(web)**{: .text-red}
+* **251018 TVguide Web采访(web)**{: .text-red}
+* **251016 別冊+act. 42号**{: .text-red}
+* **251016 TVガイドdan vol.57**{: .text-red}
 * TVer(web)（10月下旬配信）
-* 推し楽(web)（10月下旬配信）
 * 「イケメン図鑑」(web)(7月下旬配信)
 * **250620 JUNON**
 * FAST(web)（6月中旬配信）
