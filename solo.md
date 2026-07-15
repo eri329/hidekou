@@ -21,6 +21,8 @@ permalink: /solo/
     > **260603 小简宣传视频** TGC出演希望 個人部門で1位 ⇨ [𝕏](https://x.com/TGCnews/status/2062096953249288594) 表达了对第1位的感谢，以及对初次走秀的憧憬，最后还玩了一把抽象，很忙的一个视频www
     > **260603 簡秀吉コラボ企画** 向大家征集想要小简实现的愿望 ⇨ [𝕏](https://x.com/tgcnews/status/2062098208109817903)
     > **260707 电波手势舞** ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
+* **260713【FC｜直播】FC radio直播** ~30min
+* **260713 小简发小红书** 来週、何かきそうな予感🃏 ⇨ [📕简](http://xhslink.com/o/2SVe0TNcKou)
 * **260707 MBS电视剧「幸せになりたいマサムネ君」开播** ツバサ役 7月7日(火)MBS‣‣24:59〜 ／TBS‣‣25:26〜 ほか
     > **260612「幸せになりたいマサムネ君」（7/7）出演情报解禁** ツバサ役;是暗恋女主的男主朋友剧里还另有炮友；女主是洸大在「share」里也暗恋过的女主，好混乱的一锅粥hhh ⇨ [𝓲简-本人告知(图)](https://www.instagram.com/p/DZe1F1-ge14/)｜[𝕏](https://x.com/dramaism_mbs/status/2065373680314802324)｜[角色介绍](https://x.com/dramaism_mbs/status/2065375213085397217)
     > **260618 进组宣传视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2067585219461620164)/[ins](https://www.instagram.com/reel/DZuiSjAPAMp/)
@@ -30,6 +32,9 @@ permalink: /solo/
     > **260703 小简宣传口播** 距离放送日还有4天！⇨ [𝕏](https://x.com/dramaism_mbs/status/2073016663549874516)/[ins](https://www.instagram.com/reels/DaVIUHgPTAZ/)
     > **260708 第2话预告/剧照** 只有一个吃饭镜头 ⇨ [ins预告](https://www.instagram.com/reels/Dahq8XqPKKe/)｜[ins剧照](https://www.instagram.com/p/DahrWnBmamP/)
     > **260710 原作老师探班repo漫画** ⇨ [𝕏](https://x.com/masamuneym2/status/2075416551415853390)
+    > **260713 小简和男主宣传** 第2话小简即将登场 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2076627950209044907)/[ins](https://www.instagram.com/p/DauysqbPxoS/)
+    > **260714 小简SNS宣传 本日第2话** ⇨ [𝓲简](https://www.instagram.com/p/DaxQlIDgSve/) 小视频超级苏的！｜[𝕏简](https://x.com/kan_hideyoshi/status/2076976504261783653/)
+    > **260714 小简在新剧男主采访中被夸** ⇨ [推し楽](https://fan.books.rakuten.co.jp/articles/8974)
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260702 DAZN世界杯节目出演** 收费节目
     > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
@@ -196,6 +201,13 @@ permalink: /solo/
 ### 2026
 {: #kodai2026}
 
+* **261011 洸大1st写真集东京签售会**
+* **261010 洸大1st写真集大阪签售会**
+* **261006 洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」(姜汁威士忌苏打)10月6日发售**
+    > **260714 写真集+特典+签售会情报解禁** 7月17日开始预约 ⇨ [ins-TC(图)](https://www.instagram.com/p/DawfdOGknFr/)｜[𝕏JUNON(视频)](https://x.com/JUNON_jp/status/2076864692153381156)/[ins](https://www.instagram.com/reels/DawfBB0COiK/) 干杯告知~｜[JUNON详情页(含洸大寄语+签售会情报+各店特典)](https://www.junon-tv.jp/articles/4421)｜[Oricon news](https://www.oricon.co.jp/news/2467623/)｜[推し楽news](https://fan.books.rakuten.co.jp/articles/9039) 
+    > 签售会两场: 2026年10月10日（土） @大阪府 HMV&BOOKS NAMBA; 2026年10月11日（日）@東京都 HMV&BOOKS SHIBUYA，7/17～8/23可购入抽选册。
+    > 签售会有1、3、5、10册四档，135先买后抽，10抽中再扣款；3及以后都可以获得亲签+合影拍立得+生写；5册单独有to签；5、10有录音留言；10有洸大自制贴纸。
+    > 初次金发披露——！好新鲜的感觉！穿着毛衣抱柴火的洸大也特别温柔特别日置😊在洸大的老家兵库县和东京两地拍摄；拍摄于20岁之初，21岁生日当天发售；标题是洸大自己取的，是20岁成年能开始喝酒后自己当下最常点的一款酒（很有巧思！）根据头发长度和发色大家推测这本是今年年初就拍了，好家伙藏了整整半年……原来《Preppy》海报展的色纸是这个意思!! ⇨ [𝕏色纸](https://x.com/_yuhiko12/status/2065003783369928961)
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
 * **260731~260809【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ活动开始** 完全预约制，点单送小卡+现场贩售周边 2026.7.31(金)～8.9(日) @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
@@ -203,14 +215,16 @@ permalink: /solo/
 * **260730 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回** 19:00〜19:45
     > **260617 MC出演 配信決定🎉** 配信は11月までの全3回を予定。初回は7/30(木)19:00〜(45分番組) ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2067170394394779690)｜[配信地址](https://www.showroom-live.com/r/junonsuperboyclub)
 * **260716【直播】19:00～ NATSLIVE「洸大のサイコロジーアート」配信**
+> **260713【快拍】明天中午有通知~**
 * **260710 Emo!miu采访(7/10)** 照片17p+采访+应募拍立得 ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)｜[𝕏](https://x.com/Emo_miu/status/2075514089443602928)｜[ins1](https://www.instagram.com/p/Dam2WPQCl3J)｜[ins2](https://www.instagram.com/p/Dam2TiYCHe2)｜[ins3](https://www.instagram.com/p/Dam2QxxiD31) ins上的图比较大!
     > 主要还是新剧的采访，感觉这一套说辞已经在不同的地方看过好几遍……最近喜欢的零食是「ビックリマンチョコ」(威化巧克力)，因为朋友在留学，为了不输给朋友所以开始学英语。喜欢的颜色变成了紫色。喜欢的座右铭又提了「晴耕雨读」这次还仔细解释了一下~最近的外出活动是在咖啡店读书或者和朋友去运动场玩，穿着是老头衫+短裤+毛线帽+墨镜2333最近的梦想是上日曜剧场。如果被人说“你有点怪怪的呢”会很高兴。
-    > 拍立得很可爱!!(在采访页里)
-* **260709 JJ采访(7/9)** ⇨ [前篇](https://jj-jj.net/lifestyle/182409/)｜[后篇](https://jj-jj.net/lifestyle/182410/)｜[TT-问答](https://www.tiktok.com/@jj_official_1975/video/7660727929520868629)
+    > 拍立得很可爱!!
+    > **260712 应募拍立得** ⇨ [𝕏](https://x.com/Emo_miu/status/2076301658259398676)
+* **260709 JJ采访(7/9)** ⇨ [前篇](https://jj-jj.net/lifestyle/182409/)｜[后篇](https://jj-jj.net/lifestyle/182410/)｜[TT-问答](https://www.tiktok.com/@jj_official_1975/video/7660727929520868629)/[ins](https://www.instagram.com/reel/DamLPxBBUTn/)
     > 采访: 非常“演员”的采访。憧憬的演员是仲野太賀和山田裕貴；关系好的同代演员说了樱木雅哉和山田建人。洸大说《仿佛清新气息》是自己的原点。想演悬疑推理剧。今后的梦想是主演电影。（孩子一头扎进实力派演员的前进路线中）
     > 问答视频: 相较于采访的老练和冷静，视频反而异常情绪高涨233；最近被人说像蒙奇奇hhh到底为什么会笑得这么开心啊！👀 因为看了恋综想去法国尼斯（伟大的同人老师们听到了吗新梗来了！）
     > **260707 预告+洸大宣传视频** ⇨ [𝕏](https://x.com/jj_official_jj/status/2074328229238968809)/[ins](https://www.instagram.com/reel/DaedUveBa3E) 三连表情包cut可爱！
-    > **260710 拍摄花絮视频+应募拍立得** ⇨ [TT花絮](https://www.tiktok.com/@jj_official_1975/video/7660821115564068116)｜[𝕏拍立得](https://x.com/jj_official_jj/status/2075509238131200262)
+    > **260710 拍摄花絮视频+应募拍立得** ⇨ [TT花絮](https://www.tiktok.com/@jj_official_1975/video/7660821115564068116)/[ins](https://www.instagram.com/reels/Dam0cHYBVIu/)｜[𝕏拍立得](https://x.com/jj_official_jj/status/2075509238131200262)
 * **260709 《FINEBOYS》8月号(7/9)杂志发售** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)
     > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
     > **260709 洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/Dakb3D8SB3p)
@@ -222,6 +236,7 @@ permalink: /solo/
     > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
     > **260707 剧照预告** ⇨ [𝕏](https://x.com/TVGweb/status/2074237198656782520)/[ins](https://www.instagram.com/p/DadzrsBFEFm) ins图要大一些
     > **260707 推し楽采访** ⇨ [𝕏相关采访(以前发过)](https://x.com/oshiraku/status/2074252318653210664)
+    > **260713 洸大offshot** ⇨ [𝕏](https://x.com/crossroad_ex/status/2076592548613665274)/[ins](https://www.instagram.com/p/DaujAHKIAP5)
 * **260705 Mantan Web采访** ⇨ [藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)
 * **260628~260705** 在这期间的某一天洸大去看了TC同事的舞台剧《オーファンズ》 ⇨ [舞台剧主页](https://orphans2026.com/)
 * **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/)
@@ -239,6 +254,7 @@ permalink: /solo/
     > **260706「春に舞う」** 手势舞 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2073972604516683783)/[ins](https://www.instagram.com/reels/Dab3iUTpYf2/) 孩子跳得太可爱了！和日置手势舞完全是两种风味！！
     > **260707「告白、今日じゃない」** 洸大告白 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2074327733468094542)/[ins](https://www.instagram.com/reel/DaecRwsJhWc/) 很搞笑……这一话终于看出一些AI参与的影子了！
     > **260709「食べる女子、好き？」** 洸大的饭都被吃了笑死 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2075051789855097154)/[ins](https://www.instagram.com/reel/Dajl6JGpCOc)
+    > **260714「好きぴLINEいつ既読？」** 洸大名字出演233 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2076863645414469637)
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
@@ -470,6 +486,8 @@ permalink: /solo/
 
 ---
 * **251123 第38回JUNON SUPER BOY CONTEST最终选考会出演** @東京・TFTホール1000 ⇨ [新闻(11/2)](https://www.junon-tv.jp/articles/4033) repo说洸大曾经整整一年都没有试镜成功
+
+<!-- 2022年11月に開催された『第35回ジュノン・スーパーボーイ・コンテスト』 -->
 
 </div>
 

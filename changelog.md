@@ -53,9 +53,11 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 找到这个出处！！！https://x.com/DONGGEUL_DEGUL/status/2076132023287284031 -->
 
+[ 2026-07-14 ] 日常更新至7/14
+
 [ 2026-07-12 ] 补档修仲X back-to-8/8 完成！
 
-[ 2026-07-11 ] 补档修仲X back-to-10/19; 未读:https://www.tvguide.or.jp/feature/feature-4071895/
+[ 2026-07-11 ] 补档修仲X back-to-10/19
 
 [ 2026-07-10 ] 日常更新；补档修仲X back-to-11/1
 

@@ -39,12 +39,12 @@ permalink: /category/
 * **260403 Starside #2 Spring 2026 双人特刊** <span> ⇨ [𝕏4版封面+特典set](https://x.com/starside_x/status/2024829552514748858)</span>{: .text-small}
 * **260330 GIANNA BOYFRIEND 11（双人封底）** <span> ⇨ [联动采访](https://gianna.jp/archives/8695)</span>{: .text-small}
 * **260324 Lemon凝眸 双人特刊（中国首封）** <span>This Moment’s Youth｜2版封面+特典set</span>{: .text-small}
-* **251121 JUNON 1月号** <span>藤本洸大×簡 秀吉 愛とときめき、届きました。⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)</span>{: .text-small}
+* **251121 JUNON 1月号** <span>藤本洸大×簡 秀吉 愛とときめき、届きました。｜棕&白毛衣｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)｜[📕内页(只想说坏话)](http://xhslink.com/o/8dxm2s6jwMi)</span>{: .text-small}
 * **251121 月刊TVガイド 1月号** <span>SPECIAL TALK｜修仲校服｜2p ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)｜[📕内页(只想说坏话)](http://xhslink.com/o/8BePGZjH6IF)</span>{: .text-small}
 * **251117 Duet LUXE vol.4** <span>⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)</span>{: .text-small}
 * **251104 CINEMA SQUARE vol.156** <span>秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)</span>{: .text-small}
 * **251031 GIANNA PLUS 06（双人封面封底）** <span>白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271)</span>{: .text-small}
-* **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> 格子衬衫/套头衫｜⇨ [𝕏封面](https://x.com/mag_scawaii/status/1978400528234389517)</span>{: .text-small}
+* **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> 関西弁の二人の自然な会話。｜格子衬衫/套头衫｜7p ⇨ [𝕏封面](https://x.com/mag_scawaii/status/1978400528234389517)｜[📕内页(雨夜)](http://xhslink.com/o/50XpcAIDbSO)</span>{: .text-small}
 * **251025 Emo!miu采访（web）**<span>应募拍立得｜修仲校服｜21p ⇨[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 * **251023 月刊 TV navi 12月号** <span> ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)</span>{: .text-small}
 * **251020 Seventeen采访(web)** <span>应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)</span>{: .text-small}

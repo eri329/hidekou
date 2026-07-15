@@ -85,6 +85,7 @@ permalink: /drama/
 > 2026(播放当日上午统计): 27.1万(7/11)①←26.1万(7/4)①←27.1万(1/9)
 
 ## 修学旅行榜单排行&受赏
+* 260714 TVguide Web 2025.7～2026.7期间BL投票 修仲6位 => [!X](https://x.com/tvg_research/status/2076939875178500198)
 * 260706 Oricon电视剧Box周榜10位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-07-06/) 竟然还在榜
 * 260630 ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位 ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
 * 260625 Oricon2026年上半年电视剧Box销量榜3位(2025/12/22~2026/6/15) ⇨ [豆瓣](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&start=1200&_i=2848605TnLQ0nB)

@@ -56,17 +56,18 @@ permalink: /
 {: #jul2026}
 
 * **260725【修学旅行｜正片】修学旅行TV再放送 第3话** ※24:25～24:55
+
+<div class="line"></div>
+
 * **260713【修学旅行｜正片】日本映画専門频道修学旅行放送纪念特集** 是一个付费电视频道；7月13日(月)よる8時30分～ ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)
     > 【2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集】 会放：1️⃣ 話題作「修学旅行で仲良くないグループに入りました」2️⃣ 藤本洸大出演「舞台『それってキセキ』」3️⃣ 簡秀吉出演「映画 仮面ライダーギーツ 4人のエースと黒狐」(剩下略)
     > **260620 放送告知** ⇨ [𝕏](https://x.com/nihoneiga/status/2068134269550219618)
     > **260701 8月放送情报公开** 洸大出演的舞台剧『それってキセキ』也会在8/12, 8/28放送；眼镜洸大🈶 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)｜极狐剧场版 8/12, 8/17, 8/28放送 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030422_0001.html)
     > **260713/260826 修学旅行1-5话**
     > **260811/260827 修学旅行6-10话**
-
-<div class="line"></div>
-
+* **【修学旅行】WEB The TV修仲报道** 写得还挺中肯的! ⇨ [藤本洸大＆簡秀吉がハマリ役の王道ラブストーリー ときめきと繊細な感情描写が光る「修学旅行で仲良くないグループに入りました」](https://thetv.jp/news/detail/1423703/)
 * **260711【修学旅行｜正片】修学旅行TV再放送 第2话** ⇨ [𝕏PR](https://x.com/dramal_abc/status/2075716700151136611)
-* **260710【修学旅行】TVguide近期BL人气投票** ⇨ [𝕏](https://x.com/tvg_research/status/2075490214420820410)｜[投票地址](https://www.tvguide.or.jp/column/research-15/)
+* **260710【修学旅行】TVguide近期BL人气投票** ⇨ [𝕏](https://x.com/tvg_research/status/2075490214420820410)｜[投票地址](https://www.tvguide.or.jp/column/research-15/)｜修仲6位 [𝕏(7/14)](https://x.com/tvg_research/status/2076939875178500198)
 * **260709【修学旅行】TVguide BL编辑座谈会第3回** “胸キュン青春ドラマ” 修仲的魅力解析 ⇨ [𝕏](https://x.com/TVGweb/status/2074977073995943967)｜[修学旅行の設定が新しい「修仲」、EBiDANカップルがいい「純愛上等！」【BL座談会・胸キュン青春ドラマ】](https://www.tvguide.or.jp/feature/ott26070901/)
 * **260708【采访｜藤本洸大】TVガイドWeb 采访 後編** ⇨ [𝕏应募拍立得](https://x.com/TVguidePERSON/status/2074690525630967854)｜[藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/)
     > 聊了很多对日置的角色诠释和对修仲的爱！洸大认为日置的魅力在于“纯粹”、“無自覚の人たらし”(无意识地散发魅力)；经纪人评价洸大也是“空气感很柔和”的人；聊到如何饰演一个角色“无意识”的状态时，洸大说演员不能也无意识地去表演，他认为“无意识”的人大概会很少把焦点带回自己身上，而是更多地注视着周围的人（非常厉害的角色理解！）；<span>作为主演，很感激修仲这个机会，不仅对日置，也对修仲这部作品本身有着很深的感情，把自己当成了作品整体的一部分；</span>{: .text-pink}对第7话日置的告白回应印象很深，认为这是对日置来说非常重要的一个场景，虽然看上去很可爱，但是那时候的日置是很拼命的（所以洸大才让日置不自觉地流下眼泪吧）；后面也有聊到足球，洸大说现在已经完全不(专业地)踢了，既然已经决定转行，演戏也够用，不如花时间在别的地方（确实是转换很快的小孩！）下一个兴趣是从零开始做衣服233
@@ -102,8 +103,9 @@ permalink: /
     > **260629 小简封底look拍摄花絮** ⇨ [ins](https://www.instagram.com/reels/DaKmji7haJU/) 只有10秒
     > **260630 杂志发售+小简宣传视频** ⇨ [ins-封底](https://www.instagram.com/p/DaLJFFQSmDY/)｜[ins-封面](https://www.instagram.com/p/DaLI0yIShk5/) 官号介绍的时候又在捆绑……｜[ins-小简宣传视频-条纹look](https://www.instagram.com/p/DaMeAvpyvx1/)｜[𝕏-出版社张贴海报中](https://x.com/FINEBOYS_JP/status/2071866326885228781)
     > **260630 小简发ins** ⇨ [𝓲简](https://www.instagram.com/p/DaNVYX_E69S/) 条纹衬衫又帅晕谁了……顺便快拍庆祝了第200条post(哥你太有仪式感了)
-* **260625/260627【个人活动｜简秀吉｜藤本洸大】简洸都参加了CHANEL RADIO SHINE FM 香奈儿活动** ⇨ [𝓲简(6/25)](https://www.instagram.com/p/DaAlGJGAcGG/)｜[𝓲洸(6/27)](https://www.instagram.com/p/DaFqreUFB47/)
+* **260625/260627【个人活动｜简秀吉｜藤本洸大】简洸都参加了CHANEL RADIO SHINE FM 香奈儿Channel活动** ⇨ [𝓲简(6/25)](https://www.instagram.com/p/DaAlGJGAcGG/)｜[𝓲洸(6/27)](https://www.instagram.com/p/DaFqreUFB47/)
     > 6月24～26日の期間限定で東京・表参道;这个活动是专门宣传新品『ROUGE COCO HYDRA GLOSS』的，小简推了443洸大推了442,但是两个人可能不是同一天/同一场。洸大这场更像晚场，还看了live。
+    > **260710 洸大造型师牛造華发图** 没有新图 ⇨ [ins](https://www.instagram.com/p/DanWJUOATym) 
 * **260625【修学旅行｜双人】蓝光box追加特典台湾见面会(4/18)making放出**{: .text-red} ⇨ [𝕏-特典预告](https://x.com/dramal_abc/status/2069775132214936009)/[ins](https://www.instagram.com/p/DZ-GdTBzrAU/)｜[封面](https://x.com/tv_life/status/2068847970767003779)
 > #### 漫才夫夫登场！！从“因为时间不足所以只按一只脚”这里就开始笑了，看到主办整日本人、两位在那边惊恐+哀嚎+吐槽的样子已经捧腹爆笑……这两个人怎么这么好笑啊！！虽然很短但是能看到两人机场私服、彩排、签名、上台前的样子个人觉得很开心！上台前小简把脸贴过去洸大完全没反应这里特别甜……如果你记得starside时洸大被小简盯还会吓一跳的话，现在完全是习以为常……那个过场“诶啊”视频也放进去了，站长一直很想看来着！
 * **260620【修学旅行｜漫画】修学旅行漫画版第1卷发售** 6/20～7/20 BeLuck×Animate活动 ⇨ [𝕏创刊贺图](https://x.com/BeLuckbunko/status/2068129598496534824)｜[𝕏漫画封面](https://x.com/BeLuckbunko/status/2062781242714841412)｜[𝕏Animate活动](https://x.com/animateshinjuku/status/2068159992738595093)｜[特典一览](https://novema.jp/article/beluck/beluckcomics/news/202605) 内含一个応援店共通モノクロペーパー(线下赠送的黑白漫1p)
@@ -185,6 +187,8 @@ permalink: /
     > **260623 洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/DZ7J296BQMT/) 特别烧的宝宝……
     > **260624 简洸应募拍立得** ⇨ [𝕏-洸大拍立得](https://x.com/FINEBOYS_JP/status/2069691999792308605)｜[𝕏-小简拍立得](https://x.com/FINEBOYS_JP/status/2069692000345972796)
     > **260625 小简拍摄花絮** ⇨ [ins](https://www.instagram.com/reel/DaATbkdhFCe/)
+    > **260711 小简应募拍立得** ⇨ [ins](https://www.instagram.com/p/DapSXvgEiUh)
+    > **260712 洸大应募拍立得** ⇨ [ins](https://www.instagram.com/p/Dar3Oxykp38/)
 * **260524【修学旅行】DXTEEN旋转木马修仲梗抖音小视频** 真的很好笑…… ⇨ [𝕏](https://x.com/official_DXTEEN/status/2058501044607615339)
 * **260522【修学旅行】日置生日快乐！** 同时预告5.23有告知（是五人见面会） ⇨ [𝕏修仲官方(图)](https://x.com/dramal_abc/status/2057657714604716049)｜[ins修仲(图)](https://www.instagram.com/p/DYnk1lTE2nF/)｜[𝕏亲妈发推](https://x.com/RcNfe37/status/2057594431533162613)｜[𝕏-漫画作者贺图](https://x.com/K_mugi5/status/2057766733348565230)
     > #### 简洸都在快拍祝贺了日置生日快乐~特别是小简凌晨1点就发了(好有心)，洸大晚上才发2333官方是中午12点发的XD
@@ -232,7 +236,7 @@ permalink: /
     > **260509~260510 海报展** 有一张B5特典卡 ⇨ [𝕏告知(4/21)](https://x.com/preppy_magazine/status/2046529374384746792)｜[𝕏预约(4/24)](https://x.com/preppy_magazine/status/2047616545178653095)｜[𝕏海报展布置](https://x.com/preppy_magazine/status/2053007059940172125)
     > #### 两个宝宝选衣服真是太可爱了……小简穿制服就是神我说累了。形容彼此的一个字洸->简:男(子汉)，简->洸:稳(重), 像太阳一样的存在。很好很好都形容在我的xp上(?)已经在杂志上约饭请务必兑现！某个人说完清水我以为他要顺着说下次三个人一起去喝酒吧，结果他话锋一转说下次要和洸大两个人一起喝，啊啦啦……两人又一起cue了修仲S2，提得这么频繁一定是已经有计划了吧!!下一个话题是台湾见面会，「あとはやはり洸大と二人で台湾行けるっていうのが楽しみですね。」这个采访某人不知道说了几次「二人」好好品……最后宣传了一下box就结束了，修仲狐猪量很高的一个采访！
     > **260513 洸大ins发图** ⇨ [𝓲洸](https://www.instagram.com/p/DYRyyS9FGA1/) 涂黑色指甲油的兔宝！
-    > **260518 HMV海报展台** ⇨ [𝕏](https://x.com/HmvBooksShibuya/status/2056189143638819051)
+    > **260518~260531 SHIBUYA HMV BIGポスター展** ⇨ [𝕏展台](https://x.com/HmvBooksShibuya/status/2056189143638819051)｜[𝕏展台2](https://x.com/preppy_magazine/status/2058492693047820675)｜[活动详情](https://www.hmv.co.jp/news/article/260428143/) 抽选送B2海报和亲签色纸！⇨ [𝕏色纸粉丝返图](https://x.com/_yuhiko12/status/2065003783369928961)
     > **260529 Sugiura造型师发图** ⇨ [ins-洸大](https://www.instagram.com/p/DY6rifTCdjR/)
 * **260501【修学旅行｜采访】Heavenly online采访** ⇨ [𝕏](https://x.com/heavenly_pick/status/2050047561520795804)｜[𝕏樱花妹日译](https://x.com/segadayo_nm/status/2050236798358667464)
     > #### 意外地质量很高的一篇采访！两个人都说了很多之前(好像)没提过的拍摄感想！看完就觉得狐猪两个人都很用心地在诠释、自身也爱着渡会和日置这两个角色，是你们来演真是太好了……
@@ -726,7 +730,7 @@ permalink: /
     > **切片** ⇨ [𝕏修学旅行第一天的四目相对](https://x.com/dramal_abc/status/1980253146183340168)｜[𝕏渡会冒雨回来找日置](https://x.com/dramal_abc/status/1980253521288339548)｜[𝕏渡会旅馆牵日置不放手](https://x.com/dramal_abc/status/1980254985113002260)
     > **PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1975856191671533708)｜[𝕏15sPR](https://x.com/dramal_abc/status/1979110132060479515)｜[𝕏FOD宣传](https://x.com/fujitvplus/status/1979585789815328957)
     > **教室公式照** [教室1(11/30)](https://x.com/dramal_abc/status/1994816122642919500/)｜[教室2(11/30)](https://www.instagram.com/p/DRpfTABE2Lb/)
-* **251018【直播｜双人】狐猪首次双人直播**{: .text-red} 22時~ @修仲官方ins
+* **251018【直播｜双人】狐猪首次双人直播**{: .text-red} 22時~ @修仲官方ins ⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)
     > **251017 直播告知+提问征集** ⇨ [𝕏](https://x.com/dramal_abc/status/1979019551129080248)
 * **251016【杂志｜双人】《TVガイドdan》vol.57(10/16) 杂志发售**{: .text-red} ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)
     > **250922 情报解禁** #藤本洸大×#簡秀吉 ⇨ [𝕏(纯文字)](https://x.com/TVguidePERSON/status/1969960029249032400)
@@ -760,7 +764,7 @@ permalink: /
 * **250922【修学旅行】公式Tiktok开设！**⇨ [𝕏](https://x.com/dramal_abc/status/1970109234005311872)｜[公式TT](https://www.tiktok.com/@schooltrip_abc)
 * **250921【修学旅行｜采访｜双人】TVer interview之对原作的印象** ⇨ [𝕏-25s预览](https://x.com/dramal_abc/status/1969698810055274687)
     > #### 洸大说看到标题就很期待去修学旅行~是很纯爱、直球的BL;小简说原作既令人心动又有欢快搞笑的地方。（这个采访暂时还没有找到完整档……）
-* **250920【修学旅行｜采访｜双人】TVer interview之初印象**{: .text-red} ⇨ [𝕏-25s预览](https://x.com/dramal_abc/status/1969345978655522964)｜[b站存档(中字)-46s版本](https://www.bilibili.com/video/BV1KEvdBHENG)
+* **250920【修学旅行｜采访｜双人】TVer interview之初印象**{: .text-red} ⇨ [𝕏-25s预览](https://x.com/dramal_abc/status/1969345978655522964)｜[b站存档-4min版本](https://www.bilibili.com/video/BV1n3pWzkE39)
     > #### 这个采访应该就是狐猪的第一次见面了！珍贵的！！命运般的！第一次！小简当时还特别拘谨！洸大e人在控场；洸大对小简的印象是很大只，小简对洸大的印象是特别像高中生。洸大说刚刚自己化妆的时候小简有过来打招呼；对小简说你可以跟我讲关西话哦。看到小简刚开始这么i真的笑死，跟日后某个撒娇卖萌也要粘着洸大的大金毛简直判若两人233
 * **250919 仲里生日快乐！**⇨ [𝕏亲妈发推](https://x.com/RcNfe37/status/1968799086137466996)｜[𝕏官推(图)](https://x.com/dramal_abc/status/1968920526874919133)
 * **250919【修学旅行】ABC活动 推しに出会えるABC〜10月クール番組祭り〜** 修学旅行VTR出演 18:30~19:30 ⇨ [官网](https://tv-evt.abcid.asahi.co.jp/event/14466)｜[b站-疑似修仲VTR(中字)](https://www.bilibili.com/video/BV1o4zYBnEZQ/)
