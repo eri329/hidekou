@@ -53,7 +53,7 @@ permalink: /category/
 * **251016 別冊+act. 42号** <span> ⇨ </span>{: .text-small}
 
 ## 杂志/采访/书籍(简 秀吉)
-{: #kan-magazine}
+{: #kan-magazine .text-solo}
 
 情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
 <span>格式: 栏目名｜妆造/主题｜页数 ⇨ 封面｜内页</span>{: .text-small}
@@ -102,12 +102,14 @@ permalink: /category/
 * 2022年 JUNON 11月号
 
 ## 杂志/采访/书籍(藤本 洸大)
-{: #kou-magazine}
+{: #kou-magazine .text-solo-k}
 
 情报出处: [TopCoat官网](https://topcoat.co.jp/kodai_fujimoto/contents/schedule/magazine)
 <span>格式: 栏目名｜妆造/主题 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
+* **260722 JUNON 9月号** <span>喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)</span>{: .text-small}
+* **260723 ViVi 9月号** <span> ⇨ [𝕏封面](https://x.com/vivi_magazine/status/2077180231019114802)</span>{: .text-small}
 * **260710 Emo!miu采访(web)** <span>17p ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)</span>{: .text-small}
 * **260709 JJ(web)** <span> ⇨ [【藤本洸大】ドラマ「クロスロード ～救命救急の約束～」出演記念インタビュー！「自分の中に眠っていた熱を思い出させてもらった作品です」](https://jj-jj.net/lifestyle/182409/)｜[【藤本洸大】「とにかく満足しない俳優になっていきたい」今最注目！実力派若手俳優の素顔に迫る](https://jj-jj.net/lifestyle/182410/)</span>{: .text-small}
 * **260709 FINEBOYS 8月号** <span>藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)</span>{: .text-small}
