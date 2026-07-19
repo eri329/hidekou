@@ -81,7 +81,7 @@ permalink: /
     > **260708 小简ins快拍** 16:9都放不下的超级大长腿 ⇨ [𝕏粉丝留档](https://x.com/checkey_2002/status/2074757940259762506)
     > **260709 洸大拍摄花絮** BGM是两片想~ ⇨ [ins](https://www.instagram.com/reel/Dakdbv-h7Kl/)
     > **260710 小简拍摄花絮** ⇨ [ins](https://www.instagram.com/reel/DanCPFoB2ay/)
-* **260705【修学旅行】TV再放送+夏日同窗会配信PR** ⇨ [𝕏](https://x.com/dramal_abc/status/2073428480545759391)/[ins](https://www.instagram.com/reel/DaYDw01zXln/)
+* **260705【修学旅行】夏日同窗会配信PR** ⇨ [𝕏](https://x.com/dramal_abc/status/2073428480545759391)/[ins](https://www.instagram.com/reel/DaYDw01zXln/)
 * **260704【修学旅行｜正片】修学旅行TV再放送** 依然是abc关西限定 ABC(関西)7/4(土)〜 深夜0時 TVer･ABEMA見逃し配信も
     > **260628 TV再放送告知** ABC(関西)7/4(土)〜 ⇨[𝕏](https://x.com/dramal_abc/status/2070899961105924367)｜[放送日程表](https://www.asahi.co.jp/schooltrip/news/260627.html)｜[𝕏亲妈发推欢迎回来～](https://x.com/RcNfe37/status/2071205079949189300)
     > **260704 第1话PR+TVer链接** ⇨ [𝕏](https://x.com/dramal_abc/status/2073179989454049384)｜[TVer修学页](https://tver.jp/series/sr1es6void)
@@ -764,7 +764,7 @@ permalink: /
     > **开播前的宣传花絮照** ⇨ [𝕏比剪刀手的日置](https://x.com/dramal_abc/status/1970813003563188394) <span>特别美萌！</span>{: .text-pink}｜[𝕏比剪刀手的渡会](https://x.com/dramal_abc/status/1971183231170187287) <span>可爱大狗狗……</span>{: .text-pink}｜[𝕏三天王](https://x.com/dramal_abc/status/1971512398126469394)｜[𝕏比👍的渡日](https://x.com/dramal_abc/status/1971896373282066759)｜[𝕏日置仲里和堀田](https://x.com/dramal_abc/status/1972295809350930798)
     > **切片** ⇨ [𝕏修学旅行第一天的四目相对](https://x.com/dramal_abc/status/1980253146183340168)/[TT](https://www.tiktok.com/@schooltrip_abc/video/7563232100988587284)｜[𝕏渡会冒雨回来找日置](https://x.com/dramal_abc/status/1980253521288339548)/[TT](https://www.tiktok.com/@schooltrip_abc/video/7563254708710755604)｜[𝕏渡会旅馆牵日置不放手](https://x.com/dramal_abc/status/1980254985113002260)/[TT](https://www.tiktok.com/@schooltrip_abc/video/7563286617377557780)
     > **PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1975856191671533708)｜[𝕏15sPR](https://x.com/dramal_abc/status/1979110132060479515)｜[𝕏FOD宣传](https://x.com/fujitvplus/status/1979585789815328957)
-    > **教室公式照**{: .text-red} [教室柜子倒影1](https://x.com/dramal_abc/status/1994816122642919500/)｜[教室柜子倒影2](https://www.instagram.com/p/DRpfTABE2Lb/) <span>伟大的小情侣们……</span>{: .text-pink}
+    > **教室公式照**{: .text-red} [教室柜子倒影1](https://x.com/dramal_abc/status/1994816122642919500/)｜[教室柜子倒影2](https://www.instagram.com/p/DRpfTABE2Lb/) <span>伟大的小情侣……</span>{: .text-pink}
 * **251018【直播｜双人】狐猪首次双人直播**{: .text-red} 22時~ @修仲官方ins ⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)
     > **251017 直播告知+提问征集** ⇨ [𝕏](https://x.com/dramal_abc/status/1979019551129080248)
 * **251016【杂志｜双人】《TVガイドdan》vol.57(10/16) 杂志发售**{: .text-red} ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)

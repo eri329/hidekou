@@ -18,6 +18,7 @@ permalink: /solo/
 
 * **261031 神户学院大学大学祭 简秀吉talkshow**{: .text-red} 14:00~ @神戸学院大学 ポートアイランドキャンパス B302教室
     > **260717 情报解禁** 外部观众7/25~开票，很便宜而且不是抽选! ⇨ [𝕏](https://x.com/135fes/status/2078038469792903451)｜[ins详情](https://www.instagram.com/p/Da4vcXvkQMo/)
+    > **250718 校内申请开放** ⇨ [ins](https://www.instagram.com/p/Da6c-gzE8oy/)
 
 ---
 * **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ
