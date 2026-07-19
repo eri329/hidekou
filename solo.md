@@ -283,7 +283,7 @@ permalink: /solo/
     > **260706「春に舞う」** 手势舞 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2073972604516683783)/[ins](https://www.instagram.com/reels/Dab3iUTpYf2/) 孩子跳得太可爱了！和日置手势舞完全是两种风味！！
     > **260707「告白、今日じゃない」** 洸大告白 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2074327733468094542)/[ins](https://www.instagram.com/reel/DaecRwsJhWc/) 很搞笑……这一话终于看出一些AI参与的影子了！
     > **260709「食べる女子、好き？」** 洸大的饭都被吃了笑死 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2075051789855097154)/[ins](https://www.instagram.com/reel/Dajl6JGpCOc)
-    > **260714「好きぴLINEいつ既読？」** 洸大名字出演233 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2076863645414469637)
+    > **260714「好きぴLINEいつ既読？」** 洸大名字出演233 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2076863645414469637)/[ins](https://www.instagram.com/p/Dawd0KXJWmb/)
     > **260716「OTUKARE」** 跳舞小视频 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2077592727597023384)/[ins](https://www.instagram.com/p/Da1olkENTFY/)
 
 ---

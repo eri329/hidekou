@@ -86,7 +86,7 @@ permalink: /flattened_timeline/
     > **【SNS｜简秀吉】半夜3点发小红书**{: .text-solo} 捕风追影太好看了的一个夜晚 ⇨ [📕简](http://xhslink.com/o/6Y7yJ5CxJ10)
     > **【个人活动｜简秀吉】2025年东京国际电影节「Thailand Night」活动 活动照片**{: .text-solo} 是泰国文化部举办的活动，居然这么晚才发 ⇨ [ins单人照](https://www.instagram.com/p/Da2FWhLk1wd/)｜[ins和濱屋拓斗合照](https://www.instagram.com/p/Da23w3iE0TR/)
     > **【直播｜藤本洸大】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k} 🎨花火大会 ⇨ [𝓲洸](https://www.instagram.com/p/Da2r_zElE19)
-    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2**{: .text-solo-k} 「OTUKARE」跳舞小视频 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2077592727597023384)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2**{: .text-solo-k}「OTUKARE」跳舞小视频 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2077592727597023384)
     > **【个人活动｜藤本洸大】《ViVi》9月号(7/23) 杂志登场+抽签周边盲盒**{: .text-solo-k} ViVi国宝级帅哥榜相关活动 ⇨ [𝕏Oricon](https://www.oricon.co.jp/news/2468197/)/[𝕏Emomiu](https://x.com/emo_miu/status/2077645914416845161)/[𝕏推し楽](https://x.com/oshiraku/status/2077645314123812963)｜[𝕏杂志封面(7/15)](https://x.com/vivi_magazine/status/2077180231019114802)
 * **260715**
     > **【个人活动｜藤本洸大】ViVi国宝級イケメンランキング ViVi国宝级帅哥榜 洸大入榜NEXT部门第14位**{: .text-solo-k} ⇨ [vivi](https://www.vivi.tv/special/ikemenranking2026first/next/) 恭喜入榜NEXT(22岁以下)部门!
@@ -95,6 +95,7 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」(姜汁威士忌苏打)10月6日发售+签售会情报解禁!**{: .text-solo-k} 7月17日开始预约 ⇨ [ins-TC(图)](https://www.instagram.com/p/DawfdOGknFr/)｜[𝕏JUNON(干杯视频)](https://x.com/JUNON_jp/status/2076864692153381156)/[ins](https://www.instagram.com/reels/DawfBB0COiK/) 干杯告知~｜[JUNON详情页(含洸大寄语+签售会情报+各店特典)](https://www.junon-tv.jp/articles/4421)｜[Oricon news](https://www.oricon.co.jp/news/2467623/)｜[推し楽news](https://fan.books.rakuten.co.jp/articles/9039)｜[𝕏Emomiu](https://x.com/emo_miu/status/2077644352789369017)
         > 签售会两场: 2026年10月10日（土） @大阪府 HMV&BOOKS NAMBA; 2026年10月11日（日）@東京都 HMV&BOOKS SHIBUYA
         > 初次金发披露——！签售会福利很好。更多⇨[【单人物料】]({{ site.baseurl }}/solo/#kodai2026)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2**{: .text-solo-k}「好きぴLINEいつ既読？」洸大名字出演233 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2076863645414469637)/[ins](https://www.instagram.com/p/Dawd0KXJWmb/)
 * **260713**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 是一个付费电视频道；7月13日(月)よる8時30分スタート；7/13, 8/26 ⇨ [官网](https://www.nihon-eiga.com/osusume/schooltrip/)｜[详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html) *各种PR都是老片段就省略了*
     > **【FC｜直播｜简秀吉】小简FC radio直播**{: .text-solo} ~30min
