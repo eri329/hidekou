@@ -5,7 +5,7 @@ permalink: /solo/
 ---
 
 #### 索引
-* [简 秀吉](#kan): [2026](#kan2026)｜[2025](#kan2025)｜[杂志]({{ site.baseurl }}/category/#kan-magazine)
+* [简 秀吉](#kan): [2026](#kan2026)｜[2025](#kan2025)｜[考古](#kan-past)｜[杂志]({{ site.baseurl }}/category/#kan-magazine)
 * [藤本 洸大](#kodai): [2026](#kodai2026)｜[2025](#kodai2025)｜[杂志]({{ site.baseurl }}/category/#kou-magazine)
 
 <div class="sublist" markdown="1">
@@ -52,7 +52,7 @@ permalink: /solo/
     > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
         > **260613 2026世界杯解说出演决定！** 没出具体日期 ⇨ [𝕏](https://x.com/TVGweb/status/2065648762161377749)
         > **260629 节目解禁** 7/2 FIFA world cup daily highlight
-        > **260702 节目播出** ⇨ [𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片](https://x.com/DAZN_JPN/status/2072657573036343419)
+        > **260702 节目播出** ⇨ [𝕏节目告知](https://x.com/DAZN_JPN/status/2072517673200848983)｜[𝕏照片](https://x.com/FcMachidaZelvia/status/2072622400022462473/)｜[𝕏照片2(出处不明)](https://x.com/pho___aym/status/2072647844448862532)｜[𝕏切片1](https://x.com/DAZN_JPN/status/2072636942097985842)｜[𝕏切片2](https://x.com/DAZN_JPN/status/2072657573036343419)
         > **260703 应募嘉宾签名T** ⇨ [𝕏嘉宾签名T(7/3)](https://x.com/DAZN_JPN/status/2072861224363233403)
     > **260704 DAZN「FIFAワールドカップ2026 DAZN PARTY LIVE」** 9:30~ コロンビアvsガーナ:ラウンド32
         > **260703 告知** ⇨ [𝕏](https://x.com/DAZN_JPN/status/2072913602835792082)
@@ -179,15 +179,19 @@ permalink: /solo/
     > **260316 造型师牧野裕大发图** ⇨ [ins](https://www.instagram.com/p/DV7Ac-Sk9sx/)
 
 ----
-* **260209~260302 舞台剧『ピーターとアリス』公演**
+* **260209~260302 舞台剧『ピーターとアリス』公演** マイケル・デイヴィス/レジナルド・ハーグリーヴス 2役 
     > 東京公演／東京芸術劇場 プレイハウス 2026年2月9日（月）～2月23日（月・祝）
     > 大阪公演 ／梅田芸術劇場シアター・ドラマシティ 2026年2月28日（土）～3月2日（月）
-    > [角色介绍1](https://x.com/peteralice2026/status/2017077813770178656)｜[角色介绍2](https://x.com/peteralice2026/status/2017160875648471305)
-    > [𝕏简初日推(2/10)](https://x.com/kan_hideyoshi/status/2021168947534463070)｜[𝓲简(2/10)](https://www.instagram.com/p/DUkvERzAaGJ/)
-    > **260214【直播】11:15～11:45am 舞台剧相关ins直播**{: .text-red} with青木柚, 佐藤寛太
-    > [Preppy编辑部Repo(2/20)](https://preppyweb.com/article/18467)
-    > 相关宣传: [𝕏(2/22)](https://x.com/peteralice2026/status/2025514631612240023)｜[𝕏小简宣传视频(2/7)](https://x.com/peteralice2026/status/2019969375659565455)
-    > [𝕏简(3/2)](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲简(3/2)](https://www.instagram.com/p/DVYRSt1gR4O/)
+    > **250912 情报解禁** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1966433982628741577)｜[𝕏官号](https://x.com/peteralice2026/status/1966336551945924904)
+    > **251108 PR短片** ⇨ [𝕏](https://x.com/peteralice2026/status/1986992068686680426)
+    > **260121【直播】12:15～12:45pm 舞台剧练习小简ins直播**{: .text-red} with古川琴音,青木柚 ⇨ [𝕏告知](https://x.com/peteralice2026/status/2013544531132850522)
+    > **260130 角色介绍** ⇨ [𝕏1](https://x.com/peteralice2026/status/2017077813770178656)｜[𝕏2](https://x.com/peteralice2026/status/2017160875648471305)
+    > **260207 小简宣传视频** ⇨ [𝕏](https://x.com/peteralice2026/status/2019969375659565455)
+    > **260210 小简初日宣传** ⇨ [𝕏简初日推](https://x.com/kan_hideyoshi/status/2021168947534463070)｜[𝓲简](https://www.instagram.com/p/DUkvERzAaGJ/)
+    > **260214【直播】11:15～11:45am 舞台剧小简ins直播**{: .text-red} with青木柚, 佐藤寛太 ⇨ [𝕏告知](https://x.com/peteralice2026/status/2022234295713292614)
+    > **260220 Preppy编辑部Repo** ⇨ [preppy](https://preppyweb.com/article/18467)
+    > **260222 offshot** ⇨ [𝕏](https://x.com/peteralice2026/status/2025514631612240023) with青木柚,佐藤寛太
+    > **260302 小简总结** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲简](https://www.instagram.com/p/DVYRSt1gR4O/)
 * **260201 三天王聚会** 小简、步汰、海李 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2017922007124652543)｜[𝓲简](https://www.instagram.com/p/DUNqivpgTpE/)
 
 ---
@@ -200,15 +204,107 @@ permalink: /solo/
     > **260213 特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2022143706569314607)
     > **其他物料** ⇨ [𝕏(2/9)](https://x.com/MensPREPPY/status/2020694148496634272)｜[𝕏(2/21)](https://x.com/MensPREPPY/status/2025042809640595708)｜[𝕏(3/2)](https://x.com/MensPREPPY/status/2028334487172698393)
 * **260127《awesome! Plus》Vol.45(1/27) 杂志发售** 简秀吉xKyle对谈 [𝕏宣传视频](https://x.com/BP25th_awesome/status/2016063724092850629)｜[𝕏宣传(2/10)](https://x.com/BP25th_awesome/status/2021222626396418126)｜[𝓲简-图透(1/24)](https://www.instagram.com/p/DT5Bv2RgRwQ/) 这本物料少得可怜多谢小简自己发图
-* **250121【直播】12:15~12:45am 舞台剧相关ins直播**{: .text-red} with古川琴音，青木柚
-* **260109 2026 DXTEEN ARENA LIVE 〜FULL OUT！〜** 小简(以及修仲剧组?)去看了DXTEEN的live ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2009624618139836593)
+* **260109 2026 DXTEEN ARENA LIVE 〜FULL OUT！〜** 小简(以及修仲剧组?)去看了DXTEEN的live ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2009624618139836593)「にっこにっこにー🪄」
 * **260101 新年帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2006668755011776684)｜[𝓲简](https://www.instagram.com/p/DS9tGd7gdps/)｜[𝕏(12/31)](https://x.com/kan_hideyoshi/status/2006318151039164425)
 
 ### 2025
 {: #kan2025}
 
+* **251201【SNS】小简祝贺原自分登上CDTVライブライブ** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1995458161788989609)
+
+---
+* **251128【直播】19:00~ 简秀吉NATSLIVE「成り上がれ！秀吉の野望」配信** 19時~Game配信🎮/21時~Art配信🎨 ⇨ [NATSLIVE](https://x.com/NATSLIVE_app/status/1988894613843648812)
+    > **251113 情报解禁** 11/16抽选开票 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1988913593186693437)
+* **251123【SNS】小简发X戴小狗耳朵视频** 今天也辛苦了~收到了很多修仲的感想。狗狗耳朵一摇一摇ing ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992593182232846713)
+* **251109《SEEK》11月号(11/9) 杂志发售**{: .text-red} 小简封面! ⇨ [𝕏简-封面](https://x.com/kan_hideyoshi/status/1987477142456955059)
+* **251101 簡秀吉23rd BIRTHDAY EVENT 大阪生日会**{: .text-red} @T・Bホール 11:30開演/14:30開演
+    > **251023 登场情报解禁** ⇨ [𝕏小简宣传小视频](https://x.com/SeekMediaGroup_/status/1981291409555804171) 
+    > **251102 小简发推** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1984895529906815272)
+
+---
 * **251028 出席2025年东京国际电影节「Thailand Night」活动** 是泰国文化部举办的活动，活动日期不明，大约在10/28~10/30之间
     > **260716 活动照** ⇨ [ins个人照](https://www.instagram.com/p/Da2FWhLk1wd/)｜[ins和濱屋拓斗合照](https://www.instagram.com/p/Da23w3iE0TR/)
+* **251019 簡秀吉23rd BIRTHDAY EVENT 东京生日会**{: .text-red} @ストロボカフェ原宿 15:00開演/18:00開演
+    > **250801 情报解禁** 东京/大阪两场 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1951221400586350989)
+    > **250806 FC先行开票** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1953024580664373645)
+    > **250814 小简发推图透谷子造型** 黑西装~ ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1955924663105937489)
+    > **250909 一般应募开始** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1964262750991110280)
+    > **251019 抽签周边活动本日开始** 10/19~11/1 raffle-kuji ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1979829209750253593)｜[𝕏应募送E赏](https://x.com/Raffle_info/status/1979744425938169999)
+* **251015《月刊わんこ》vol.23(10/15) 杂志发售** 小简底封 ⇨ [详情](https://gekkanwanko.kawaiishop.jp/items/124496797)
+    > **251008 小简发推宣传** ⇨ [𝕏简-封底](https://x.com/kan_hideyoshi/status/1975865522408632474)
+* **251008《TVstation》22号(10/8) 杂志发售**
+    > **251007 情报解禁** ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)
+
+---
+* **250807【SNS】小简发推应援Lopo** 假面骑士Lopo小贯莉奈将出演《仮面ライダーゼッツ》(仮面ライダーZETS) ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1953377583548023201)
+
+---
+* **250719 广州见面会**
+
+### 考古
+{: #kan-past}
+
+*2025年7月以前只记录比较重要的活动, 且本站不再备份存档*{: .text-small}
+
+<div class="text-past" markdown="1">
+
+* **250511 簡秀吉ファンクラブ結成1周年記念イベント 2nd FAN MEETING**{: .text-red} FC"1st Anniversary event;FC1周边见面会；15:00開演/18:00開演 @原宿ストロボカフェ ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1921528376424063208)
+* **250524 杭州见面会**{: .text-red} 12:00/18:00开演 @大麦·66Livehouse
+* **250420 小简退社**{: .text-red} ボックスコーポレーション(Box Corporation) ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1913886238177968407)
+* **250413 香港见面会**{: .text-red}
+* **250214 电影「BATTLE KING!! Map of The Mind -序奏・終奏-」上映** 山縣朱雀役
+* **250124 综艺「酒のツマミになる話」播出** @フジテレビ
+* **250111 综艺「芸能人が本気で考えた！ドッキリGP」播出**「化け猫の島」@フジテレビ
+* **250111 电视剧「たからもの」配信** 新潟県燕市×私の卒業 ⇨ [🆈Youtube全集可看](https://www.youtube.com/watch?v=GTK0cGaYm9c)
+
+---
+* **241220 电影「【推しの子】 -The Final Act-」上映** 鳴嶋メルト役
+* **241205 电视剧「あざとくて何が悪いの？あざと连ドラ」第5话~登场** 24:45~ @テレビ朝日
+* **241128 电视剧「【推しの子】」上线** 鳴嶋メルト役 @Amazon Prime Video
+* **241110 简秀吉2025年台历发售+纪念活动**{: .text-red} 线上&线下活动均有 ⇨ [活动](https://shibuyatsutaya.tsite.jp/article/446.html)
+* **241109 综艺「芸能人が本気で考えた！ドッキリGP」播出**「ヒーロー俳優は悪者からアイドルを助けるか？」@フジテレビ
+* **241027 简秀吉22岁大阪生日会**{: .text-red} 13:30開演／17:00開演 @T・Bホール
+* **241020 简秀吉22岁东京生日会**{: .text-red} 13:30開演／17:00開演 @青山グランドホール 
+* **241017 电视剧「わたしの宝物」开播** 殿山新之助役 @フジテレビ
+* **240901 电视剧「君とゆきて咲く～夏の宴～」见面会出席** 13:00/17:00　ゲスト＜渋皮喜平役＞簡秀吉
+* **240830 电影「威風堂々 〜奨学金って言い方やめてもらっていいですか？」上映** 蛭間拓人役
+    > **240831 公開記念舞台挨拶 登场** 上映13:00~14:00;舞台挨拶:14:30~15:00 @☆池袋HUMAXシネマズ
+* **240816 综艺「金曜日のメタバース」登场** 25:15~（※関東ローカル）@テレビ朝日
+* **240719 电视剧「伝説の頭 翔」开播** 亀井礼音役 @テレビ朝日
+* **240603 简秀吉Fansite(FC)开设!**{: .text-red}
+* **240525 深圳见面会**{: .text-red}
+* **240503~240504 舞台「仮面ライダーガッチャード ガッチャンコFESTIVAL!!」出演** 仮面ライダーギーツ役
+* **240424 电视剧「君とゆきて咲く 〜新选组青春録〜」开播** 渋皮喜平役 @テレビ朝日
+* **240111 电视剧「好きやねんけどどうやろか」开播**{: .text-red} 主演·松本栄枝役 @読売テレビ
+
+---
+* **231224 MV「りりあ。riria. /最後のバイバイ」出演&公开** ⇨ [🆈Youtube](https://www.youtube.com/watch?v=dkqt-QZV1R8)
+* **231222【假面骑士极狐】电影「仮面ライダー THE WINTER MOVIE ガッチャード&ギーツ 最強ケミー★ガッチャ大作戦」上映** W主演・浮世英寿/仮面ライダーギーツ役 *假面骑士歌查德x极狐
+* **231218 简秀吉2024年台历「簡秀吉カレンダー2024.04-2025.03」发售**{: .text-red} ⇨ [kadokawa](https://www.kadokawa.co.jp/product/322308001355/)
+* **231210【假面骑士极狐】广告「東洋水産 赤いきつね緑のたぬき×仮面ライダー THE WINTER MOVIE」播出** ※配合电影预热于12月起播出 ⇨ [CM-niconico](https://www.nicovideo.jp/watch/sm43128105)
+* **231124 综艺「人志松本の酒のツマミになる話」播出** 21:58~ @フジテレビ
+* **230916【假面骑士极狐】舞台「仮面ライダーギーツ ファイナルステージ」开演** 主演・浮世英寿/仮面ライダーギーツ役 9/16大阪场开演 ※巡演至10月15日千秋乐
+* **230831 简秀吉1st写真集「IKKAN」发售**{: .text-red} ⇨ [kadokawa](https://www.kadokawa.co.jp/product/322303002114/)
+    > **230831 20:30~** 线上签名会 ⇨ [详情](https://www.corazon-store.com/event/2023/07-18/8806/)
+    > **230903 线下HMV纪念活动**
+    > **231104 簡秀吉1st写真集「IKKAN」発売記念 & オンラインタコパ会** 线上章鱼小丸子大会 ⇨ [🆈Youtube直播](https://www.youtube.com/watch?v=wliaq_CDfog)
+* **230728【假面骑士极狐】电影「映画 仮面ライダーギーツ 4人のエースと黒狐」上映** 主演・浮世英寿/仮面ライダーギーツ役
+* **230503/230504【假面骑士极狐】特别活动「仮面ライダーギーツ GOLDEN DESIRE NIGHT」** 主演・浮世英寿/仮面ライダーギーツ役 @ランドプリンスホテル新高輪
+* **230504【假面骑士极狐】广告「大塚製薬 オロナミンC CM 仮面ライダーギーツ 夢をかなえるチカラ篇」播出** *日期不明
+
+---
+* **221223【假面骑士极狐】电影「仮面ライダーギーツ×リバイス MOVIEバトルロワイヤル」上映** トリプル主演・浮世英寿/仮面ライダーギーツ役 *假面骑士极狐x利维斯
+* **221001【假面骑士极狐】广告「東洋水産 赤いきつね 緑のたぬき×仮面ライダーギーツ」播出** *日期不明 ⇨ [niconico](https://www.nicovideo.jp/watch/sm41396792)
+* **220909 电影「HiGH&LOW THE WORST X」上映** 出演
+* **220904【假面骑士极狐】电视剧「仮面ライダーギーツ」开播**{: .text-red} 主演・浮世英寿/仮面ライダーギーツ役 @テレビ朝日
+* **220901【假面骑士极狐】广告「丸大食品 仮面ライダーギーツ フィッシュソーセージ&ウインナー」播出** *日期不明
+* **220828 电视剧「仮面ライダーリバイス 最终话」播出** 浮世英寿役 @テレビ朝日 *假面骑士利维斯
+* **220722 电影「劇場版 仮面ライダーリバイス バトルファミリア」上映** 仮面ライダーギーツ役（声のみ）*假面骑士利维斯；极狐声音出演
+* **220413 电视剧「ナンバMG5」开播** 櫻井拓郎役 @フジテレビ
+* **220318 电影「あしたのわたしへ 私の卒業-第3期-」上映** 藤倉将人役
+
+</div>
+
 
 <div class="line"></div>
 

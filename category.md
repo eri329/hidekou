@@ -28,6 +28,8 @@ permalink: /category/
 * **260319 Preppy6月号(5/1) 杂志拍摄**{: .text-grey}
 * **251219 修学旅行最终回先行上映会**
 * **251207 修学旅行快闪店涩谷手渡会**
+* **251023 小简23岁生日五个人一起去吃了烤肉**
+* **250928 小简洸大海李三个人吃饭** 还是烤肉233
 
 ## 直播
 * **251018 修学旅行开播 双人首次直播**
@@ -84,6 +86,7 @@ permalink: /category/
 * **251121 JUNON 1月号**{: .text-red}
 * **251121 月刊TVガイド 1月号**{: .text-red}
 * **251117 Duet LUXE vol.4**{: .text-red}
+* **251109 SEEK 11月号（表紙）** <span>中国杂志 ⇨ [𝕏封面*3](https://x.com/kan_hideyoshi/status/1987477142456955059)</span>{: .text-small}
 * **251104 CINEMA SQUARE vol.156**{: .text-red}
 * **251031 GIANNA PLUS 06（表紙）**{: .text-red}
 * **251030 S Cawaii!特別編集　Pair 尊い二人。**{: .text-red}
@@ -92,11 +95,10 @@ permalink: /category/
 * **251018 TVguide Web采访(web)**{: .text-red}
 * **251016 TVガイドdan vol.57**{: .text-red}
 * **251016 別冊+act. 42号**{: .text-red}
+* **251015 月刊わんこ vol.23（BACK COVER）** <span> ⇨ [𝕏封底](https://x.com/kan_hideyoshi/status/1975865522408632474)｜[𝕏封面](https://x.com/eiga_natalie/status/1975863785341768017)</span>{: .text-small}
 * **251008 TVstation22号** <span>セルフィー ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)</span>{: .text-small}
 * 2025年 JUNON 11月号
-* 2025年 SEEK 11月号（表紙）
-* 2025年 月刊わんこ vol.23（BACK COVER）
-* 2024年 書籍 「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）
+* **241030 書籍 「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）** <span> ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)</span>{: .text-small}
 * 2024年 GIANNA BOYFRIEND #06
 * 2022年 ACTIMAGE Vol.001
 * 2022年 JUNON 11月号

@@ -16,7 +16,7 @@ permalink: /about/
 - 单人物料如果提到对方一定会揪出来收录（笑）
 - 所有平台原链接会尽量收录。
 - 粉色文字是站长的嗑糖记录+碎碎念。
-- 单人资讯收录在[【单人物料】]({{ site.baseurl }}/solo/)中且以狐猪相遇为起点往后整理。如果将来考古会另开页面。
+- 单人资讯收录在[【单人物料】]({{ site.baseurl }}/solo/)中，以2025.7&狐猪相遇为起点往后整理。再往前的资讯和活动置于“考古”版块，仅收录主要的出演活动，并且本站不做备份。
 - 关于事件合并：首页时间线和单人物料都以会合并到事件当日；在[【平铺时间线】]({{ site.baseurl }}/flattened_timeline/)里会同步一份按日期排序的时间线(也可能会稍微合并)
 - 关于投票: 所有投票结果会收录；至于投票开启事件: 明显引导氪金/引流的野榜不收录；modelpress三天两头发起的小投票不收录；大站关于作品的投票会收录；如果狐猪本人关注会收录。
 
@@ -45,7 +45,7 @@ permalink: /about/
 #### 简 秀吉
 * 2002年10月23日生｜京都府出身｜MR8所属
 * 官网/FC：[簡秀吉 Official Site](https://kan-hideyoshi.com/)
-* 事务所官网: [簡秀吉](https://mr8.jp/talent/簡秀吉/)
+* 事务所官网: [MR8-簡秀吉](https://mr8.jp/talent/簡秀吉/)
 * Instagram: [hideyoshi_kan_official](https://www.instagram.com/hideyoshi_kan_official/) 
 * X：[kan_hideyoshi](https://x.com/kan_hideyoshi)
 * 微博：[簡秀吉_1023](https://weibo.com/u/7984735683)
