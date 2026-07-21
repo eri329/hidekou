@@ -111,6 +111,7 @@ permalink: /category/
 * **230301 S Cawaii!MEN特別編集** <span>ニッポンのイケメン</span>{: .text-small}
 * **221228 宇宙船 vol.179** *特摄杂志*{: .text-small}
 * **230114 FQKids 2023年冬号**
+* **230329 TV LIFE 4/14号**
 * **221031 別冊カドカワScene 12**
 * **221014 TVガイドdan vol.45**
 * **221003 宇宙船 vol.178** *特摄杂志*{: .text-small}
