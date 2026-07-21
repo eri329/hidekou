@@ -50,12 +50,14 @@ permalink: /about/
 * X：[kan_hideyoshi](https://x.com/kan_hideyoshi)
 * 微博：[簡秀吉_1023](https://weibo.com/u/7984735683)
 * 小红书：[簡秀吉:KanHideyoshi](https://www.xiaohongshu.com/user/profile/69235e180000000037032068)
+* Wiki：[簡秀吉](https://ja.wikipedia.org/wiki/%E7%B0%A1%E7%A7%80%E5%90%89)
 
 #### 藤本 洸大
 * 2005年10月6日生｜兵庫県出身｜TopCoat所属
 * Instagram: [kodai_fujimoto_official](https://www.instagram.com/kodai_fujimoto_official)
 * TopCoat/FC: [藤本洸大](https://sp.tcland.jp/kodai_fujimoto)
 * TopCoat: [Kodai Schedule](https://topcoat.co.jp/kodai_fujimoto/contents/schedule)
+* Wiki：[藤本洸大](https://ja.wikipedia.org/wiki/%E8%97%A4%E6%9C%AC%E6%B4%B8%E5%A4%A7)
 
 <!-- This is the base Jekyll theme. You can find out more info about customizing your Jekyll theme, as well as basic Jekyll usage documentation at [jekyllrb.com](https://jekyllrb.com/)
 

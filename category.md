@@ -12,7 +12,7 @@ permalink: /category/
 建设中...
 
 
-## 线下活动
+## 双人线下活动
 * **260606 修学旅行韩国见面会** 2场
 * **260418 修学旅行台湾见面会** 3场
 * **260329 修学旅行公式书大阪手渡会**
@@ -25,14 +25,19 @@ permalink: /category/
 * **260417~260419 修学旅行台湾见面会**
 * **260329 修学旅行公式书大阪手渡会**
 * **260322 修学旅行公式书东京手渡会**
-* **260319 Preppy6月号(5/1) 杂志拍摄**{: .text-grey}
+* **260319 Preppy6月号(5/1) 杂志拍摄**{: .text-grey} *推测/快拍*{: .text-small}
 * **251219 修学旅行最终回先行上映会**
 * **251207 修学旅行快闪店涩谷手渡会**
+* **251120 简洸拍摄修学旅行公式书💗** *推测/SNS发布日*{: .text-small}
 * **251023 小简23岁生日五个人一起去吃了烤肉**
-* **250928 小简洸大海李三个人吃饭** 还是烤肉233
+* **250928 小简洸大海李三个人吃饭** 还是烤肉233 *SNS发布日*{: .text-small}
+* **250916 大量双人采访/修仲取材日**{: .text-grey} *推测/古着店相关采访内容*{: .text-small} 疑似这些物料的取材日 ⇨ [𝓲简(9/18)](https://www.instagram.com/p/DOvXsf6AUAe/)｜
+    > 小简在采访里说“昨天我又去了那家古着店”, 到9/18晚发ins提及“前些天的修仲取材”，推测取材日在9/16~9/17期间。
+    > 所有提及“昨天去了古着店”的杂志&采访:
+* **250914 狐猪古着店约会** *SNS发布日*{: .text-small}
 
-## 直播
-* **251018 修学旅行开播 双人首次直播**
+## 双人直播
+* **251018 修学旅行开播 双人首次直播** <span>⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)</span>{: .text-small}
 
 ## 双人杂志/采访
 * **260607 Emo!miu采访（web）**<span>Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
@@ -51,13 +56,13 @@ permalink: /category/
 * **251023 月刊 TV navi 12月号** <span> ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)</span>{: .text-small}
 * **251020 Seventeen采访(web)** <span>应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)</span>{: .text-small}
 * **251018 TVguide Web采访(web)** <span>应募拍立得｜全用的截图 ⇨ [「修学旅行で仲良くないグループに入りました」藤本洸大＆簡秀吉が“青春”な撮影裏話を告白](https://www.tvguide.or.jp/feature/feature-4071895/)</span>{: .text-small}
-* **251016 TVガイドdan vol.57** <span> ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)s</span>{: .text-small}
+* **251016 TVガイドdan vol.57** <span> ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)</span>{: .text-small}
 * **251016 別冊+act. 42号** <span> ⇨ </span>{: .text-small}
 
 ## 杂志/采访/书籍(简 秀吉)
 {: #kan-magazine .text-solo}
 
-情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)
+情报出处: [MR8官网](https://mr8.jp/talent/%E7%B0%A1%E7%A7%80%E5%90%89/)/小简SNS/[Talent Casting](https://talent-casting.jp/talents/2068)
 <span>格式: 栏目名｜妆造/主题｜页数 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
@@ -97,11 +102,23 @@ permalink: /category/
 * **251016 別冊+act. 42号**{: .text-red}
 * **251015 月刊わんこ vol.23（BACK COVER）** <span> ⇨ [𝕏封底](https://x.com/kan_hideyoshi/status/1975865522408632474)｜[𝕏封面](https://x.com/eiga_natalie/status/1975863785341768017)</span>{: .text-small}
 * **251008 TVstation22号** <span>セルフィー ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)</span>{: .text-small}
-* 2025年 JUNON 11月号
-* **241030 書籍 「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）** <span> ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)</span>{: .text-small}
-* 2024年 GIANNA BOYFRIEND #06
-* 2022年 ACTIMAGE Vol.001
-* 2022年 JUNON 11月号
+* **250922 JUNON 11月号** <span>全网找不到相关资料，怀疑官网写错了 ⇨ [封面目录](https://www.junon-tv.jp/articles/3941)</span>{: .text-small}
+* **241030 書籍「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）** <span> ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)</span>{: .text-small}
+* **241029 GIANNA BOYFRIEND #06**
+* **240401 宇宙船 vol.184** *特摄杂志*{: .text-small}
+* **231228 宇宙船 vol.183** *特摄杂志*{: .text-small}
+* **230421 TVガイドdan vol.47**
+* **230301 S Cawaii!MEN特別編集** <span>ニッポンのイケメン</span>{: .text-small}
+* **221228 宇宙船 vol.179** *特摄杂志*{: .text-small}
+* **230114 FQKids 2023年冬号**
+* **221031 別冊カドカワScene 12**
+* **221014 TVガイドdan vol.45**
+* **221003 宇宙船 vol.178** *特摄杂志*{: .text-small}
+* **220928 ACTIMAGE Vol.1**
+* **220921 JUNON 11月号** <span>俳優人生の“ハイライト”始まる。 ⇨ [封面目录](https://www.junon-tv.jp/articles/1149)</span>{: .text-small}
+* **220909 アニメージュ 10月号**
+* **220909 宝島社MonoMax 10月号**
+* **220824 月刊TVガイド 10月号**
 
 ## 杂志/采访/书籍(藤本 洸大)
 {: #kou-magazine .text-solo-k}
