@@ -39,7 +39,7 @@ permalink: /category/
 ## 双人直播
 * **251018 修学旅行开播 双人首次直播** <span>⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)</span>{: .text-small}
 
-## 双人杂志/采访
+## 双人杂志/采访 *[双人杂中译合集(微博)](https://m.weibo.cn/status/5240466527748415)*{: .text-small}
 * **260607 Emo!miu采访（web）**<span>Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260501 Preppy 6月号（双人封面）**<span>The Rising Star｜3 look｜20p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2038919236148396458)｜[📕内页(偏差值)](http://xhslink.com/o/8x23da3XYsM)｜[联动采访](https://preppyweb.com/article/26576)</span>{: .text-small}
 * **260420 Retro 双人特刊** <span> ⇨ [📕3版封面+特典set](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)</span>{: .text-small}
@@ -53,7 +53,7 @@ permalink: /category/
 * **251031 GIANNA PLUS 06（双人封面封底）** <span>白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271)</span>{: .text-small}
 * **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> 関西弁の二人の自然な会話。｜格子衬衫/套头衫｜7p ⇨ [𝕏封面](https://x.com/mag_scawaii/status/1978400528234389517)｜[📕内页(雨夜)](http://xhslink.com/o/50XpcAIDbSO)</span>{: .text-small}
 * **251025 Emo!miu采访（web）**<span>应募拍立得｜修仲校服｜21p ⇨[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
-* **251023 月刊 TV navi 12月号** <span> ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)</span>{: .text-small}
+* **251023 月刊 TV navi 12月号** <span>修仲校服｜2p ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)｜[📕内页(雨夜)](http://xhslink.com/o/4TTPsTEDoYE)</span>{: .text-small}
 * **251020 Seventeen采访(web)** <span>应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)</span>{: .text-small}
 * **251018 TVguide Web采访(web)** <span>应募拍立得｜全用的截图 ⇨ [「修学旅行で仲良くないグループに入りました」藤本洸大＆簡秀吉が“青春”な撮影裏話を告白](https://www.tvguide.or.jp/feature/feature-4071895/)</span>{: .text-small}
 * **251016 TVガイドdan vol.57** <span> ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)</span>{: .text-small}
@@ -172,6 +172,7 @@ permalink: /category/
 * **260117 Blaze 1月号（初単独表紙）** <span> ⇨ </span>{: .text-small}
 
 ---
+<!-- <span> ⇨ </span>{: .text-small} -->
 * **251222 JUNON 2月号**
 * **251121 JUNON 1月号**{: .text-red}
 * **251121 月刊TVガイド 1月号**{: .text-red}
@@ -204,3 +205,6 @@ permalink: /category/
 * TVガイド web(web)
 * ちょいミー(動画配信)
 * **240722 JUNON**
+* **231205 週刊女性 12/19号** <span> ⇨ </span>{: .text-small}
+* **230722 JUNON 9月号** <span>ただ今自己分析中！⇨ [封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2023%E5%B9%B49%E6%9C%88%E5%8F%B7/)</span>{: .text-small}
+* **230105 週刊女性 1/17・24号** <span>勉強もスポーツもバッチリな完璧男子／第35回ジュノン・スーパーボーイ ⇨ [封面目录](https://www.shufu.co.jp/magazine/jprime/backnumber/%E9%80%B1%E5%88%8A%E5%A5%B3%E6%80%A7-2023%E5%B9%B4-1-24%E5%8F%B7/)</span>{: .text-small}
