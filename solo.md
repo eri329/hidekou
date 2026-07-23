@@ -687,6 +687,31 @@ permalink: /solo/
 ---
 * **251123 第38回JUNON SUPER BOY CONTEST最终选考会出演** @東京・TFTホール1000 ⇨ [新闻(11/2)](https://www.junon-tv.jp/articles/4033) repo说洸大曾经整整一年都没有试镜成功
 
+* **251012【直播】洸大ins直播** ⇨ [𝓲洸](https://www.instagram.com/p/DPtdQiZgfpg/) 今天也在拍修仲~
+
+---
+* **250919 大西利空×藤本洸大 縦型動画第二弾**
+    > **250919 第一話「出会編」** ⇨ [𝓲洸](https://www.instagram.com/p/DOyAXJegZc1/)
+    > **250926 第二話「開花編」** ⇨ [𝓲洸](https://www.instagram.com/p/DOyAXJegZc1/)
+    > **251003 第二シリーズ第一話「衝突編」** ⇨ [𝓲洸](https://www.instagram.com/p/DPWPkn8gb76/)
+    > **251010 第二シリーズ第二話「共鳴編」** ⇨ [𝓲洸](https://www.instagram.com/p/DPoIG4zga_v/)
+* **250905【直播】NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k} 主题「生まれ変わるならなんの動物になりたい？」⇨ [𝓲洸](https://www.instagram.com/p/DOOEOdbgW_R/)
+---
+* **250817【SNS】洸大发ins去看了GRe4N BOYZ的live** イマーシブライブシアター2025『“The XY” 〜明日、今日よりも〜』⇨ [𝓲洸](https://www.instagram.com/p/DNdOkpVJfFY/) 似乎是洸大看的第一场live！原来这个组合就是以前的GReeeeN，2024年后改名了
+* **250812【SNS】洸大ins发日常照** ⇨ [𝓲洸](https://www.instagram.com/p/DNQRHampAKV/)
+* **250805【直播】洸大ins直播**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DM-XciWpYC2/) 太帅了!!情报解禁3天前呢~
+
+---
+* **250731 舞台「それってキセキ」演出** 主演・navi役 7/31~8/4 @シアター1010 洸大第一个舞台剧!这个舞台剧是根据纪实小说改编的关于GRe4N BOYZ的故事。
+    > **250509 情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DJbxW1rJcWw/)
+    > **250520 FC先行购票开始** ⇨ [𝓲洸](https://www.instagram.com/p/DJ3vvhppGq7/)
+    > **250614 造型解禁+一般购票开始** 戴眼镜的宝宝! ⇨ [𝓲洸](https://www.instagram.com/p/DK3gnSxJQoA/) 里面有日程详情，8/1~8/3每天两场
+    > **250618 offshot** ⇨ [𝓲洸](https://www.instagram.com/p/DLCul6IpP69/)
+    > **250713 洸大ins宣传** ⇨ [𝓲洸](https://www.instagram.com/p/DMDEK4uJWVo/)
+    > **250804 舞台剧千秋楽(落幕)**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DM718pdJr3K/)
+* **250724【SNS】洸大发ins前些天某个作品杀青了~** ⇨ [𝓲洸](https://www.instagram.com/p/DMfWKAhJw_O/)
+* **250707【SNS】洸大发ins自拍**「いくつに見えますか #次の作品に入ってます」⇨ [𝓲洸](https://www.instagram.com/p/DLzlDY1J3Dh/)
+
 
 ### 考古
 {: #kou-past}
@@ -698,7 +723,6 @@ permalink: /solo/
 * **260207 电视剧「CUT．編集された世界」开播** 田中健太役 @テレビ朝日
 * **251018 电视剧「修学旅行で仲良くないグループに入りました」开播** 主演・日置朝陽役（簡秀吉とダブル主演）@朝日放送テレビ
 * **250912 综艺「あざとくて何が悪いの？」番組内ミニドラマ出演** ケイスケ役/ユウタ役 @テレビ朝日
-* **250731 舞台「それってキセキ」演出** 主演・navi役 7/31~8/4 @シアター1010 
 
 * **250627 电影「劇場版 スメルズ ライク グリーン スピリット」上映** 夢野太郎役
     > **250526 完成披露イベント**

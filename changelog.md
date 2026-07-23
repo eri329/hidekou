@@ -55,6 +55,8 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO: https://www.instagram.com/dramal_abc/reposts/;简秀吉ins;洸大ins 基本上就完成大头了!!!接下来的一些计划:修仲图全记录计划 -->
 
+[ 2026-07-22 ] 补档洸大ins至2025年10月18日
+
 [ 2026-07-21 ] 补档洸大ins至2025年6月末
 
 [ 2026-07-20 ] 补档小简ins至2025年7月 完成!; 一口气把小简的ins和X全翻完了基本完成了简秀吉“考古”版块!
