@@ -371,6 +371,7 @@ permalink: /solo/
 * **220318 电影「あしたのわたしへ 私の卒業-第3期-」上映** 藤倉将人役
     > **220319 舞台挨拶**
 * **220101 小简第二条ins**
+
 ---
 * **210101 小简第一条ins**
 
@@ -704,7 +705,8 @@ permalink: /solo/
     > **251003 第二シリーズ第一話「衝突編」** ⇨ [𝓲洸](https://www.instagram.com/p/DPWPkn8gb76/)
     > **251010 第二シリーズ第二話「共鳴編」** ⇨ [𝓲洸](https://www.instagram.com/p/DPoIG4zga_v/)
 * **250911 综艺「あざとくて何が悪いの？」番組内ミニドラマ VTR出演** 24:45~ ケイスケ役/ユウタ役 @テレビ朝日
-* **250905【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k} 主题「生まれ変わるならなんの動物になりたい？」⇨ [𝓲洸](https://www.instagram.com/p/DOOEOdbgW_R/)
+* **250905【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信** 主题「生まれ変わるならなんの動物になりたい？」⇨ [𝓲洸](https://www.instagram.com/p/DOOEOdbgW_R/)
+
 ---
 * **250817【SNS】洸大发ins去看了GRe4N BOYZ的live** イマーシブライブシアター2025『“The XY” 〜明日、今日よりも〜』⇨ [𝓲洸](https://www.instagram.com/p/DNdOkpVJfFY/) 似乎是洸大看的第一场live！原来这个组合就是以前的GReeeeN，2024年后改名了
 * **250812【SNS】洸大ins发日常照** ⇨ [𝓲洸](https://www.instagram.com/p/DNQRHampAKV/)
