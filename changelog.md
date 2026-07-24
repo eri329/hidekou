@@ -7,7 +7,7 @@ layout: page
 * 没找到推しに出会えるABC 修仲VTR原档(有b站中字档)
 
 #### 资讯来源(站长自用)
-* 修仲官方X，修仲官方ins，简秀吉X，简秀吉ins，MR8官网, 藤本洸大ins，TC(schedule,刊载情报,出演情报)
+* 修仲官方X，修仲官方ins，简秀吉X，简秀吉ins，MR8官网, 藤本洸大ins，TC(schedule-刊载情报,出演情报)
     > 搜索X语句 `from:dramal_abc since:2025-10-18 until:2025-10-19` + 切换到Latest tab
 * 简秀吉小红书，简秀吉微博
 * 简洸ins其他部分: reels, repost
@@ -22,7 +22,7 @@ layout: page
 
 #### 建设中...
 
-*目前时间线暂时没有整理的部分包括: 官方Tiktok, 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简小红书, 小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*{: .text-small}
+*目前时间线暂时没有整理的部分包括: 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*{: .text-small}
 
 <!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
@@ -54,6 +54,10 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 <!-- 251106 双人采访 https://tvnavi.info/2025110604p/ -->
 
 <!-- TODO: https://www.instagram.com/dramal_abc/reposts/;简秀吉ins;洸大ins 基本上就完成大头了!!!接下来的一些计划:修仲图全记录计划 -->
+
+<!-- TODO next: 查漏补缺：WIKI/翻修仲快拍/爬豆瓣楼/ins其他版块/几个修仲直播？/杂志官号/亲妈X -->
+
+[ 2026-07-23 ] 补档洸大ins完成!; 存档迄今为止秀洸互给对方点过赞的ins; TC schedule补完; 增加修仲Highlight link，增加秀洸Wiki link
 
 [ 2026-07-22 ] 补档洸大ins至2025年10月18日
 

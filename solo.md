@@ -426,9 +426,9 @@ permalink: /solo/
     > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
     > **260709 洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/Dakb3D8SB3p)
     > **260718 洸大ins发拍摄花絮照** ⇨ [𝓲洸](https://www.instagram.com/p/Da7z8a8FN5w/) 完全是另一种风味呢~
-* **260707 电视剧「クロスロード 〜救命救急の約束〜」开播**{: .text-red} 真島裕人役(ゲスト出演) 7月7日(火)21:00~ 初回拡大スペシャル
+* **260707 电视剧「クロスロード 〜救命救急の約束〜」开播**{: .text-red} 真島裕人役(ゲスト出演) 7月7日(火)21:00~ 初回拡大スペシャル @テレビ朝日
     > [📕cut(喵)](http://xhslink.com/o/5aMjwhTT2cS)/[📕中字cut(bala)](http://xhslink.com/o/8SQuWP5mp5v)
-    > **260612 ゲスト出演情报解禁**
+    > **260612 ゲスト出演情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DZfBpF_pw0w/)
     > **260623 第1话预告** 7月7日(火)21:00~ 初回拡大スペシャル ⇨ [𝕏](https://x.com/crossroad_ex/status/2069344871505109276)｜[ins](https://www.instagram.com/reel/DZ7C8MDAcIV/)
     > **260628 长预告解禁** ⇨ [ins](https://www.instagram.com/reel/DaH67VME1Ws/)
     > **260707 剧照预告** ⇨ [𝕏](https://x.com/TVGweb/status/2074237198656782520)/[ins](https://www.instagram.com/p/DadzrsBFEFm) ins图要大一些
@@ -436,7 +436,7 @@ permalink: /solo/
     > **260713 洸大offshot** ⇨ [𝕏](https://x.com/crossroad_ex/status/2076592548613665274)/[ins](https://www.instagram.com/p/DaujAHKIAP5)
 * **260705 Mantan Web采访** ⇨ [藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)
 * ***260628~260705** 在这期间的某一天洸大去看了TC同事的舞台剧《オーファンズ》 ⇨ [舞台剧主页](https://orphans2026.com/)
-* **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 手島光太郎役 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/) *8/10话登场*{: .text-small}
+* **260703 电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」开播** 7/3（金）24:12〜 手島光太郎役 @テレビ東京 ⇨ [官网](https://www.tv-tokyo.co.jp/junjiito_strange/) *8/10话登场*{: .text-small}
     > **260626 出演情报解禁** 第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。
     > 第8話/第10話 8/22・9/5〈予定〉@テレビ東京; 8/31・9/14〈予定〉@BSテレビ東京
@@ -510,11 +510,11 @@ permalink: /solo/
     > **260507 洸大ins发拍摄花絮照** ⇨ [𝓲洸](https://www.instagram.com/p/DYCS6G2lF2L/)
     > **260521 官方ins发图** ⇨ [ins](https://www.instagram.com/p/DYmN6gXEgvU/)
 * **260420 25:00~ CX电视剧「share」播出** 坂谷和哉役 @フジテレビ ⇨ [𝓲洸(3/24)](https://www.instagram.com/p/DWRKHTMFG0q/)｜[官网](https://www.nbcuni.co.jp/jcon/share/)
-    > **260327 加藤导演对洸大的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)
-    > **260407 赤城神社祈願+记者见面会**
-    > [𝓲洸](https://www.instagram.com/p/DW1QzKolPOc/)｜[𝕏](https://x.com/drama_share_tv/status/2041712653899571301)｜[🆈マイナビニュース活动报道](https://www.youtube.com/watch?v=2XZyxoRuqcU)(洸大片段1:55~, 6:44~, 10:50, 13:50~, 14:30~)｜[🆈另外一个](https://www.youtube.com/watch?v=GJDOH-1s2Us)(00:37~, 3:27~, 4:17~提到在给共演过的人做衣服, 8:40~)｜[𝕏照片](https://x.com/mn_enta/status/2041418260034502856)｜[𝕏照片](https://x.com/oricon/status/2041405140465598523)｜[𝕏照片](https://x.com/modelpress/status/2041397825729396994)｜[𝕏活动入场-超萌洸大](https://x.com/drama_share_tv/status/2041420106513940822)｜[𝓲照片](https://www.instagram.com/p/DW3WfJakn27/)
-    > **260325 角色解禁** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036639226549473296)
     > **260324 预告** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036186240224206939)
+    > **260325 角色解禁** ⇨ [𝕏](https://x.com/drama_share_tv/status/2036639226549473296)
+    > **260327 加藤导演对洸大的评价** ⇨ [𝕏](https://x.com/aya_kato1017/status/2037425126661374406)
+    > **260407 赤城神社hit祈願+记者见面会**
+    > [𝓲洸](https://www.instagram.com/p/DW1QzKolPOc/) 透露大概半年前开始拍的，大概就是接在修仲后面进的组｜[𝕏](https://x.com/drama_share_tv/status/2041712653899571301)｜[🆈マイナビニュース活动报道](https://www.youtube.com/watch?v=2XZyxoRuqcU)(洸大片段1:55~, 6:44~, 10:50, 13:50~, 14:30~)｜[🆈另外一个](https://www.youtube.com/watch?v=GJDOH-1s2Us)(00:37~, 3:27~, 4:17~提到在给共演过的人做衣服, 8:40~)｜[𝕏照片](https://x.com/mn_enta/status/2041418260034502856)｜[𝕏照片](https://x.com/oricon/status/2041405140465598523)｜[𝕏照片](https://x.com/modelpress/status/2041397825729396994)｜[𝕏活动入场-超萌洸大](https://x.com/drama_share_tv/status/2041420106513940822)｜[𝓲照片](https://www.instagram.com/p/DW3WfJakn27/)
     > **260413 开机小片段** ⇨ [ins](https://www.instagram.com/p/DXEOg-pjcjV/)
     > **260415 放送5日前口播** ⇨ [ins](https://www.instagram.com/p/DXJYD3clO9B/)
     > **260507 offshot** 比耶~ ⇨ [𝕏](https://x.com/drama_share_tv/status/2052342696413659417)/[ins](https://www.instagram.com/p/DYCPRcJk2Kw/)
@@ -538,24 +538,26 @@ permalink: /solo/
     > **260414 洸大第1话切片** ⇨ [𝕏](https://x.com/abc_drama_error/status/2043977564067180956)/[ins](https://www.instagram.com/p/DXGzdQyk6Zc/)
     > **260516 洸大切鸡切片** ⇨ [𝕏](https://x.com/abc_drama_error/status/2055483386316153211)/[ins](https://www.instagram.com/p/DYYjoaxFF38/)
     > **260523 第7话洸大切片** ⇨ [𝕏](https://x.com/abc_drama_error/status/2058020098271809984)/[ins](https://www.instagram.com/p/DYqlKSTkxNd/)
-    > **260527 第7话+杀青照** ⇨ [𝓲洸](https://www.instagram.com/p/DYuNET4FEvb/)
-* **260409【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DW6P-rNlJA8/)
+    > **260524 第7话+杀青照** ⇨ [𝓲洸](https://www.instagram.com/p/DYuNET4FEvb/)
+* **260409【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}「おくりものはどこから送られてきた？」⇨ [𝓲洸](https://www.instagram.com/p/DW6P-rNlJA8/)
 
 ---
 * **260330 RALPH LAUREN 表参道店 20周年纪念活动** ⇨ [𝓲洸](https://www.instagram.com/p/DWgsy6-lBfE) 好漂亮的小男孩!!(晕倒)
 * **260324 fashionsnap 采访** ⇨ [彼が思う美意識について。vol.5](https://www.fashionsnap.com/special/sense-of-beauty-05/)
-* **260321 大西利空×藤本洸大 TopCoat Land限定活动** ⇨ [𝓲洸(2/20)](https://www.instagram.com/p/DU-cB_OktuO/)｜[𝓲洸-跳舞小视频(2/22)](https://www.instagram.com/p/DWLkwOPCThP/)
+* **260321 大西利空×藤本洸大 TopCoat Land限定活动** 開演13:00/開演15:00
+    > **260220 告知** ⇨ [𝓲洸](https://www.instagram.com/p/DU-cB_OktuO/)
+    > **260322 双人跳舞小视频** ⇨ [𝓲洸](https://www.instagram.com/p/DWLkwOPCThP/) 只看到一个狂玩抽象的洸大……
     > 洸大穿了Retro里的小香风王子外套(肯定是我们投票选出来的对吧!)
-* **260319【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}
+* **260319【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}「幻の魚が迷い込んだのはどこ？」
     > [𝓲洸-回顾+咖啡厅活动告知](https://www.instagram.com/p/DWEMJkxFOhV/) 有很萌的黑衣兔兔洸大和他的炸鸡块
 * **260317《S Cawaii!》5月号(3/17) 杂志发售** ⇨ [𝓲洸](https://www.instagram.com/p/DV-9MwvlCpb/)/[𝕏(3/18)](https://x.com/mag_scawaii/status/2034223292773810418)/[ins(3/18)](https://www.instagram.com/p/DWBgWG6Cazm/) 很萌的毛茸茸猪
     > **260220 登场情报解禁** ⇨ [𝕏](https://x.com/mag_scawaii/status/2024757003177119788)
     > **260311 特典贴纸** ⇨ [𝕏](https://x.com/mag_scawaii/status/2031641931152007436)
     > **260313 宣传视频**  ⇨ [𝕏](https://x.com/mag_scawaii/status/2032411353298719226)/[ins](https://www.instagram.com/reels/DV0plkliWH_/)
     > **260322 洸大应募拍立得** ⇨ [𝕏](https://x.com/mag_scawaii/status/2035657742065508631)
-* **260316｜260320 AI短剧「びっくりあいらんど」出演**
+* **260316/260320 AI短剧「びっくりあいらんど」出演**
     > 3月16日（月）配信「好きぴに気に入られたい三人」篇 ⇨ [𝓲短剧](https://www.instagram.com/reel/DV7ecx1kyvV/)
-    > 3月20日（祝・金）配信「三人組ってむずかしくない？」篇 ⇨[𝓲短剧](https://www.instagram.com/reel/DWFxo9FhMP4/)
+    > 3月20日（祝・金）配信「三人組ってむずかしくない？」篇 ⇨ [𝓲短剧](https://www.instagram.com/reel/DWFxo9FhMP4/)
     > TikTok [@z_drama_ntv](https://www.tiktok.com/@z_drama_ntv)/Instagram [＠z_drama_ntv](https://www.instagram.com/z_drama_ntv/)/X [@z_drama_ntv](https://x.com/z_drama_ntv)
     > [𝓲洸-短剧造型自拍](https://www.instagram.com/p/DV8gI-cFGqf/)
 * **260314【直播】21:00~ NATSLIVE「藤本洸大＆桜木雅哉ホワイトデーSP」配信**{: .text-red} ⇨ [𝓲洸-眼镜洸大](https://www.instagram.com/p/DV3eoDJFNjj/)
@@ -564,17 +566,19 @@ permalink: /solo/
 * **260309《FINEBOYS》4月号(3/9) 登场&杂志发售** ⇨ [ins宣传视频(3/10)](https://www.instagram.com/reel/DVs5MzUEd3A/)｜[𝕏封面](https://x.com/hinode_pub/status/2029157408627429421)
     > **260401 特典亲签拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2038994738989375816)/[ins(3/31)](https://www.instagram.com/p/DWi96cREqWf/)
     > **260403 拍摄后采** ⇨ [ins](https://www.instagram.com/reel/DWqelsChh_S/) 喜欢吃的寿司种类是虾🍤，回到老家会想吃妈妈做的土豆炖肉和蛋包饭。
-* **260302 浅草寺抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DVYaIroFN1G/) 粉粉的nike小包出现了~
+* **260302 浅草寺抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DVYaIroFN1G/) 粉粉的nike小包出现了~「浅草寺で吉！✨」
 
 ---
-* **260228《Men's Preppy》4月号(2/28)杂志发售+照片展(2/28-3/1)** ⇨ [𝕏照片展情报(2/28)](https://x.com/MensPREPPY/status/2027575734475047011)｜[𝕏照片展情报(3/1)](https://x.com/MensPREPPY/status/2027881506861895943)｜[𝕏照片展宣传(图)(2/27)](https://x.com/MensPREPPY/status/2027330370614518041)｜[𝕏-heritage特典照(2/26)](https://x.com/MensPREPPY/status/2026854744182964407)
+* **260228《Men's Preppy》4月号(2/28)杂志发售+照片展(2/28~3/1)** ⇨ [𝕏照片展情报(2/28)](https://x.com/MensPREPPY/status/2027575734475047011)｜[𝕏照片展情报(3/1)](https://x.com/MensPREPPY/status/2027881506861895943)｜[𝕏照片展宣传(图)(2/27)](https://x.com/MensPREPPY/status/2027330370614518041)｜[𝕏-heritage特典照(2/26)](https://x.com/MensPREPPY/status/2026854744182964407)
     > **260128 登场情报解禁+宣传视频1** 6P ⇨ [𝕏](https://x.com/MensPREPPY/status/2016353038248902658)｜[𝕏宣传视频1](https://x.com/MensPREPPY/status/2016451186673467800)
     > **260202 宣传视频2** ⇨ [𝕏](https://x.com/MensPREPPY/status/2018263129063362807)
     > **260206 特典情报** ⇨ [𝕏Amazon](https://x.com/MensPREPPY/status/2019688765145657362)｜[𝕏heritage](https://x.com/MensPREPPY/status/2019688513399333225)
-    > **260214 拍摄花絮+照片展告知** ⇨ [𝓲洸-拍摄花絮](https://www.instagram.com/p/DUvNG3fiWaM/)｜[𝕏照片展定档(图)](https://x.com/MensPREPPY/status/2022506085379125313)｜[𝕏照片展宣传(图)(2/20)](https://x.com/MensPREPPY/status/2024680411490840824)
+    > **260214 拍摄花絮+照片展告知** ⇨ [𝓲洸-拍摄花絮](https://www.instagram.com/p/DUvNG3fiWaM/)｜[𝕏照片展定档(图)](https://x.com/MensPREPPY/status/2022506085379125313)｜[𝕏照片展宣传(图)(2/20)](https://x.com/MensPREPPY/status/2024680411490840824) 「藤本洸大 さんミニ写真展」2/28~3/1；会場限定ステッカー（全4種）をランダムで1種プレゼント；现场买杂志再赠送1️⃣もう1種会場限定ステッカープレゼント 2️⃣ヘリテージブックストア限定予約特典……这个展特典好丰富!
+　B5ビジュアルカード1枚プレゼント
     > **260330 抽选特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2038451147397017671)
 * **260228【直播】ins直播 GREEN SPOON吃播** ⇨ [𝓲洸](https://www.instagram.com/p/DVTXkltiRFe/)
-* **260227 电视剧「時計館の殺人」出演** 渡辺涼介役 @Hulu
+* **260227 电视剧「時計館の殺人」播出** 渡辺涼介役 @Hulu
+    > **251222 出演解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DSkOpxPFFXR/)
     > **260227 1-6话配信**
     > **260320 7-8话配信**
 * **260220《JUNON》4月5月合并号(2/20)杂志发售** ⇨ [封面目录](https://www.junon-tv.jp/articles/4215) 给洸大安排的是「藤本洸大 × あざと顔」栏目😇
@@ -610,19 +614,19 @@ permalink: /solo/
     > **260228 图透** ⇨ [𝕏](https://x.com/trendicon_info/status/2027670108848722145)/[ins](https://www.instagram.com/p/DVTQIxlgevn/)
 * **260214 web采访 推し楽**{: .text-red} ⇨ [「すべてが今の自分につながる」藤本洸大のまっすぐな歩みと、飾らない素顔](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
     > 很有内容的一个采访，对洸大最近演的剧(修仲, 钟表馆, CUT)都问了很多问题
-* **260207 24:40~EX ドラドラ大作戦「CUT.编辑された世界出演** 田中健太役 ⇨ [𝕏角色介绍](https://x.com/dramadaisakusen/status/2019606985600090490)
+* **260207 电视剧 ドラドラ大作戦「CUT．編集された世界」开播** 24:40~ 田中健太役 @テレビ朝日 ⇨ [𝕏角色介绍](https://x.com/dramadaisakusen/status/2019606985600090490)
+
 * **260206 BOYS meets logirl#064 登场** 以拍摄为主的网络特辑  ⇨ [图](https://tvablog.tv-asahi.co.jp/reading/logirl/14572/)
 
 ---
 * **260129 TC服装改造番外篇告知** 2/14~ ⇨ [𝕏](https://x.com/topcoat_staff/status/2016813571804713343)
-* **260125【直播】ins直播 羽毛球社直播** ⇨ [𝓲洸](https://www.instagram.com/p/DT74Ro1iYmm/)
 * **260123 电影「終点のあの子」公开** 大学友人役 ⇨ [官网](https://endof-theline.com/)
     > **251220 制片人(?)评价** ⇨ [𝕏](https://x.com/GLASGOW15_JP/status/2002215321755927030)
 * **260123 STORY Web采访+应募拍立得**{: .text-red} ⇨ [前篇](https://storyweb.jp/lifestyle/680244/)｜[后篇](https://storyweb.jp/lifestyle/680232/)｜[特別cut集](https://storyweb.jp/lifestyle/680307/) 前篇都在讲小简和修仲，这套造型实在太好看了……
 * **260122 成人式** ⇨ [𝓲洸](https://www.instagram.com/p/DT0CKbZlHwx/)
 * **260117《Blaze》1月号 有你在的天气(1/17)杂志预售**{: .text-red} 首次单独杂志封面！
     > [ABC版(已删除)](https://www.blaze-magazine.com/pd.jsp?id=76), [D版(已删除)](https://www.blaze-magazine.com/pd.jsp?id=61)
-    > **260110** [𝓲洸](https://www.instagram.com/p/DTVOYGBlD8P/)｜[𝕏预告(绿)](https://x.com/blazeprojectmag/status/2009944566502395972)/[ins](https://www.instagram.com/p/DTU-Vsik70Z/)｜[𝕏预告(白)(1/11)](https://x.com/blazeprojectmag/status/2010305674157408418)/[ins](https://www.instagram.com/p/DTXjI85k6bI/)｜[𝕏预告(黑)(1/12)](https://x.com/blazeprojectmag/status/2010669526090993749)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DTaLXWaE69B/) X的图竟然比小红书更大…
+    > **260110** [𝓲洸](https://www.instagram.com/p/DTVOYGBlD8P/)发的中文!「小猪🙌」｜[𝕏预告(绿)](https://x.com/blazeprojectmag/status/2009944566502395972)/[ins](https://www.instagram.com/p/DTU-Vsik70Z/)｜[𝕏预告(白)(1/11)](https://x.com/blazeprojectmag/status/2010305674157408418)/[ins](https://www.instagram.com/p/DTXjI85k6bI/)｜[𝕏预告(黑)(1/12)](https://x.com/blazeprojectmag/status/2010669526090993749)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DTaLXWaE69B/) X的图竟然比小红书更大…
     > **260113** [📕预告(绿)](https://www.xiaohongshu.com/discovery/item/69623193000000000a03ce3c?source=webshare&xhsshare=pc_web&xsec_token=ABwyUBJR2Pwjds4NOBjJeJ5X17kXoKfSXxM-dFJAD7jA4=&xsec_source=pc_share)｜[📕预告(白)](https://www.xiaohongshu.com/discovery/item/696382be000000000a0317ce?source=webshare&xhsshare=pc_web&xsec_token=AB8k91-_ljmjdnreJIeAmeveQbOJpHOJIMXCfVITN57vE=&xsec_source=pc_share)｜[📕预告(黑)](https://www.xiaohongshu.com/discovery/item/6964d7a6000000000a0291c3?source=webshare&xhsshare=pc_web&xsec_token=ABUTdAYVHu66NttHICUz4vMYkU0d4xNhQZOHI80_-ackk=&xsec_source=pc_share)｜[📕签名画拍立得+文字花絮](https://www.xiaohongshu.com/discovery/item/696626df000000000a02abe1?source=webshare&xhsshare=pc_web&xsec_token=ABDhdCZqnAbUmlXSAhw0Y4u1SYW551GR7grJxjpoecJHk=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2011034381981499721)/[ins](https://www.instagram.com/p/DTcujfhkwU6/)
     > **260114** [📕拍摄花絮(白)](https://www.xiaohongshu.com/discovery/item/696772ba000000000a028957?source=webshare&xhsshare=pc_web&xsec_token=ABQ67CzZdhWDWeZNV9tMYISq1dOVl04aVT4e9yxR0iSnE=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2011392837385109628)/[ins](https://www.instagram.com/p/DTfRee6E6UI/) 我们中国的物料各个都好绝…
     > **260115** [📕照片(绿)](https://www.xiaohongshu.com/discovery/item/6968c8b1000000000b008367?source=webshare&xhsshare=pc_web&xsec_token=ABOiA5oRtAeG72piKsqsKfeZ6fG20wNrjfuAXFE8lascE=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2011756125331603788)/[ins](https://www.instagram.com/p/DTh24KZkx29/)｜[马内甲记录](https://sp.tcland.jp/contents/1035026)
@@ -658,7 +662,7 @@ permalink: /solo/
     > **260323~260329** [𝕏新宿大屏](https://x.com/blazeprojectmag/status/2035885101507358927)
     > **260330~260405** [𝕏涉谷大屏](https://x.com/blazeprojectmag/status/203808893906474202)
     > **大屏案内** ⇨ [𝕏(3/11)](https://x.com/blazeprojectmag/status/2031572634966831344)
-  * **260108【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DTP8089FBwZ/)
+  * **260108【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}「空を飛ぶならどうやって飛ぶか」⇨ [𝓲洸](https://www.instagram.com/p/DTP8089FBwZ/)
   * **260107【直播】新年ins直播** ⇨ [𝓲洸](https://www.instagram.com/p/DTNhoUziWmG/)
   * **260102 新年抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DTAju6clMOh/)
   * **260101《Higoto》日每(1/1) Instagram Magazine 2026年1月**{: .text-red}
@@ -669,16 +673,16 @@ permalink: /solo/
 ### 2025
 {: #kodai2025}
 
-* **251231 2025年总结** ⇨ [𝓲洸](https://www.instagram.com/p/DS7V1KtlMxh/) 有一张日置浴衣照~
+* **251231 2025年总结** ⇨ [𝓲洸❤️](https://www.instagram.com/p/DS7V1KtlMxh/) 有一张日置浴衣照~
 * **251225 奇迹洸大** ⇨ [𝓲洸-圣诞](https://www.instagram.com/p/DSr_hoFFFMA/)｜[𝓲洸-宣传前辈的T恤谷](https://www.instagram.com/p/DSrJWPygQjT/)
 * **251222《JUNON》2月号(12/22) 杂志发售** ⇨ [杂志详情](https://www.junon-tv.jp/articles/4122) 应该就是在卷头特辑里出现了一下，但是温泉视频有😇 顺说这本msy也登场了哈哈哈好多人啊()
     > **251219** ⇨ [𝕏附录扑克牌](https://x.com/JUNON_jp/status/2001933983316349067)
     > **251220** ⇨ [𝕏泡温泉花絮(12/20)](https://x.com/JUNON_jp/status/2002333155483922930)｜[𝕏海李也登场了说也取材了修仲相关(12/20)](https://x.com/kairi_shimizu/status/2002229094440972574)
     > **251222** ⇨ [𝕏小卡(12/22)](https://x.com/eprintservice/status/2002906941543043366)
     > **260105** ⇨ [𝕏年末年始视频(1/5)](https://x.com/JUNON_jp/status/2008010579030819201) 
-* **251222 Hulu「時計館の殺人」出演宣传** ⇨ [𝓲洸](https://www.instagram.com/p/DSkOpxPFFXR/)
-* **251218【直播】2025年ありがとうナイトパーティ直播** 2025年感恩会直播, ins10分钟+TC40分钟+个别交流会 ⇨ [𝓲洸-行程(12/5)](https://www.instagram.com/p/DR4FMaSgZWj/)｜[ins10分钟直播](https://www.instagram.com/p/DSZvLU1CR4W/)
-* **251201【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DRuKVvfgTE2/)
+* **251218【直播】2025年ありがとうナイトパーティ直播** 2025年感恩会直播, ins10分钟+TC40分钟+个别交流会 ⇨ [ins10分钟直播](https://www.instagram.com/p/DSZvLU1CR4W/)
+    > **251205 告知+募集** ⇨ [𝓲洸](https://www.instagram.com/p/DR4FMaSgZWj/) 19:40~インスタライブ（10分間）; 20:00~TCL内にて生配信（40分間）; 配信終了後 個別オンライントーク実施もします❗️
+* **251201【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}「空飛ぶ車に乗ってどこにいくか」⇨ [𝓲洸](https://www.instagram.com/p/DRuKVvfgTE2/)
 * **251201《Higoto日每》(12/1) Instagram Magazine 2025年12月**{: .text-red}
     > 视频: [𝓲宣传视频(12/3)](https://www.instagram.com/reel/DRy6TJ_k4aM/)｜[𝓲BTS(12/16)](https://www.instagram.com/reel/DSUpfjeE_jJ/)
     > 杂志: [𝓲12/1](https://www.instagram.com/p/DRt0cnnkw_x/)｜[𝓲12/4(休息日的度过方式/最近着迷的东西)](https://www.instagram.com/p/DR1Y8tCE1wT/)｜[𝓲12/6(接到修仲offer的心情/对第8话的感想)](https://www.instagram.com/p/DR6gdmkk0Eb/)｜[𝓲12/10](https://www.instagram.com/p/DSE0D2TExG3/)｜[𝓲12/13(对简秀吉的印象/第9话看点)](https://www.instagram.com/p/DSMlKp2E_ls/)｜[𝓲12/17(公式书看点)](https://www.instagram.com/p/DSW21mLkyxI/)｜[𝓲12/20(拍摄趣闻/最终回)](https://www.instagram.com/p/DSejU5nk-TY/)｜[𝓲12/24(一个人的圣诞)](https://www.instagram.com/p/DSo3Cngk-kl/)｜[𝓲12/28(拍摄采访)](https://www.instagram.com/p/DSxZkohkyI_/)
@@ -687,6 +691,10 @@ permalink: /solo/
 ---
 * **251123 第38回JUNON SUPER BOY CONTEST最终选考会出演** @東京・TFTホール1000 ⇨ [新闻(11/2)](https://www.junon-tv.jp/articles/4033) repo说洸大曾经整整一年都没有试镜成功
 
+---
+* **251031【直播｜藤本洸大】藤本洸大のmagic night バースデー&ハロウィンパーティー** ins直播10分钟 ⇨ [𝓲洸](https://www.instagram.com/p/DQeLViHgeLw/)｜[𝓲洸-僵尸洸大](https://www.instagram.com/p/DQeS9s7gS2W/)｜[‼️置顶‼️𝓲洸-更多僵尸洸大](https://www.instagram.com/p/DQeUH6JASoe/)
+    > **251103 僵尸洸大小视频** ⇨ [𝓲洸](https://www.instagram.com/p/DQmBkFggSGj/)
+* **251018 电视剧「修学旅行で仲良くないグループに入りました」开播** 主演・日置朝陽役（簡秀吉とダブル主演）@朝日放送テレビ
 * **251012【直播】洸大ins直播** ⇨ [𝓲洸](https://www.instagram.com/p/DPtdQiZgfpg/) 今天也在拍修仲~
 
 ---
@@ -695,7 +703,8 @@ permalink: /solo/
     > **250926 第二話「開花編」** ⇨ [𝓲洸](https://www.instagram.com/p/DOyAXJegZc1/)
     > **251003 第二シリーズ第一話「衝突編」** ⇨ [𝓲洸](https://www.instagram.com/p/DPWPkn8gb76/)
     > **251010 第二シリーズ第二話「共鳴編」** ⇨ [𝓲洸](https://www.instagram.com/p/DPoIG4zga_v/)
-* **250905【直播】NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k} 主题「生まれ変わるならなんの動物になりたい？」⇨ [𝓲洸](https://www.instagram.com/p/DOOEOdbgW_R/)
+* **250911 综艺「あざとくて何が悪いの？」番組内ミニドラマ VTR出演** 24:45~ ケイスケ役/ユウタ役 @テレビ朝日
+* **250905【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k} 主题「生まれ変わるならなんの動物になりたい？」⇨ [𝓲洸](https://www.instagram.com/p/DOOEOdbgW_R/)
 ---
 * **250817【SNS】洸大发ins去看了GRe4N BOYZ的live** イマーシブライブシアター2025『“The XY” 〜明日、今日よりも〜』⇨ [𝓲洸](https://www.instagram.com/p/DNdOkpVJfFY/) 似乎是洸大看的第一场live！原来这个组合就是以前的GReeeeN，2024年后改名了
 * **250812【SNS】洸大ins发日常照** ⇨ [𝓲洸](https://www.instagram.com/p/DNQRHampAKV/)
@@ -704,11 +713,11 @@ permalink: /solo/
 ---
 * **250731 舞台「それってキセキ」演出** 主演・navi役 7/31~8/4 @シアター1010 洸大第一个舞台剧!这个舞台剧是根据纪实小说改编的关于GRe4N BOYZ的故事。
     > **250509 情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DJbxW1rJcWw/)
-    > **250520 FC先行购票开始** ⇨ [𝓲洸](https://www.instagram.com/p/DJ3vvhppGq7/)
+    > **250517 FC先行购票开始** 5/17~5/25 ⇨ [𝓲洸（5/20](https://www.instagram.com/p/DJ3vvhppGq7/)
     > **250614 造型解禁+一般购票开始** 戴眼镜的宝宝! ⇨ [𝓲洸](https://www.instagram.com/p/DK3gnSxJQoA/) 里面有日程详情，8/1~8/3每天两场
     > **250618 offshot** ⇨ [𝓲洸](https://www.instagram.com/p/DLCul6IpP69/)
     > **250713 洸大ins宣传** ⇨ [𝓲洸](https://www.instagram.com/p/DMDEK4uJWVo/)
-    > **250804 舞台剧千秋楽(落幕)**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DM718pdJr3K/)
+    > **250804 舞台剧千秋楽(落幕)** ⇨ [𝓲洸](https://www.instagram.com/p/DM718pdJr3K/)
 * **250724【SNS】洸大发ins前些天某个作品杀青了~** ⇨ [𝓲洸](https://www.instagram.com/p/DMfWKAhJw_O/)
 * **250707【SNS】洸大发ins自拍**「いくつに見えますか #次の作品に入ってます」⇨ [𝓲洸](https://www.instagram.com/p/DLzlDY1J3Dh/)
 
@@ -720,40 +729,42 @@ permalink: /solo/
 
 <div class="text-past" markdown="1">
 
-* **260207 电视剧「CUT．編集された世界」开播** 田中健太役 @テレビ朝日
-* **251018 电视剧「修学旅行で仲良くないグループに入りました」开播** 主演・日置朝陽役（簡秀吉とダブル主演）@朝日放送テレビ
-* **250912 综艺「あざとくて何が悪いの？」番組内ミニドラマ出演** ケイスケ役/ユウタ役 @テレビ朝日
-
 * **250627 电影「劇場版 スメルズ ライク グリーン スピリット」上映** 夢野太郎役
-    > **250526 完成披露イベント**
-    > **250629 公開記念舞台挨拶**
-* **250616 NATSLIVE「洸大のサイコロジーアート」配信**『大きな木に何か足して描くとしたら何を描く？』
+    > **250526 完成披露上映会イベント** 12:00開演/15:30開演/19:00開演 @科学技術館サイエンスホール
+    > **250629 公開記念舞台挨拶** 9:00 上映後/12:20 上映前/15:20 上映後/18:4 上映前 @TOHOシネマズ日比谷
+* **250616 NATSLIVE「洸大のサイコロジーアート」配信**「大きな木に何か足して描くとしたら何を描く？」可能是第一次有现场观众的natslive
 * **250613 电影「青春ゲシュタルト崩壊」上映** 山下祈役
-    > **250512 完成披露イベント**
-    > **250613 映画公開初日舞台挨拶**
+    > **250512 完成披露試写会** 18:00 上映前 @TOHOシネマズ日比谷
+    > **250613 映画公開初日舞台挨拶** 上映前 @TOHOシネマズ新宿
+* **250602 短剧「いつだって究極の選択　シーズン２」配信** TikTok：＠kyukyoku.sentaku；Instagram：＠kyukyoku.sentaku；YouTube：＠kyukyoku.sentaku
 * **250530 电影『か｢｣く｢｣し｢｣ご｢｣と｢』上映** 和田登役
 * **250508 电视剧「低体温男子になつかれました。」开播** 緒方海里役 @TOKYO MX1
 * **250503~250509 TC自主制作 限定スペシャルムービー**{: .text-red} TC演员策划制作编辑的小短剧, 洸大每个都有参与~
     > #１[青春](https://www.instagram.com/p/DJMF-DDJO5r/)｜#2[かたおもい](https://www.instagram.com/p/DJOqxGRTMzv/)｜#3[カメラ](https://www.instagram.com/p/DJRPnDWJ2xB/)｜#4[アイドル](https://www.instagram.com/p/DJT0X9oJstT/)｜#5[汗](https://www.instagram.com/p/DJWZL1JJnAm/)｜#6[ドッキリ](https://www.instagram.com/p/DJY982CyRgK/)｜#7[エンドロール](https://www.instagram.com/p/DJbitN3pjIb/)
 * **250412 电视剧「なんで私が神説教」开播** 梶山樹役 @日本テレビ
 * **250331 21:00~ NATSLIVE「洸大のサイコロジーアート」配信**
+<!-- * **广告 docomo x iPhone「家族のカメラ担当」播出** -->
 * **250326 广告「SEA BREEZE 瞬間！爽快シャワー」播出** ⇨ [𝓲洸](https://www.instagram.com/p/DHph6XzpdQu/)
 * **250308 电台电视剧 FMシアター「14年目のハッピーバースデー」配信** 22:00~ 高橋先輩役 @NHK-FM
 * **250127 20:00~ NATSLIVE「藤本洸大SPアート」配信**{: .text-red} 洸大首次NATSLIVE!
+* **250116 短剧 劇団ポケット ショートドラマ「Phone call」播出** @Tiktok/Instgram ins账号上还有几个花絮
+    > **250116** ⇨ [1](https://www.tiktok.com/@gekidan_pocket/video/7460399813662739729)/[ins](https://www.instagram.com/p/DE4QA2GSak5/)
+    > **250123** ⇨ [2](https://www.tiktok.com/@gekidan_pocket/video/7462621071770930439)/[ins](https://www.instagram.com/p/DFKL61kS5UQ/)
+    > **250130** ⇨ [3](https://www.tiktok.com/@gekidan_pocket/video/7462621638949981447)/[ins](https://www.instagram.com/p/DFcMpa-SwcA/)
 
 ---
 * **241230 ins直播「年末ラスト配信❗️」** ⇨ [𝓲洸](https://www.instagram.com/p/DENBlslSRQK/)
 * **241217 ins粉丝数1万人!**{: .text-red}
 * **241214 电视剧 世にも奇妙な物語’24 冬の特別編「第1回田中家父親オーディション」开播** 田中一郎役 @フジテレビ
 * **241206 电影「うちの弟どもがすみません」上映** 相楽郁人役 和中川翼共演
-* **241126 竖屏短剧「最期の授業-生き残った者だけが卒業-」配信** 井上隆役 @UniReel
+* **241126 竖屏短剧「最期の授業-生き残った者だけが卒業-」配信** 井上隆役 @UniReel/日本テレビ
 * **241006 洸大19岁生日**{: .text-red}
 * **241001 电视剧「スノードロップの初恋」开播** 橋本純平役 @関西テレビ・フジテレビ
-* **240919 电视剧「スメルズ ライク グリーン スピリット(仿佛清新气息)」开播**{: .text-red} 夢野太郎役 @MBS
+* **240919 电视剧「スメルズ ライク グリーン スピリット(仿佛清新气息)」开播**{: .text-red} 夢野太郎役 @MBS ⇨ [𝓲洸-SLGS-Highlight](https://www.instagram.com/stories/highlights/18058254430834293/)
     > **240912 制作発表会見+取材DAY**
 * **240903~241202 FamilyMart节目「ClipVoice」登场** 是在店内收银台上方的屏幕播放的节目
 * **240817 活动「TopCoat夏祭り 2024~SAITEN～」配信** TC初次有现场观众的直播 16:30開演 @品川インターシティホール
-* **240719 综艺「中居正広の金曜日のスマイルたちへ（金スマ）」『日本バレー波瀾万丈』短片出演** 西田有志選手役
+* **240719 综艺「中居正広の金曜日のスマイルたちへ（金スマ）」20:00~『日本バレー波瀾万丈 なぜこんなに強くなった？』第2弾 短片出演** 西田有志選手役
 * **240712 电视剧「磯部磯兵衛物語～浮世はつらいよ～」开播** 高杉秀才役 @WOWOW
 * **240502 FC「星道。」卒業遠足後編 配信** ⇨ [TC会员限定](https://sp.tcland.jp/movies/98594)
 * **240419 FC「星道。」卒業遠足前編 配信** ⇨ [TC会员限定](https://sp.tcland.jp/movies/98461)
