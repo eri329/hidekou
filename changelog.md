@@ -55,7 +55,25 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO: https://www.instagram.com/dramal_abc/reposts/;简秀吉ins;洸大ins 基本上就完成大头了!!!接下来的一些计划:修仲图全记录计划 -->
 
-<!-- TODO next: 查漏补缺：WIKI/翻修仲快拍/爬豆瓣楼/ins其他版块/几个修仲直播？/杂志官号/亲妈X -->
+<!-- TODO next: 查漏补缺：WIKI/翻修仲快拍/爬豆瓣楼/ins其他版块/几个修仲直播？/杂志官号/亲妈X/ins@topcoat_staff -->
+
+<!-- 博主:https://weibo.com/u/2277992341?tabtype=feed -->
+
+<!-- 演员们的ins：海李快拍+ins https://www.instagram.com/stories/highlights/18057475172133204/ 似乎只有海李发得比较多-->
+
+<!-- 秀洸的reels!!! https://www.instagram.com/hideyoshi_kan_official/reels/ -->
+
+<!-- 251108 有一个洸大快拍发的浴衣口播 -->
+
+<!-- https://www.bilibili.com/video/BV1gC16BLEJb/ b站这个博主！！ -->
+
+<!-- 要补一下11月20日的快拍！！ -->
+
+<!-- 小说翻译 https://www.bilibili.com/opus/1136224123504033798?plat_id=5&share_from=article&share_medium=android&share_plat=android&share_session_id=fc801731-99c5-471a-bed9-c0b02f3c0201&share_source=COPY&share_tag=s_i&timestamp=1763701069&unique_k=z1cRGVE -->
+
+[ 2026-07-25 ] 补档豆瓣剧楼, 补到2025年11月23日（p65）
+
+[ 2026-07-24 ] 补档完进藤导演X；开始爬豆瓣楼补快拍, 补到2025年10月底（p27）
 
 [ 2026-07-23 ] 补档洸大ins完成!; 存档迄今为止秀洸互给对方点过赞的ins; TC schedule补完; 增加修仲Highlight link，增加秀洸Wiki link
 

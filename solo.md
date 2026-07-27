@@ -28,6 +28,7 @@ permalink: /solo/
     > **260707 电波手势舞**{: .text-red} ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
 
 ---
+* **260729【FC｜直播】21:00~ 小简直播**{: .text-red}
 * **260717【SNS】小简发小红书** 周一会有新消息~ ⇨ [📕简](http://xhslink.com/o/2IHC8APYxeg)
 * **260716【SNS】小简半夜3点发小红书** 捕风追影太好看了的一个夜晚 ⇨ [📕简](http://xhslink.com/o/6Y7yJ5CxJ10)
 * **260713【FC｜直播】22:15~ 电台直播**{: .text-red} ~30min
@@ -546,7 +547,7 @@ permalink: /solo/
 * **260330 RALPH LAUREN 表参道店 20周年纪念活动** ⇨ [𝓲洸](https://www.instagram.com/p/DWgsy6-lBfE) 好漂亮的小男孩!!(晕倒)
 * **260324 fashionsnap 采访** ⇨ [彼が思う美意識について。vol.5](https://www.fashionsnap.com/special/sense-of-beauty-05/)
 * **260321 大西利空×藤本洸大 TopCoat Land限定活动** 開演13:00/開演15:00
-    > **260220 告知** ⇨ [𝓲洸](https://www.instagram.com/p/DU-cB_OktuO/)
+    > **260220 告知** ⇨ [𝓲洸](https://www.instagram.com/p/DU-cB_OktuO/)｜[ins双人直播告知](https://www.instagram.com/reel/DU-X822EsVx/)
     > **260322 双人跳舞小视频** ⇨ [𝓲洸](https://www.instagram.com/p/DWLkwOPCThP/) 只看到一个狂玩抽象的洸大……
     > 洸大穿了Retro里的小香风王子外套(肯定是我们投票选出来的对吧!)
 * **260319【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}「幻の魚が迷い込んだのはどこ？」
@@ -675,7 +676,7 @@ permalink: /solo/
 {: #kodai2025}
 
 * **251231 2025年总结** ⇨ [𝓲洸❤️](https://www.instagram.com/p/DS7V1KtlMxh/) 有一张日置浴衣照~
-* **251225 奇迹洸大** ⇨ [𝓲洸-圣诞](https://www.instagram.com/p/DSr_hoFFFMA/)｜[𝓲洸-宣传前辈的T恤谷](https://www.instagram.com/p/DSrJWPygQjT/)
+* **251225【SNS】洸大宣传菅田将晖live谷当T恤模特/圣诞洸大** ⇨ [𝓲洸](https://www.instagram.com/p/DSrJWPygQjT/)/[tc-ins(12/23)](https://www.instagram.com/p/DSmhGTokjZS/)｜[𝓲洸-圣诞](https://www.instagram.com/p/DSr_hoFFFMA/)
 * **251222《JUNON》2月号(12/22) 杂志发售** ⇨ [杂志详情](https://www.junon-tv.jp/articles/4122) 应该就是在卷头特辑里出现了一下，但是温泉视频有😇 顺说这本msy也登场了哈哈哈好多人啊()
     > **251219** ⇨ [𝕏附录扑克牌](https://x.com/JUNON_jp/status/2001933983316349067)
     > **251220** ⇨ [𝕏泡温泉花絮(12/20)](https://x.com/JUNON_jp/status/2002333155483922930)｜[𝕏海李也登场了说也取材了修仲相关(12/20)](https://x.com/kairi_shimizu/status/2002229094440972574)
@@ -695,8 +696,8 @@ permalink: /solo/
 ---
 * **251031【直播｜藤本洸大】藤本洸大のmagic night バースデー&ハロウィンパーティー** ins直播10分钟 ⇨ [𝓲洸](https://www.instagram.com/p/DQeLViHgeLw/)｜[𝓲洸-僵尸洸大](https://www.instagram.com/p/DQeS9s7gS2W/)｜[‼️置顶‼️𝓲洸-更多僵尸洸大](https://www.instagram.com/p/DQeUH6JASoe/)
     > **251103 僵尸洸大小视频** ⇨ [𝓲洸](https://www.instagram.com/p/DQmBkFggSGj/)
+* **251023【SNS】洸大ins快拍感谢2w粉**
 * **251018 电视剧「修学旅行で仲良くないグループに入りました」开播** 主演・日置朝陽役（簡秀吉とダブル主演）@朝日放送テレビ
-* **251012【直播】洸大ins直播** ⇨ [𝓲洸](https://www.instagram.com/p/DPtdQiZgfpg/) 今天也在拍修仲~
 
 ---
 * **250919 大西利空×藤本洸大 縦型動画第二弾**
@@ -715,7 +716,7 @@ permalink: /solo/
 ---
 * **250731 舞台「それってキセキ」演出** 主演・navi役 7/31~8/4 @シアター1010 洸大第一个舞台剧!这个舞台剧是根据纪实小说改编的关于GRe4N BOYZ的故事。
     > **250509 情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DJbxW1rJcWw/)
-    > **250517 FC先行购票开始** 5/17~5/25 ⇨ [𝓲洸（5/20](https://www.instagram.com/p/DJ3vvhppGq7/)
+    > **250520 FC先行购票开始** 5/17~5/25 ⇨ [𝓲洸](https://www.instagram.com/p/DJ3vvhppGq7/)/[ins-TC](https://www.instagram.com/p/DJ33MauSo2U/)
     > **250614 造型解禁+一般购票开始** 戴眼镜的宝宝! ⇨ [𝓲洸](https://www.instagram.com/p/DK3gnSxJQoA/) 里面有日程详情，8/1~8/3每天两场
     > **250618 offshot** ⇨ [𝓲洸](https://www.instagram.com/p/DLCul6IpP69/)
     > **250713 洸大ins宣传** ⇨ [𝓲洸](https://www.instagram.com/p/DMDEK4uJWVo/)
@@ -749,7 +750,7 @@ permalink: /solo/
 * **250326 广告「SEA BREEZE 瞬間！爽快シャワー」播出** ⇨ [𝓲洸](https://www.instagram.com/p/DHph6XzpdQu/)
 * **250308 电台电视剧 FMシアター「14年目のハッピーバースデー」配信** 22:00~ 高橋先輩役 @NHK-FM
 * **250127 20:00~ NATSLIVE「藤本洸大SPアート」配信**{: .text-red} 洸大首次NATSLIVE!
-* **250116 短剧 劇団ポケット ショートドラマ「Phone call」播出** @Tiktok/Instgram ins账号上还有几个花絮
+* **250116 短剧 劇団ポケット「Phone call」播出** @Tiktok/Instgram ins账号上还有几个花絮
     > **250116** ⇨ [1](https://www.tiktok.com/@gekidan_pocket/video/7460399813662739729)/[ins](https://www.instagram.com/p/DE4QA2GSak5/)
     > **250123** ⇨ [2](https://www.tiktok.com/@gekidan_pocket/video/7462621071770930439)/[ins](https://www.instagram.com/p/DFKL61kS5UQ/)
     > **250130** ⇨ [3](https://www.tiktok.com/@gekidan_pocket/video/7462621638949981447)/[ins](https://www.instagram.com/p/DFcMpa-SwcA/)
@@ -784,7 +785,7 @@ permalink: /solo/
 * **230819 直播活动「TopCoat夏祭り2023 〜いい夏にしようぜ！〜」TCバスケ部夏祭りスペシャル** 18:30~ TC若手演员的篮球对决 ⇨ [活动官网](https://sp.tcland.jp/contents/lp/summer_festival2023)｜[🆈活动花絮](https://www.youtube.com/playlist?list=PLX6jFepxdIp5kVTTx0QyGCIFMz7Pnvwhx)
 * **230722 杂志登场「JUNON 9月号」发售**
 * **230105 杂志登场「週刊女性 1/17・24号」发售** ⇨ [web采访](https://www.jprime.jp/articles/-/26361)
-* **230403 所属发表 洸大加入TopCoat事务所**
+* **230403 所属发表 洸大加入TopCoat事务所** ⇨ [ins](https://www.instagram.com/p/CqkVLOzLp1u/)
 
 ---
 * **221127【JUNON BOY】第35回ジュノンボーイコンテスト 洸大获得冠军**{: .text-red}

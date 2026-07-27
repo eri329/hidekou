@@ -54,6 +54,8 @@ permalink: /drama/
     > 2, 3, 4话: [藤澤浩和](https://x.com/fujisawa44) (《低体温男子になつかれました。》)
     > 5, 6话, 番外前篇: [ハセガワタクヤ(長谷川 卓也)](https://x.com/hasetaku0227)
     > 9话, 疑似番外后篇: [安見悟朗](https://x.com/lennono560)
+* **拍摄地**
+    > [修学旅行拍摄地](https://mzlocationblog.com/schooltrip/)
 
 ## 修学旅行 Reaction & Repo
 * [【Repo】]({{ site.baseurl }}/drama_repo/)
@@ -81,8 +83,24 @@ permalink: /drama/
 * **260508 蓝光box**: 初动6101，次周累计6400，累计6563(至2026/6/15); 2025年日腐box销量2位, Oricon2026上半年日剧box销量3位 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **260227 公式书**: 初动7639，次周7896，两周累计15535 ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **TVer收藏数** 最高28.3万收藏。
-> 2025(日站统计, 来源豆瓣): 27.4万←28.3万（L）←27.3万⑨←26.1万⑧←24.9万⑦←23.6万⑥←21.3万⑤←19.5万④←17.5万③←15.1万②←9.8万①←8.1万←6.4万←4.4万←2.1万
-> 2026(播放当日上午统计): 27.1万(7/11)①←26.1万(7/4)①←27.1万(1/9)
+> 2025(日站统计, 来源豆瓣): 27.4万←28.3万（L）←27.3万⑨←26.1万⑧←24.9万⑦←23.6万⑥←23万(11/20)←22.1万(11/17)←21.8万(11/16)←21.3万⑤←21万(11/14)←20.8万(11/12)←20万(11/9)←19.5万④(11/7)←19万(11/7)←18.8万(11/6)←18万(11/3)←17.5万③←17万(10/30)←15.1万②←13.8万(10/22)←13万(10/21)←12.3万(10/20)←11.1万(10/19)←9.8万①←8.1万←8万(10/11)←6.4万←5万(9/30)←4.4万←2.1万
+> 2026(播放当日上午统计): 27.8万(7/26)③←27.1万(7/11)②←26.1万(7/4)①←27.1万(1/9)
+* **TVer/FOD实时排名**
+> 1话: 最高12位(10/20); FOD 1位(10/20)
+> 2话: 最高11位(10/26); FOD 1位(10/27)
+> 3话: 最高9位(11/2)
+> 4话: 最高9位(11/10)
+> 5话: 最高5位(11/16)
+> 6话: 最高4位(11/23)
+> 7话: 最高4位(12/01)
+> 8话: 最高3位(12/08)
+> 9话: 最高3位(12/14)
+> 10话: 最高2位(12/21)
+* **秀洸ins粉丝数**
+> 简秀吉: 10.6万(25/8/8)→11万(10/18)→11.4万(10/23)→12.5万(11/1)→13.1万(11/5)→13.3万(11/7)→14万(11/12)
+> 藤本洸大: 1.37万(25/8/8)→1.71万(10/18)→2万(10/23)→3万(11/2)→3.5万(11/5)→3.76万(11/7)→3.8万(11/9)→4.1万(11/10)→4.3万(11/11)→4.5万(11/12)→4.6万(11/13)→4.8万(11/15)→5万(11/16)→5.7万(11/17)→6.3万(11/19)→6.8万(11/21)→7.1万(11/22)
+> 官号(X): 2.53万(25/8/8)→4万(11/10)
+> 官号(ins): 2.87万(25/8/8)→5万(11/9)→6.5万(11/21)
 
 ## 修学旅行榜单排行&受赏
 * 260714 TVguide Web 2025.7～2026.7期间BL投票 修仲6位 => [!X](https://x.com/tvg_research/status/2076939875178500198)
@@ -107,29 +125,32 @@ permalink: /drama/
 * 260119～250125 FOD Premium周榜5位 ⇨ [𝕏](https://x.com/fujitvplus/status/2016081246011466035)
 * 260112～260118 公式书 纪伊国屋书店预约榜(综合)1位 ⇨ [𝕏](https://x.com/Kinokuniya/status/2013155717222658418)
 * 260112～260118 FOD Premium周榜2位⇨ [𝕏](https://x.com/fujitvplus/status/2013544530835055065)
-    > *FOD从11月～1月的榜单没有发, 并不是小修学没有入榜!*{: .text-small}
+    > *FOD12月的周榜没有发, 并不是小修学没有入榜!*{: .text-small}
 * 251231 Emomiu interview 2025 简洸采访 阅读量年榜3位 ⇨ [𝕏](https://x.com/Emo_miu/status/2006336297238208561)｜[采访](https://emomiu.jp/news/244577/)
 * 251223～251230 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2007648233401499810)
 * 251221 最终回 TVer综合日榜5位 ⇨ [𝕏](https://x.com/gagaoolala/status/2002982438235230291)
 * 251221 最终回 TVer实时电视剧榜2位 ⇨ [𝕏](https://x.com/gagaoolala/status/2002652742138106314)
-* 251219～251223 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2004387064041951245)
+* 251219～251223 第10回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2004387064041951245)
 * 251214 第9话 TVer实时电视剧3位 ⇨ [𝕏](https://x.com/dramal_abc/status/2000196672324878671)
-* 251212～251218 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2004386687732896209)
+* 251212～251218 第9回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2004386687732896209)
 * 251208 第8回 TVer实时电视剧榜3位 ⇨ [𝕏](https://x.com/gagaoolala/status/1997693183921418368)
-* 251204～251211 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1999313262538621397)
-* 251208 第7回 TVer实时电视剧榜4位 ⇨ [𝕏](https://x.com/gagaoolala/status/1995148106917392397)
-* 251127～251204 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1996776559370248368)
+* 251204～251211 第8回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1999313262538621397)
+* 251201 第7回 TVer实时电视剧榜4位 ⇨ [𝕏](https://x.com/gagaoolala/status/1995148106917392397)
+* 251127～251204 第7回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1996776559370248368)
 * 251123 第6回 TVer实时电视剧榜4位（官推口述）
-* 251120～251127 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1994239867178385427)
+* 251120～251127 第6回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1994239867178385427)
 * 251124～251130 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996512302414389538)
 * 251116 第5回 TVer实时电视剧榜5位 ⇨ [𝕏](https://x.com/dramal_abc/status/1990057691910406208)
+* 251114～251120 第5回 GagaOOLala BL周榜1位 (from豆瓣楼)
 * 251110～251116 FOD Premium周榜2位 ⇨ [𝕏](https://x.com/fujitvplus/status/1990714097000984910)
 * 251110 第4回 TVer实时电视剧榜9位 ⇨ [𝕏](https://x.com/dramal_abc/status/1987539270152983009)
-* 251107~251113 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1989166412284174466)
-* 251102 第3回 TVer实时电视剧榜10位 ⇨ [𝕏](https://x.com/dramal_abc/status/1984960931324170353)
+* 251107～251113 第4回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1989166412284174466)
+* 251102 第3回 TVer实时电视剧榜10位->9位 ⇨ [𝕏](https://x.com/dramal_abc/status/1984960931324170353)/官号快拍截图冲至9位
 * 251101～251130 FOD Premium月榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1996149911801213088)
-* 251023~251030 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1984093011009998991)
+* 251030～251106 第3回 GagaOOLala BL周榜1位 (from豆瓣楼)
+* 251023～251030 第2回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1984093011009998991)
 * 251020～251026 FOD Premium周榜3位 ⇨ [𝕏](https://x.com/fujitvplus/status/1983103949398802754)
+* 251016～251023 第1回 GagaOOLala BL周榜1位 (from豆瓣楼)
 * 251001～251031 FOD Premium月榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/1985676600218959924)
 * 251010 DXTEEN「両片想い」获得日本唱片协会2025年9月金曲认证(10万枚) ⇨ [𝕏](https://x.com/riaj_prinfo/status/1976454125216010424)
 

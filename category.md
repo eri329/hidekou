@@ -30,12 +30,23 @@ permalink: /category/
 * **251207 修学旅行快闪店涩谷手渡会**
 * **251120 简洸拍摄修学旅行公式书💗** *推测/SNS发布日*{: .text-small}
 * **251023 小简23岁生日五个人一起去吃了烤肉**
-* **250928 小简洸大海李三个人吃饭** 还是烤肉233 *SNS发布日*{: .text-small}
-* **250916/250918 大量双人采访/修仲取材日**{: .text-grey} *推测/古着店相关采访内容/SNS发布日*{: .text-small} 疑似这些物料的取材日 ⇨ [𝓲简(9/18)](https://www.instagram.com/p/DOvXsf6AUAe/)｜[𝓲洸(9/18)](https://www.instagram.com/p/DOvhSbGgUYn/)｜《TVguide dan vol.57》(花絮里有TC背景,和洸大9/18发的拍立得背景也一致)｜[𝓲洸(9/25)](https://www.instagram.com/p/DPBkUo0geBU/)
+* **250928 小简洸大海李三个人吃烤肉** *SNS发布日*{: .text-small}
+* **250918 大量双人采访/修仲取材日**{: .text-grey} *推测/古着店相关采访内容/SNS发布日*{: .text-small} 疑似这些物料的取材日 ⇨ [𝓲简(9/18)](https://www.instagram.com/p/DOvXsf6AUAe/)｜[𝓲洸(9/18)](https://www.instagram.com/p/DOvhSbGgUYn/)｜《TVguide dan vol.57》(花絮里有TC背景,和洸大9/18发的拍立得背景也一致)｜[𝓲洸(9/25)](https://www.instagram.com/p/DPBkUo0geBU/)
     > 小简在采访里说“昨天我又去了那家古着店”, 到9/18晚发ins提及“前些天的修仲取材”，推测取材日在9/16~9/17期间。
-    > 洸大9/18发了修仲取材物料，说“现在是拍摄第5天”，和修仲取材日小视频一致。因此9/18也可能是取材日；考虑到两个人9/18的ins都提到了距离开播还有一个月，也有可能是约好了特意在这一天发的。
+    > 洸大9/18发了修仲取材物料，说“现在是拍摄第5天”，和修仲取材日小视频一致。因此9/18也可能是取材日。
+    > 进藤和海李都发了快拍说明9/18有旅馆拍摄，但可能是晚上才去的。
+    > 综上考虑，很可能9/18这一天俩人既做了修仲取材又拍了戏，也太辛苦了吧!还有一种可能就是9/16~9/17也进行过一些比较短小的取材。
     > 所有提及“昨天去了古着店”的杂志&采访:
 * **250914 狐猪古着店约会** *SNS发布日*{: .text-small}
+* **250909~251023 修仲拍摄** *只记录明确的信息，不代表没有记录的日子没有拍摄*{: .text-small}
+    > **250909 开机** DAY1，在学校开机
+    > **250910/250911/250913 修仲拍摄** DAY2，DAY3，DAY4
+    > **250918~250919 修仲拍摄** DAY5-DAY6 旅馆戏
+    > **250921 修仲拍摄** 游乐园拍摄
+    > **250922 修仲拍摄** 雨天场景拍摄
+    > **250930 修仲拍摄** 久违的学校拍摄
+    > **251006 修仲拍摄** 海边拍摄+洸大生日
+    > **251012 修仲拍摄** 有教室场景
 
 ## 双人直播
 * **251018 修学旅行开播 双人首次直播** <span>⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)</span>{: .text-small}
@@ -51,12 +62,13 @@ permalink: /category/
 * **251121 月刊TVガイド 1月号** <span>SPECIAL TALK｜修仲校服｜2p ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)｜[📕内页(只想说坏话)](http://xhslink.com/o/8BePGZjH6IF)</span>{: .text-small}
 * **251117 Duet LUXE vol.4** <span>⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)</span>{: .text-small}
 * **251104 CINEMA SQUARE vol.156** <span>秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)</span>{: .text-small}
-* **251031 GIANNA PLUS 06（双人封面封底）** <span>白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271)</span>{: .text-small}
+* **251031 GIANNA PLUS 06（双人封面封底）** <span>Threads of Connection｜白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271)</span>{: .text-small}
 * **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> 関西弁の二人の自然な会話。｜格子衬衫/套头衫｜7p ⇨ [𝕏封面](https://x.com/mag_scawaii/status/1978400528234389517)｜[📕内页(雨夜)](http://xhslink.com/o/50XpcAIDbSO)</span>{: .text-small}
 * **251025 Emo!miu采访（web）**<span>应募拍立得｜修仲校服｜21p ⇨[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 * **251023 月刊 TV navi 12月号** <span>修仲校服｜2p ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)｜[📕内页(雨夜)](http://xhslink.com/o/4TTPsTEDoYE)</span>{: .text-small}
 * **251020 Seventeen采访(web)** <span>应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)</span>{: .text-small}
 * **251018 TVguide Web采访(web)** <span>应募拍立得｜全用的截图 ⇨ [「修学旅行で仲良くないグループに入りました」藤本洸大＆簡秀吉が“青春”な撮影裏話を告白](https://www.tvguide.or.jp/feature/feature-4071895/)</span>{: .text-small}
+* **251017 Novema采访(web)** <span> ⇨ [藤本洸大さん×簡秀吉さんインタビュー](https://novema.jp/article/beluck/shunaka/drama/interview)</span>{: .text-small}
 * **251016 TVガイドdan vol.57** <span> ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)</span>{: .text-small}
 * **251016 別冊+act. 42号** <span> ⇨ </span>{: .text-small}
 
@@ -129,8 +141,8 @@ permalink: /category/
 <span>格式: 栏目名｜妆造/主题 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
-* **260722 JUNON 9月号** <span>喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)</span>{: .text-small}
-* **260723 ViVi 9月号** <span> ⇨ [𝕏封面](https://x.com/vivi_magazine/status/2077180231019114802)</span>{: .text-small}
+* **260722 JUNON 9月号** <span>喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)｜[📕内页中嵌(bala)](http://xhslink.com/o/3kar4kQF9uz)</span>{: .text-small}
+* **260723 ViVi 9月号** <span>PICK UPイケメン｜0.5p ⇨ [𝕏封面](https://x.com/vivi_magazine/status/2077180231019114802)｜[📕内页(喵)](http://xhslink.com/o/70h4n1PzgRs)</span>{: .text-small}
 * **260710 Emo!miu采访(web)** <span>17p ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)</span>{: .text-small}
 * **260709 JJ(web)** <span> ⇨ [【藤本洸大】ドラマ「クロスロード ～救命救急の約束～」出演記念インタビュー！「自分の中に眠っていた熱を思い出させてもらった作品です」](https://jj-jj.net/lifestyle/182409/)｜[【藤本洸大】「とにかく満足しない俳優になっていきたい」今最注目！実力派若手俳優の素顔に迫る](https://jj-jj.net/lifestyle/182410/)</span>{: .text-small}
 * **260709 FINEBOYS 8月号** <span>藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)</span>{: .text-small}
