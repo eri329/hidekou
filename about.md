@@ -38,7 +38,7 @@ permalink: /about/
 - [豆瓣修学旅行追剧楼2]() 2025/8/8~
 
 #### 原作
-- [pixiv:鶉](https://www.pixiv.net/users/87118862)｜ [pixiv原小说](https://www.pixiv.net/users/87118862/novels)
+- [pixiv:鶉](https://www.pixiv.net/users/87118862)｜[pixiv原小说](https://www.pixiv.net/users/87118862/novels)
 - [privatter](https://privatter.net/u/RcNfe37)
 - [BlueSky](https://bsky.app/profile/rcnfe37.bsky.social)
 - [X](https://x.com/RcNfe37)

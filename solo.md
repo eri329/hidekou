@@ -216,7 +216,6 @@ permalink: /solo/
 ---
 * **251128【直播】19:00~ 简秀吉NATSLIVE「成り上がれ！秀吉の野望」配信** 19時~Game配信🎮/21時~Art配信🎨 ⇨ [NATSLIVE](https://x.com/NATSLIVE_app/status/1988894613843648812)
     > **251113 情报解禁** 11/16抽选开票 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1988913593186693437)
-* **251126【SNS｜简秀吉】小简发ins去了泰国追BLcp!** 见到了「アポ様、マイル様」是《黑帮少爷爱上我》的两位主演。mile回复他「Thanks for coming!」 ⇨ [𝓲简](https://www.instagram.com/p/DRhHsvfgWl3/)
 * **251123【SNS】小简发X戴小狗耳朵视频** 今天也辛苦了~收到了很多修仲的感想。狗狗耳朵一摇一摇ing ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992593182232846713)
 * **251122【个人活动｜简秀吉】简秀吉上海生日会&见面会「KAN HIDEYOSHI Birthday Fan Meeting in Shang Hai」**{: .text-red} 12:00开场/17:00开场 @上海保利大剧院
     > **251029 官宣** ⇨ [微博](https://weibo.com/8001133179/QbnKevyuD)
@@ -225,6 +224,7 @@ permalink: /solo/
     > **251111 物贩** ⇨ [微博](https://weibo.com/8001133179/QdmHGh1vr)
     > **251124 小简发ins** ⇨ [𝓲简](https://www.instagram.com/p/DRbtHCSATSf/)
     > **251126 主办方发微博和活动照片** ⇨ [微博](https://weibo.com/8001133179/5237357306971560)
+* **251115 小简在泰国看了mileapo的fancon**{: .text-off}
 * **251109《SEEK》11月号(11/9) 杂志发售**{: .text-red} 小简封面! ⇨ [𝕏简-封面](https://x.com/kan_hideyoshi/status/1987477142456955059)/[𝓲简](https://www.instagram.com/p/DQ1VvsfAZSf/)
 * **251101 簡秀吉23rd BIRTHDAY EVENT 大阪生日会&见面会**{: .text-red} @T・Bホール 11:30開演/14:30開演
     > **251023 登场情报解禁** ⇨ [𝕏小简宣传小视频](https://x.com/SeekMediaGroup_/status/1981291409555804171) 
