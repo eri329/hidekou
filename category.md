@@ -47,6 +47,8 @@ permalink: /category/
     > **250930 修仲拍摄** 久违的学校拍摄
     > **251006 修仲拍摄** 海边拍摄+洸大生日
     > **251012 修仲拍摄** 有教室场景
+* **250901 修仲剧本围读**
+* **25年7月底到8月8日前的某一天** 狐猪第一次见面了! *第一次见面时的采访于250917公开*{: .text-small}
 
 ## 双人直播
 * **251018 修学旅行开播 双人首次直播** <span>⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)</span>{: .text-small}

@@ -1031,16 +1031,18 @@ permalink: /flattened_timeline/
 * **251215**
     > **【修学旅行】官推发剧照** ⇨ [𝕏日置和辽翔哥](https://x.com/dramal_abc/status/2000566524726087770)/[ins](https://www.instagram.com/p/DSSWOPME1_m/)｜[𝕏文化祭cosplay](https://x.com/dramal_abc/status/2000551423587791193)/[ins](https://www.instagram.com/p/DSSP8ECE_Ux/)
     > **【修学旅行】官方Tiktok小视频**{: .text-red} 女子组咚咚咚 ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7584007365146463509)
+    > **【修学旅行｜直播｜简秀吉】小简ins直播Re修仲第9话** 19:00~19:40 甚至提前在FC电台直播求粉丝打气233；洸大也来直播了！
 * **251214**
-    > **【修学旅行｜直播｜藤本洸大】洸大的第9话同时视听大会(Reaction直播)**{: .text-red} ⇨ [𝓲洸-1](https://www.instagram.com/p/DSPpxGVCXZ-/)｜[𝓲洸-2](https://www.instagram.com/p/DSPuqMsCVQ_/) 
+    > **【修学旅行｜直播｜藤本洸大】洸大的第9话同时视听大会(Reaction直播)**{: .text-red} 21:30~22:30 ⇨ [𝓲洸-1](https://www.instagram.com/p/DSPpxGVCXZ-/)｜[𝓲洸-2](https://www.instagram.com/p/DSPuqMsCVQ_/) 今天小简没来，因为他要单独re修仲啦
     > **【修学旅行｜SNS｜藤本洸大】第9话怎么样?** ⇨ [𝓲洸-女装集邮](https://www.instagram.com/p/DSPj5J-lL9l/)
-    > **【修学旅行｜SNS｜简秀吉】第9话感谢帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2000158364689633315)｜[𝓲简-和女仆日置合照](https://www.instagram.com/p/DSPcmJfAVc7/)
+    > **【修学旅行｜SNS｜简秀吉】第9话感谢帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2000158364689633315)｜[𝓲简-和女仆日置合照](https://www.instagram.com/p/DSPcmJfAVc7/)⬅️小简快拍:「愛です（激重め）❤️‍🔥」
     > **【修学旅行】官推发剧照** ⇨ [𝕏给渡会量腰围的日置](https://x.com/dramal_abc/status/1999872826598473845)｜[𝕏天台抱抱](https://x.com/dramal_abc/status/1999856848669966370)/[ins](https://www.instagram.com/p/DSNTeBnk8w_/)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏渡会辻谷和解](https://x.com/dramal_abc/status/2000173927868563642)/[ins](https://www.instagram.com/p/DSPk5klEw9x/) ⇨ 前情 [𝕏渡会敌人捕获(12/10)](https://x.com/dramal_abc/status/1998724378331091287)/[ins](https://www.instagram.com/p/DSFQhIQEqpg/)｜[𝕏日置辻谷亲友组合照](https://x.com/dramal_abc/status/2000143730402075001)/[ins](https://www.instagram.com/p/DSPV_D2Ewdr/)｜[𝕏超萌日置狼+四天王](https://x.com/dramal_abc/status/2000113678356754550)｜[𝓲文化祭准备中](https://www.instagram.com/p/DSPIQYPk6Cg/)｜[𝕏在天台搞抽象的检修机](https://x.com/dramal_abc/status/1999889678896664942)/[ins](https://www.instagram.com/p/DSNiWBmk6E_/)｜[𝕏检修机x女仆猪](https://x.com/dramal_abc/status/1999879487618691460)/[ins这张和X略有区别!](https://www.instagram.com/p/DSNfjA0k-gI/)
     > **【修学旅行】第9话PR** ⇨ [𝕏FOD宣](https://x.com/fujitvplus/status/1999879516773404977)/[ins官号宣传TVer](https://www.instagram.com/p/DSNe_bbk4Kk/)
     > **【修学旅行】最终回PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1999887036602302482)
-    > **【修学旅行】公式书发售决定+封面+特典情报** ⇨ [𝕏封面](https://x.com/dramal_abc/status/1999875360746537000)/[ins](https://www.instagram.com/p/DSNb52ok_Cb/)
-    > 特典: 日亚(明信片)/角川(特别封面)/乐天(特典花絮)/711(特典花絮)/两位主演FC ⇨ [𝕏](https://x.com/kadokawa_ls/status/1999875758618296491)
+    > **【修学旅行】公式书发售决定+封面解禁+特典情报**{: .text-red} ⇨ [𝕏封面](https://x.com/dramal_abc/status/1999875360746537000)/[ins](https://www.instagram.com/p/DSNb52ok_Cb/)
+        > 特典: 日亚(明信片)/角川(特别封面)/乐天(特典花絮)/711(特典花絮)/两位主演FC ⇨ [𝕏](https://x.com/kadokawa_ls/status/1999875758618296491)
+    > **【修学旅行】第9话冲到TVer实时榜第3!**{: .text-red} 这周很多黄金档大结局，冲到高位很不容易！⇨ [𝕏](https://x.com/dramal_abc/status/2000196672324878671)
 * **251213**
     > **【修学旅行｜正片】25:00～ 第9话「文化祭、初恋に戸惑う」播出**{: .text-red}
     > **【修学旅行｜SNS｜简秀吉】本日第9话** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1999820284812046778)｜[𝓲简-第2张是新图](https://www.instagram.com/p/DSNC2EMgf3p/)
@@ -1264,11 +1266,10 @@ permalink: /flattened_timeline/
     > **【修学旅行】官方Tiktok小视频** 三天王cha舞KHÔNG-SAO-CẢ ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7571425617262955797)
     > **【修学旅行】公式谷子预约中** 立牌、文件夹、招财猫吊牌 ⇨ [𝕏](https://x.com/dramal_abc/status/1988174750070591661)｜[TT介绍](https://www.tiktok.com/@schooltrip_abc/video/7571390346748366101)/[ins](https://www.instagram.com/p/DQ6SLOHk3ie/)
 * **251110**
-    > **【修学旅行】TVer收藏突破20万!**{: .text-red}
+    > **【修学旅行】TVer收藏突破20万!**{: .text-red} 官推祝贺TVer收藏20万,第4回TVer排名第9！⇨ [𝕏](https://x.com/dramal_abc/status/1987539270152983009)
     > **【修学旅行】官推发花絮照** ⇨ [𝕏日置抱着伴手礼](https://x.com/dramal_abc/status/1987839599134327265)/[ins](https://www.instagram.com/p/DQ3637OE_wa/) 官推透露吃货洸大拍摄时也买了小点心来吃
     > **【修学旅行】官推发切片** ⇨ [𝕏四天王浴衣出场](https://x.com/dramal_abc/status/1987854248303051165)/[ins](https://www.instagram.com/p/DQ4BWbzk6hp/)
     > **【修学旅行】官方Tiktok发切片**  ⇨ [TT雷霆BGM配渡日躺床](https://www.tiktok.com/@schooltrip_abc/video/7571036599874620693)/[ins](https://www.instagram.com/p/DQ31D_rE9pZ/)
-    > **【修学旅行】官推祝贺TVer收藏20万,第4回TVer排名第9！** ⇨ [𝕏](https://x.com/dramal_abc/status/1987539270152983009)
 * **251109**
     > **【修学旅行｜SNS｜简秀吉】第4话感谢帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1987444343322636599)/[𝓲简-有新图](https://www.instagram.com/p/DQ1G5FAgQck/) 全是浴衣狐猪2shot!!
     > **【修学旅行｜SNS｜藤本洸大】第4话怎么样?** ⇨ [𝓲洸❤️](https://www.instagram.com/p/DQ1cK5wARh2/) 「浴衣祭り」日置浴衣大放送;TVer收藏快到20万了~
