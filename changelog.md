@@ -75,6 +75,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO：NEXT 秀洸reels，导演ig，海李X，海李ig，共演们SNS，最后翻DXTEEN和原自分，秀洸FC -->
 
+[ 2026-08-01 ] 补档豆瓣剧楼2
 
 [ 2026-07-31 ] 补档豆瓣剧楼2，补到12月31日(p53)
 
