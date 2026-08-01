@@ -28,7 +28,6 @@ permalink: /solo/
     > **260707 电波手势舞**{: .text-red} ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
 
 ---
-* **260729【FC｜直播】21:00~ 小简直播**{: .text-red}
 * **260717【SNS】小简发小红书** 周一会有新消息~ ⇨ [📕简](http://xhslink.com/o/2IHC8APYxeg)
 * **260716【SNS】小简半夜3点发小红书** 捕风追影太好看了的一个夜晚 ⇨ [📕简](http://xhslink.com/o/6Y7yJ5CxJ10)
 * **260713【FC｜直播】22:15~ 电台直播**{: .text-red} ~30min
@@ -216,7 +215,7 @@ permalink: /solo/
 ---
 * **251128【直播】19:00~ 简秀吉NATSLIVE「成り上がれ！秀吉の野望」配信** 19時~Game配信🎮/21時~Art配信🎨 ⇨ [NATSLIVE](https://x.com/NATSLIVE_app/status/1988894613843648812)
     > **251113 情报解禁** 11/16抽选开票 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1988913593186693437)
-* **251123【SNS】小简发X戴小狗耳朵视频** 今天也辛苦了~收到了很多修仲的感想。狗狗耳朵一摇一摇ing ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992593182232846713)
+* **251123【SNS】小简发推戴小狗耳朵视频** 今天也辛苦了~收到了很多修仲的感想。狗狗耳朵一摇一摇ing ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992593182232846713)
 * **251122【个人活动｜简秀吉】简秀吉上海生日会&见面会「KAN HIDEYOSHI Birthday Fan Meeting in Shang Hai」**{: .text-red} 12:00开场/17:00开场 @上海保利大剧院
     > **251029 官宣** ⇨ [微博](https://weibo.com/8001133179/QbnKevyuD)
     > **251030 物料拍摄花絮** ⇨ [微博](https://weibo.com/8001133179/QbxB8qlXX)
@@ -665,7 +664,6 @@ permalink: /solo/
     > **260330~260405** [𝕏涉谷大屏](https://x.com/blazeprojectmag/status/203808893906474202)
     > **大屏案内** ⇨ [𝕏(3/11)](https://x.com/blazeprojectmag/status/2031572634966831344)
   * **260108【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}「空を飛ぶならどうやって飛ぶか」⇨ [𝓲洸](https://www.instagram.com/p/DTP8089FBwZ/)
-  * **260107【直播】新年ins直播** ⇨ [𝓲洸](https://www.instagram.com/p/DTNhoUziWmG/)
   * **260102 新年抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DTAju6clMOh/)
   * **260101《Higoto》日每(1/1) Instagram Magazine 2026年1月**{: .text-red}
     > 视频: [𝓲宣传视频（1/2）](https://www.instagram.com/reel/DS_wXH0k5Uw/)｜[𝓲BTS1(1/7)](https://www.instagram.com/reel/DTM-fF1E6_8/)｜[𝓲BTS2(1/30)](https://www.instagram.com/reel/DUIRCZSE3Rk/)|[快拍](https://www.instagram.com/stories/highlights/18143485852445431/)
