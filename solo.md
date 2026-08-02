@@ -192,6 +192,7 @@ permalink: /solo/
     > **260220 Preppy编辑部Repo** ⇨ [preppy](https://preppyweb.com/article/18467)
     > **260222 offshot** ⇨ [𝕏](https://x.com/peteralice2026/status/2025514631612240023) with青木柚,佐藤寛太
     > **260302 小简总结** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲简](https://www.instagram.com/p/DVYRSt1gR4O/)
+* **260206 小简ins突破30万粉!**{: .text-red}
 * **260201 三天王聚会** 小简、步汰、海李 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2017922007124652543)｜[𝓲简](https://www.instagram.com/p/DUNqivpgTpE/)
 
 ---
@@ -210,6 +211,7 @@ permalink: /solo/
 ### 2025
 {: #kan2025}
 
+* **251206 小简ins突破20万粉!**{: .text-red}
 * **251201【SNS】小简祝贺原自分登上CDTVライブライブ** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1995458161788989609)
 
 ---
@@ -616,7 +618,6 @@ permalink: /solo/
 * **260214 web采访 推し楽**{: .text-red} ⇨ [「すべてが今の自分につながる」藤本洸大のまっすぐな歩みと、飾らない素顔](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
     > 很有内容的一个采访，对洸大最近演的剧(修仲, 钟表馆, CUT)都问了很多问题
 * **260207 电视剧 ドラドラ大作戦「CUT．編集された世界」开播** 24:40~ 田中健太役 @テレビ朝日 ⇨ [𝕏角色介绍](https://x.com/dramadaisakusen/status/2019606985600090490)
-
 * **260206 BOYS meets logirl#064 登场** 以拍摄为主的网络特辑  ⇨ [图](https://tvablog.tv-asahi.co.jp/reading/logirl/14572/)
 
 ---
@@ -625,6 +626,7 @@ permalink: /solo/
     > **251220 制片人(?)评价** ⇨ [𝕏](https://x.com/GLASGOW15_JP/status/2002215321755927030)
 * **260123 STORY Web采访+应募拍立得**{: .text-red} ⇨ [前篇](https://storyweb.jp/lifestyle/680244/)｜[后篇](https://storyweb.jp/lifestyle/680232/)｜[特別cut集](https://storyweb.jp/lifestyle/680307/) 前篇都在讲小简和修仲，这套造型实在太好看了……
 * **260122 成人式** ⇨ [𝓲洸](https://www.instagram.com/p/DT0CKbZlHwx/)
+* **260121 洸大ins突破20万粉!**{: .text-red}
 * **260117《Blaze》1月号 有你在的天气(1/17)杂志预售**{: .text-red} 首次单独杂志封面！
     > [ABC版(已删除)](https://www.blaze-magazine.com/pd.jsp?id=76), [D版(已删除)](https://www.blaze-magazine.com/pd.jsp?id=61)
     > **260110** [𝓲洸](https://www.instagram.com/p/DTVOYGBlD8P/)发的中文!「小猪🙌」｜[𝕏预告(绿)](https://x.com/blazeprojectmag/status/2009944566502395972)/[ins](https://www.instagram.com/p/DTU-Vsik70Z/)｜[𝕏预告(白)(1/11)](https://x.com/blazeprojectmag/status/2010305674157408418)/[ins](https://www.instagram.com/p/DTXjI85k6bI/)｜[𝕏预告(黑)(1/12)](https://x.com/blazeprojectmag/status/2010669526090993749)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DTaLXWaE69B/) X的图竟然比小红书更大…
@@ -654,7 +656,7 @@ permalink: /solo/
     > **260206** [📕终篇预告+拍立得物料](https://www.xiaohongshu.com/discovery/item/6985dc78000000000a03f825?source=webshare&xhsshare=pc_web&xsec_token=ABCf_EWALyn1y9TQbCLuvRBzZkEeN_r-sKOtcClOtxIik=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2019751588127015104)/[ins](https://www.google.com/search?q=https://www.instagram.com/p/DUanBuEk5tE/)
     > **260207** [📕最后一条拍摄花絮](https://www.xiaohongshu.com/discovery/item/69872c2e000000000c034f4e?source=webshare&xhsshare=pc_web&xsec_token=ABvPmnC-ckcud2P8O947XRj4dAVGkjneEvLJdr1f9CVuU=&xsec_source=pc_share)/[𝕏](https://x.com/blazeprojectmag/status/2020106696014889412)/[ins](https://www.instagram.com/p/DUdLZ2BE_i-/)
     > **260207** [📕戴着小猪发箍的洸大](https://www.xiaohongshu.com/discovery/item/6986c209000000000b008ad5?source=webshare&xhsshare=pc_web&xsec_token=ABHW7YvyQe7TSzOZIHH2ETMXW75AUFUt0KsXqcsahYrpg=&xsec_source=pc_share)
-    > **260211** [𝕏销量播报15000+物料照](https://x.com/blazeprojectmag/status/2021494398811578765)
+    > **260211** [𝕏销量播报15000+物料照](https://x.com/blazeprojectmag/status/2021494398811578765) 「全13か所の大型ビジョン解禁」✨✨
     > **260212~260222** [𝕏新宿大屏](https://x.com/blazeprojectmag/status/2024070685895581700)
     > **260223~260301** [𝕏名古屋大屏](https://x.com/blazeprojectmag/status/2025059718058967370)
     > **260302~260308** [𝕏神户大屏](https://x.com/blazeprojectmag/status/2027233850913620057)
@@ -682,6 +684,7 @@ permalink: /solo/
     > **260105** ⇨ [𝕏年末年始视频(1/5)](https://x.com/JUNON_jp/status/2008010579030819201) 
 * **251218【直播】2025年ありがとうナイトパーティ直播** 2025年感恩会直播, ins10分钟+TC40分钟+个别交流会 ⇨ [ins10分钟直播](https://www.instagram.com/p/DSZvLU1CR4W/)
     > **251205 告知+募集** ⇨ [𝓲洸](https://www.instagram.com/p/DR4FMaSgZWj/) 19:40~インスタライブ（10分間）; 20:00~TCL内にて生配信（40分間）; 配信終了後 個別オンライントーク実施もします❗️
+* **251203 洸大ins突破10万粉!**{: .text-red}
 * **251201【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}「空飛ぶ車に乗ってどこにいくか」⇨ [𝓲洸](https://www.instagram.com/p/DRuKVvfgTE2/)
 * **251201《Higoto日每》(12/1) Instagram Magazine 2025年12月**{: .text-red}
     > 视频: [𝓲宣传视频(12/3)](https://www.instagram.com/reel/DRy6TJ_k4aM/)｜[𝓲BTS(12/16)](https://www.instagram.com/reel/DSUpfjeE_jJ/)
