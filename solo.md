@@ -179,6 +179,8 @@ permalink: /solo/
     > **260316 造型师牧野裕大发图** ⇨ [ins](https://www.instagram.com/p/DV7Ac-Sk9sx/)
 
 ----
+* **260213【SNS】小简和ThomasKong一起拍了手指舞** ⇨ [𝓲简](https://www.instagram.com/reel/DUsqo3GgSOQ/) 小简你是日本BL推广大使吗……
+    > 两位是泰腐《Your Sky》的演员，2月15日出席名古屋“TGC in AICHI・NAGOYA 2026”活动
 * **260209~260302 舞台剧『ピーターとアリス』公演** マイケル・デイヴィス/レジナルド・ハーグリーヴス 2役 
     > 東京公演／東京芸術劇場 プレイハウス 2026年2月9日（月）～2月23日（月・祝）
     > 大阪公演 ／梅田芸術劇場シアター・ドラマシティ 2026年2月28日（土）～3月2日（月）
@@ -193,7 +195,7 @@ permalink: /solo/
     > **260222 offshot** ⇨ [𝕏](https://x.com/peteralice2026/status/2025514631612240023) with青木柚,佐藤寛太
     > **260302 小简总结** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2028422110587285813)｜[𝓲简](https://www.instagram.com/p/DVYRSt1gR4O/)
 * **260206 小简ins突破30万粉!**{: .text-red}
-* **260201 三天王聚会** 小简、步汰、海李 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2017922007124652543)｜[𝓲简](https://www.instagram.com/p/DUNqivpgTpE/)
+* **260202 三天王聚会时拍的卖萌物料** ⇨ [𝓲简](https://www.instagram.com/reel/DUQIANlgRDr/) 小简、步汰、海李2/1吃了饭；小简说“对面两个人爆笑中”
 
 ---
 * **260130《Men's Preppy》3月号(1/30) 杂志发售+联动采访**
@@ -217,7 +219,8 @@ permalink: /solo/
 ---
 * **251128【直播】19:00~ 简秀吉NATSLIVE「成り上がれ！秀吉の野望」配信** 19時~Game配信🎮/21時~Art配信🎨 ⇨ [NATSLIVE](https://x.com/NATSLIVE_app/status/1988894613843648812)
     > **251113 情报解禁** 11/16抽选开票 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1988913593186693437)
-* **251123【SNS】小简发推戴小狗耳朵视频** 今天也辛苦了~收到了很多修仲的感想。狗狗耳朵一摇一摇ing ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992593182232846713)
+* **251127~251128【SNS】小简发泰国旅行vlog** ⇨ [𝓲简(11/27)](https://www.instagram.com/reel/DRjrUjTAaya/)｜[𝓲简(11/28)](https://www.instagram.com/reel/DRmQmaogUvE/)｜也发了ins:[𝓲简(11/26)](https://www.instagram.com/p/DRhHsvfgWl3/)
+* **251123【SNS】小简发戴小狗耳朵视频** 今天也辛苦了~收到了很多修仲的感想。狗狗耳朵一摇一摇ing ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992593182232846713)
 * **251122【个人活动｜简秀吉】简秀吉上海生日会&见面会「KAN HIDEYOSHI Birthday Fan Meeting in Shang Hai」**{: .text-red} 12:00开场/17:00开场 @上海保利大剧院
     > **251029 官宣** ⇨ [微博](https://weibo.com/8001133179/QbnKevyuD)
     > **251030 物料拍摄花絮** ⇨ [微博](https://weibo.com/8001133179/QbxB8qlXX)
@@ -245,6 +248,7 @@ permalink: /solo/
     > **251019 抽签周边活动本日开始** 10/19~11/1 raffle-kuji ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1979829209750253593)｜[𝕏应募送E赏](https://x.com/Raffle_info/status/1979744425938169999)
 * **251015《月刊わんこ》vol.23(10/15) 杂志发售** 小简底封 ⇨ [详情](https://gekkanwanko.kawaiishop.jp/items/124496797)
     > **251008 小简发推宣传** ⇨ [𝕏简-封底](https://x.com/kan_hideyoshi/status/1975865522408632474)/[𝓲简-有新图](https://www.instagram.com/p/DPi1DwwgdX0/)
+* **251012【SNS】某日化妆中的自拍小视频** ⇨ [𝓲简](https://www.instagram.com/reel/DPtJlqrgYGD/)
 * **251008《TVstation》22号(10/8) 杂志发售**
     > **251007 情报解禁** ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)
 * **251002【SNS】小简发ins日常照片** ⇨ [𝓲简](https://www.instagram.com/p/DPTmTG0ARQ4/)
@@ -287,7 +291,7 @@ permalink: /solo/
 <!-- ｜[𝓲简](https://www.instagram.com/p/DCL-w4ATLjV/) -->
 * **241109 综艺「芸能人が本気で考えた！ドッキリGP」播出**「ヒーロー俳優は悪者からアイドルを助けるか？」@フジテレビ
 * **241030 书籍「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」封面模特** ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)
-* **241029 杂志登场「GIANNA BOYFRIEND #06」发售** ⇨ [𝕏小简采访](https://x.com/GIANNABOYFRIEND/status/1851093658298372469)
+* **241029 杂志登场「GIANNA BOYFRIEND #06」发售** ⇨ [𝕏花絮采访](https://x.com/GIANNABOYFRIEND/status/1851093658298372469)/[𝓲简](https://www.instagram.com/reel/DBsV0ois4gg/)
 * **241027 简秀吉22岁大阪生日会&见面会**{: .text-red} 13:30開演／17:00開演 @T・Bホール
 * **241023 小简22岁生日!**{: .text-red}
 * **241020 简秀吉22岁东京生日会&见面会**{: .text-red} 13:30開演／17:00開演 @青山グランドホール

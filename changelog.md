@@ -22,7 +22,7 @@ layout: page
 
 #### 建设中...
 
-*目前时间线暂时没有整理的部分包括: 简洸ins除post之外的部分(reels, story, highlight，转发), 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、相关人员、dxteen账号*{: .text-small}
+*目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins reels/story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、导演ins、相关人员、dxteen账号*{: .text-small}
 
 <!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
@@ -75,7 +75,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO：NEXT 秀洸reels，导演ig，海李X，海李ig，共演们SNS，最后翻DXTEEN和原自分，秀洸FC -->
 
-[ 2026-08-01 ] 补档豆瓣剧楼2完成!!(p87) 从6月8日到7月30日竟然没有没人再去建设了，有点伤心呢……但是没有关系everything都会被站长抓取归档的😊
+[ 2026-08-01 ] 补档豆瓣剧楼2完成!!(p87) 从6月8日到7月30日竟然没有没人再去建设了，有点伤心呢……但是没有关系everything都会被站长抓取归档的😊；补完秀洸ins的reels部分
 
 [ 2026-07-31 ] 补档豆瓣剧楼2，补到12月31日(p53)
 
