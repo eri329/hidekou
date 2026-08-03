@@ -22,7 +22,7 @@ layout: page
 
 #### 建设中...
 
-*目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins reels/story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、导演ins、相关人员、dxteen账号*{: .text-small}
+*目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、导演ins、相关人员、dxteen账号*{: .text-small}
 
 <!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
@@ -61,8 +61,6 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 演员们的ins：海李快拍+ins https://www.instagram.com/stories/highlights/18057475172133204/ 似乎只有海李发得比较多-->
 
-<!-- 秀洸的reels!!! https://www.instagram.com/hideyoshi_kan_official/reels/ -->
-
 <!-- 251108 有一个洸大快拍发的浴衣口播 -->
 
 <!-- https://www.bilibili.com/video/BV1gC16BLEJb/ b站这个博主！！ -->
@@ -73,7 +71,11 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO：整理修学的所有直播；小猪直播小简陪同情况!!! -->
 
-<!-- TODO：NEXT 秀洸reels，导演ig，海李X，海李ig，共演们SNS，最后翻DXTEEN和原自分，秀洸FC -->
+<!-- TODO：NEXT 海李X，海李ig，共演们SNS，最后翻DXTEEN和原自分，秀洸FC -->
+
+<!-- 录音师：https://x.com/search?q=from%3Atopnotetokyo%20%E3%83%89%E3%83%A9%E3%83%9E%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
+
+[ 2026-08-02 ] 查漏补缺修仲ins的reels部分；补档进藤导演ins；补充【修学旅行】页面演员表信息；补档岩波詩織(杏那)、三浦健人(守崎哥哥)的SNS
 
 [ 2026-08-01 ] 补档豆瓣剧楼2完成!!(p87) 从6月8日到7月30日竟然没有没人再去建设了，有点伤心呢……但是没有关系everything都会被站长抓取归档的😊；补完秀洸ins的reels部分
 

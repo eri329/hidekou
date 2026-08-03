@@ -36,6 +36,7 @@ permalink: /about/
 <!-- - [Loftertag]() -->
 - [豆瓣修学旅行追剧楼1](https://www.douban.com/group/topic/333297011/?_i=5648693TnLQ0nB) 2025/8/8~2025/12/12
 - [豆瓣修学旅行追剧楼2](https://www.douban.com/group/topic/344927387/?_i=5648711TnLQ0nB) 2025/12/12~
+- [修学旅行Wiki](https://ja.wikipedia.org/wiki/%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C%E3%81%A7%E4%BB%B2%E8%89%AF%E3%81%8F%E3%81%AA%E3%81%84%E3%82%B0%E3%83%AB%E3%83%BC%E3%83%97%E3%81%AB%E5%85%A5%E3%82%8A%E3%81%BE%E3%81%97%E3%81%9F)
 
 #### 原作
 - [pixiv:鶉](https://www.pixiv.net/users/87118862)｜[pixiv原小说](https://www.pixiv.net/users/87118862/novels)

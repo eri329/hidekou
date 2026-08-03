@@ -221,7 +221,7 @@ permalink: /solo/
     > **251113 情报解禁** 11/16抽选开票 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1988913593186693437)
 * **251127~251128【SNS】小简发泰国旅行vlog** ⇨ [𝓲简(11/27)](https://www.instagram.com/reel/DRjrUjTAaya/)｜[𝓲简(11/28)](https://www.instagram.com/reel/DRmQmaogUvE/)｜也发了ins:[𝓲简(11/26)](https://www.instagram.com/p/DRhHsvfgWl3/)
 * **251123【SNS】小简发戴小狗耳朵视频** 今天也辛苦了~收到了很多修仲的感想。狗狗耳朵一摇一摇ing ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1992593182232846713)
-* **251122【个人活动｜简秀吉】简秀吉上海生日会&见面会「KAN HIDEYOSHI Birthday Fan Meeting in Shang Hai」**{: .text-red} 12:00开场/17:00开场 @上海保利大剧院
+* **251122 简秀吉上海生日会&见面会「KAN HIDEYOSHI Birthday Fan Meeting in Shang Hai」**{: .text-red} 12:00开场/17:00开场 @上海保利大剧院
     > **251029 官宣** ⇨ [微博](https://weibo.com/8001133179/QbnKevyuD)
     > **251030 物料拍摄花絮** ⇨ [微博](https://weibo.com/8001133179/QbxB8qlXX)
     > **251108 小简微博问候** ⇨ [微博](https://weibo.com/8001133179/QcTUPktzm)
