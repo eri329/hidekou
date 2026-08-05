@@ -43,6 +43,9 @@ permalink: /
 {: #aug2026}
 
 * **260822【修学旅行｜正片】修学旅行TV再放送 第6话**
+* **260820【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
+    > **260729 双人封底登场解禁+特典情报** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2限定店铺双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
+    > **260731 双人特典图解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2083100775400747169)
 * **260810【修学旅行｜双人】修仲夏日同窗会**{: .text-red} ⇨ [活动详情](https://www.mahocast.com/ce/c/124)
     > **260523 情报解禁+抽选开票** 两部15:30/19:00，五人出演(虽然很开心但是等着宣第二季的大家又被溜了……) ⇨ [𝕏](https://x.com/dramal_abc/status/2058020089727947241)/[ins](https://www.instagram.com/p/DYqlGASk3PD/)/[TT](https://www.tiktok.com/@schooltrip_abc/photo/7642954649145707783)
     > **260528 活动说明** 本确+检查行李，祝花不允许使用演员肖像 ⇨ [𝕏](https://x.com/mahocast_jp/status/2059922629214232949)
@@ -95,6 +98,7 @@ permalink: /
 * **260702【修学旅行】ちるちる映像大賞2026投票开始！** 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)/[ins](https://www.instagram.com/p/DaSAWa9E3Xr/)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)
 * **260701【杂志｜简秀吉】《Seventeen》夏号(7/1)杂志发售** 有超绝不经意提到洸大！⚠️注意这本是和女模特的BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
     > #### 小简: 最近让我感到心动的是一件从古着店买的外套。这家店是共演过的藤本洸大介绍给我的，我们都很喜欢衣服，所以经常交流推荐的店铺！—— 又超绝不经意提洸大了！FM上都只说FK了这会儿倒是敢带上四个字大名了！仿佛一种走到哪炫耀到哪的孔雀行为……
+    > **260725 网络特辑** 有提及洸大的文字版，但是也有很多BG图⚠️ ⇨ [直链](https://seventeen-web.jp/lifestyle/l-news/26143/) <span>「この古着屋さんを教えてくれたのは、ドラマで共演した藤本洸大くん。お互いに洋服好きなので、オススメのお店をよく教えあっています！」 </span>{: .text-pink}
 
 ### 2026.6
 {: #jun2026}

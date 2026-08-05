@@ -26,14 +26,14 @@ permalink: /flattened_timeline/
 {: #year2026}
 
 * **261023**
-    > **小简生日**
+    > **小简24岁生日!**{: .text-red}
 * **261011**
     > **【个人活动｜藤本洸大】洸大1st写真集东京签售会**{: .text-solo-k}
 * **261010**
     > **【修学旅行｜正片】修学旅行TV再放送 第10话(最终回)** ※25:00～25:30
     > **【个人活动｜藤本洸大】洸大1st写真集大阪签售会**{: .text-solo-k}
 * **261006**
-    > **洸大生日**
+    > **洸大21岁生日!**{: .text-red}
     > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」发售**{: .text-solo-k}
 * **261003**
     > **【修学旅行｜正片】修学旅行TV再放送 第9话** ※25:00～25:30
@@ -53,26 +53,55 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】修学旅行TV再放送 第6话**
 * **260811**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
+* **260810**
+    > **【修学旅行｜双人】修仲夏日同窗会**{: .text-red}
 * **260808**
     > **【修学旅行｜正片】修学旅行TV再放送 第5话**
+
+<div class="line"></div>
+
+* **260803**
+    > **【个人活动｜简秀吉】小简写真集账号:Coming soon.**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)
+    > **【杂志｜简秀吉】《TV LIFE首都圏版》8/21号(8/3) 杂志发售**{: .text-solo} 不定期巻末企画『Time to Talk』
+    > **【杂志｜简秀吉】《Butter》05(6/30) 拍摄花絮视频2**{: .text-solo} ⇨ [𝕏](https://x.com/Auditionblue/status/2084202870572982605) 戴眼镜的小简；渣画质
 * **260801**
     > **【修学旅行｜正片】修学旅行TV再放送 第4话**
-
 
 ### 2026.7
 {: #jul2026}
 
 * **260731~260809**
     > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ活动开始**{: .text-solo-k} 点单送小卡+现场贩售周边 @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
+* **260731**
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 双人特典图解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2083100775400747169)
+    > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24) 情报解禁+特典解禁**{: .text-solo} ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393)《跌落就完了》剧宣杂；生写特典三随一/全套
 * **260730**
-    > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回**{: .text-solo-k} 19:00~19:45
+    > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第1回**{: .text-solo-k} 19:00~19:45；需要注册 ⇨ [𝕏直播链接](https://x.com/SHOWROOM_jp/status/2082647369854620080)｜[𝕏和嘉宾合照一张](https://x.com/SHOWROOM_jp/status/2082802772664262667)
+* **260729**
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 双人封底登场解禁+特典情报**{: .text-red} ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2限定店铺双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
+    > **【个人活动｜简秀吉】小简写真集账号:Stay tuned.**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)
+    > **【杂志｜简秀吉】《Butter》05(6/30) 拍摄花絮视频1**{: .text-solo} ⇨ [𝕏](https://x.com/Auditionblue/status/2082394448475103613) 全身牛仔
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「一番似てるのだーれ？」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2082299016357060935) 模仿表情包小视频，好可爱的…
+* **260726**
+    > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 情报解禁**{: .text-solo} ⇨ [𝕏](https://x.com/perceneige_mp/status/2081333721639297136)
 * **260725**
     > **【修学旅行｜正片】修学旅行TV再放送 第3话** ※24:25～24:55
-
-<div class="line"></div>
-
+    > **【杂志｜简秀吉】《Seventeen》夏号(7/1) 网络特辑**{: .text-solo} ⇨ [𝕏](https://x.com/SeventeenJP_mag/status/2080971796350631952)｜[直链](https://seventeen-web.jp/lifestyle/l-news/26143/) 图特别多但是BG特辑⚠️
+* **260724**
+    > **【杂志｜简秀吉】《Preppy》8月号(7/1) 应募拍立得**{: .text-solo} ⇨ [𝕏](https://x.com/preppy_magazine/status/2080608937200730304)
+* **260723**
+    > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9) 洸大应募拍立得**{: .text-solo-k} ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2080201255947796930)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「先生は、恋のセコンド」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2080125661881225335) 女生告白版
+    > **【个人活动｜藤本洸大】电影「高校生家族」登场情报解禁!**{: .text-solo-k} ⇨ [𝕏](https://x.com/kokosei_kazoku/status/2080050253051658538) 27年1月8日上映
+* **260722**
+    > **【杂志｜藤本洸大】《JUNON》9月号(7/22) 杂志发售**{: .text-solo-k} ⇨ [𝕏相卡打印](https://x.com/eprintservice/status/2079733164721738190) 逐渐长长的毛栗子头
+* **260721**
+    > **【杂志｜简秀吉】《TV LIFE首都圏版》8/21号(8/3) 特典图解禁**{: .text-solo} ⇨ [𝕏](https://x.com/tv_life/status/2079550436382781774) 很好看的特典
 * **260720**
     > **【修学旅行｜原作】亲妈更新短篇「取引先の渡会さん」** 第三者女性视角。大型梦女遇见国宝级帅哥梦碎现场 ⇨ [privatter](https://privatter.net/p/12016274)
+    > **【个人活动｜简秀吉】小简写真集账号:Incoming.**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2079115174972379233)
+    > **【杂志｜简秀吉】《TV LIFE首都圏版》8/21号(8/3) 情报解禁**{: .text-solo} ⇨ [𝕏](https://x.com/tv_life/status/2079068048351543556) 照片特典三随一
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「エアロビックリス？」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2079037863048757449)/[ins]()「エアロピクルス」是BGM名字；同时融入了剧名ビックリ(“惊奇”)，有点太放飞自我了洸大…！
 * **260718**
     > **【修学旅行】修仲官推祝清水海李生日快乐** 晚了一天233 ⇨ [𝕏](https://x.com/dramal_abc/status/2078387296492224948)｜[ins](https://www.instagram.com/p/Da7TFdFTv7d/)｜[𝕏晚了一天被海李吐槽](https://x.com/kairi_shimizu/status/2078428507110260747)
     > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9) 洸大ins发拍摄花絮照**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/Da7z8a8FN5w/)

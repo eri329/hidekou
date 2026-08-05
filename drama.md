@@ -76,6 +76,7 @@ permalink: /drama/
     > 守崎遼翔 - 三浦健人 *守崎的哥哥*{: .text-small} [Ins](https://www.instagram.com/kento.go/)
     > 2年5組担任（美術科）- 宮島はるか *班主任*{: .text-small}
     > 朝比奈蓮 - 渡口和志 *番外篇日置pocky game的对象；第7话说渡会坏话的男同学*{: .text-small} [X](https://x.com/kazumammostar)/[Ins](https://www.instagram.com/ooops_kazu/)
+    > 真壁伊吹 - 中村克晟 [X](https://x.com/ko47454_kosei) *背景板男同学*{: .text-small}
 * **生日与年龄**
     > **剧中年龄(*修学旅行2025.6.25~6.27*)**
     > 日置朝陽(2008/5/22,17), 渡会紬嵩(2009/2/14, 16), 守崎尚哉(2008/11/26, 16), 仲里晴輝(2008/9/19, 16), 堀田颯斗(2008/6/30, 16)

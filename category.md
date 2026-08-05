@@ -58,6 +58,8 @@ permalink: /category/
 * **251018 修学旅行开播 双人首次直播** <span>⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)</span>{: .text-small}
 
 ## 双人杂志/采访 *[双人杂中译合集(微博)](https://m.weibo.cn/status/5240466527748415)*{: .text-small}
+
+* **260820 TVガイドdan vol.61（双人封底）** <span>两版封底 ⇨ </span>{: .text-small}
 * **260607 Emo!miu采访（web）**<span>Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260501 Preppy 6月号（双人封面）**<span>The Rising Star｜3 look｜20p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2038919236148396458)｜[📕内页(偏差值)](http://xhslink.com/o/8x23da3XYsM)｜[联动采访](https://preppyweb.com/article/26576)</span>{: .text-small}
 * **260420 Retro 双人特刊** <span> ⇨ [📕3版封面+特典set](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)</span>{: .text-small}
@@ -68,7 +70,7 @@ permalink: /category/
 * **251121 月刊TVガイド 1月号** <span>SPECIAL TALK｜修仲校服｜2p ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)｜[📕内页(只想说坏话)](http://xhslink.com/o/8BePGZjH6IF)</span>{: .text-small}
 * **251117 Duet LUXE vol.4** <span>⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)</span>{: .text-small}
 * **251104 CINEMA SQUARE vol.156** <span>秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)</span>{: .text-small}
-* **251031 GIANNA PLUS 06（双人封面封底）** <span>Threads of Connection｜白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271)</span>{: .text-small}
+* **251031 GIANNA PLUS 06（双人封面封底）** <span>Threads of Connection｜白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271)</span>{: .text-small} <span>狐猪单人、双人均首次登上杂志封面</span>{: .text-red}
 * **251030 S Cawaii!特別編集　Pair 尊い二人。** <span> 関西弁の二人の自然な会話。｜格子衬衫/套头衫｜7p ⇨ [𝕏封面](https://x.com/mag_scawaii/status/1978400528234389517)｜[📕内页(雨夜)](http://xhslink.com/o/50XpcAIDbSO)</span>{: .text-small}
 * **251025 Emo!miu采访（web）**<span>应募拍立得｜修仲校服｜21p ⇨[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)</span>{: .text-small}
 * **251023 月刊 TV navi 12月号** <span>修仲校服｜2p ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)｜[📕内页(雨夜)](http://xhslink.com/o/4TTPsTEDoYE)</span>{: .text-small}
@@ -85,6 +87,10 @@ permalink: /category/
 <span>格式: 栏目名｜妆造/主题｜页数 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
+* **260820 TVガイドdan vol.61**{: .text-red}
+* **260826 PERCE NEIGE** <span> ⇨ </span>{: .text-small}
+* **260824 月刊TVガイド 10月号** <span> ⇨ </span>{: .text-small}
+* **260803 TV LIFE首都圏版 8/21号** <span>不定期巻末企画『Time to Talk』⇨ </span>{: .text-small}
 * **260707 andBOY vol.6**{: .text-blue} <span>カレの素顔にクギづけ｜条纹黑西装｜6p ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕内页(喵)](http://xhslink.com/o/84yFhSo4VAQ)</span>{: .text-small}
 * **260701 PREPPY 8月号** <span>新連載 簡秀吉の「MY 4CUT」｜橙色西装(渡会版)｜2p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2066460713368125449)｜[📕内页(小半)](http://xhslink.com/o/6DVnG9ArKC2)｜[web联动](https://preppyweb.com/article/30542)</span>{: .text-small}
 * **260701 Seventeen夏号** <span>カップル胸きゅんストーリー ⚠️BG企画｜浴衣｜3p ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕内页(小半)](http://xhslink.com/o/75zutaSZrNq)</span>{: .text-small}
@@ -147,6 +153,7 @@ permalink: /category/
 <span>格式: 栏目名｜妆造/主题 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
+* **260820 TVガイドdan vol.61**{: .text-red}
 * **260722 JUNON 9月号** <span>喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)｜[📕内页中嵌(bala)](http://xhslink.com/o/3kar4kQF9uz)</span>{: .text-small}
 * **260723 ViVi 9月号** <span>PICK UPイケメン｜0.5p ⇨ [𝕏封面](https://x.com/vivi_magazine/status/2077180231019114802)｜[📕内页(喵)](http://xhslink.com/o/70h4n1PzgRs)</span>{: .text-small}
 * **260710 Emo!miu采访(web)** <span>17p ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)</span>{: .text-small}

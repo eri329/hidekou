@@ -28,12 +28,23 @@ permalink: /solo/
     > **260707 电波手势舞**{: .text-red} ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
 
 ---
-* **260717【SNS】小简发小红书** 周一会有新消息~ ⇨ [📕简](http://xhslink.com/o/2IHC8APYxeg)
+* **260826《PERCE NEIGE》(8/26) 杂志发售**
+    > **260726 情报解禁** ⇨ [𝕏](https://x.com/perceneige_mp/status/2081333721639297136)
+* **260824《月刊TVガイド》10月号(8/24) 杂志发售**《跌落就完了》剧宣杂
+    > **260731 情报解禁** ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393) 生写特典三随一/全套
+* **260817 写真集情报解禁**
+    > **260713【SNS】小简发小红书** 来週、何かきそうな予感🃏 ⇨ [📕简](http://xhslink.com/o/2SVe0TNcKou)
+    > **260717【SNS】小简发小红书** 周一会有新消息~ ⇨ [📕简](http://xhslink.com/o/2IHC8APYxeg)
+    > **260720 写真集初次透露情报** ⇨ [𝕏写真集-Incoming.](https://x.com/kanhideyoshi1st/status/2079115174972379233)
+    > **260727 小简写真集账号:Stay tuned.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)
+    > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)
+* **260803《TV LIFE首都圏版》8/21号(8/3) 杂志发售** 不定期巻末企画『Time to Talk』
+    > **260720 情报解禁** ⇨ [𝕏](https://x.com/tv_life/status/2079068048351543556)
+    > **260721 特典图解禁** 照片特典三随一 ⇨ [𝕏](https://x.com/tv_life/status/2079550436382781774) 这个特典很美!
 * **260716【SNS】小简半夜3点发小红书** 捕风追影太好看了的一个夜晚 ⇨ [📕简](http://xhslink.com/o/6Y7yJ5CxJ10)
 * **260713【FC｜直播】22:15~ 电台直播**{: .text-red} ~30min
-* **260713【SNS】小简发小红书** 来週、何かきそうな予感🃏 ⇨ [📕简](http://xhslink.com/o/2SVe0TNcKou)
-* **260707 MBS电视剧「幸せになりたいマサムネ君」开播** ツバサ役 7月7日(火)MBS‣‣24:59〜 ／TBS‣‣25:26〜 ほか
-    > **260612「幸せになりたいマサムネ君」（7/7）出演情报解禁** ツバサ役;是暗恋女主的男主朋友剧里还另有炮友；女主是洸大在「share」里也暗恋过的女主，好混乱的一锅粥hhh ⇨ [𝓲简-本人告知(图)](https://www.instagram.com/p/DZe1F1-ge14/)｜[𝕏](https://x.com/dramaism_mbs/status/2065373680314802324)｜[角色介绍](https://x.com/dramaism_mbs/status/2065375213085397217)
+* **260707 MBS电视剧「幸せになりたいマサムネ君」开播** 「想要变得幸福的政宗君」ツバサ役 7月7日(火)MBS‣‣24:59〜 ／TBS‣‣25:26〜 ほか
+    > **260612 出演情报解禁** ツバサ役;是暗恋女主的男主朋友剧里还另有炮友；女主是洸大在「share」里也暗恋过的女主，好混乱的一锅粥hhh ⇨ [𝓲简-本人告知(图)](https://www.instagram.com/p/DZe1F1-ge14/)｜[𝕏](https://x.com/dramaism_mbs/status/2065373680314802324)｜[角色介绍](https://x.com/dramaism_mbs/status/2065375213085397217)
     > **260618 进组宣传视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2067585219461620164)/[ins](https://www.instagram.com/reel/DZuiSjAPAMp/)
     > **260622 第1话预告** 00:27~00:30小简出现 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2069000241597280718)
     > **260623 放送2周前宣传视频** 小简with男主 ⇨ [ins](https://www.instagram.com/reel/DZ7HSWKPH9q/)
@@ -47,6 +58,15 @@ permalink: /solo/
     > **260715 第3话预告/剧照** ⇨ [ins预告](https://www.instagram.com/reel/DazsomXvPh4/)｜[ins剧照](https://www.instagram.com/p/Dazs962mYDI)/[𝕏](https://x.com/dramaism_mbs/status/2077318671152881986)
     > **260715 小简和男主Tiktok小视频** ⇨ [TT](https://www.tiktok.com/@dramaism_mbs/video/7662698089332886792)
     > **260718 小简的应募拍立得** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2078462880895365418)/[ins](https://www.instagram.com/p/Da71CzjvTcw/) 他们对谁比较火还是清楚的哈哈
+    > **260721 和男主的offshot** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2079537143534559425)
+    > **260722 第4话预告** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2079868659112304659)｜[𝕏和男主跳舞offshot](https://x.com/dramaism_mbs/status/2079923983449985386)｜[𝕏剧照](https://x.com/dramaism_mbs/status/2079869911703429546) 有很帅的西装小简(代一口社会人渡会…)
+    > **260723 和男主拍的Tiktok** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2080276159871455579) ⚠️较大肢体接触预警
+    > **260723 第3话剧照有男主** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2080247574225920192)
+    > **260726 小简第3话offshot一张** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2081352577749512208)
+    > **260728 和男主宣传今夜第4话放送** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2082095957320274339)
+    > **260729 各种物料** 第3话和男主吃饭花絮 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2082440758473413066)｜第4话和女主吃饭切片 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2082460252017226036)｜第5话预告 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2082440758473413066)｜第5话剧照⇨ [𝕏](https://x.com/dramaism_mbs/status/2082399718953599078)
+    > **260801 小简和女主剧照** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2083511485209428114)
+    > **260804 小简社会人offshot** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2084642332293624228) 帅！！
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260702 DAZN世界杯节目出演** 收费节目
     > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
@@ -68,16 +88,23 @@ permalink: /solo/
         > [𝕏告知](https://x.com/DAZN_JPN/status/2074742900425101397)
         > **小简发ins/X总结最近的DAZN** 有和吉田麻也/矢部浩之的合照 ⇨ [𝓲简](https://www.instagram.com/p/Dah-xq6gYaH/)/[𝕏简](https://x.com/kan_hideyoshi/status/2074826489787523514)
         > **造型师金田健志发图** 两边图略有不同 ⇨ [𝕏](https://x.com/kanedakenshi/status/2074855719309078979)｜[ins](https://www.instagram.com/p/DaiFmTyEy2D)
-* **260701 CTV电视剧「おちたらおわり」开播** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
+* **260701 CTV电视剧「おちたらおわり」开播**「跌倒就完了」桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜
     > **260617 出演情报解禁** 桐ヶ谷カイ役 7/1(水) 24時24分～ ※初回は24時34分〜 ⇨ [𝕏](https://x.com/official_MR8/status/2067224617107038401)｜[𝓲简告知](https://www.instagram.com/p/DZr9A8HAXnV/)
     > **260716 第4话预告小简登场** ⇨ [ins](https://www.instagram.com/p/Da2SrimpqrH/)
+    > **260721 小简海李宣第4话** ⇨ [𝕏](https://x.com/ctv_dorama/status/2079403375041671226)
+    > **260722 小简第4话初登场** 24:24~ ⇨ [𝕏剧照](https://x.com/TVGweb/status/2079763613821362200) 完全大狗狗来的
+    > **260723 小简开机视频** ⇨ [𝕏](https://x.com/ctv_dorama/status/2080231457029849569)｜第5话预告 ⇨ [𝕏](https://x.com/ctv_dorama/status/2080216346475077779)
+    > **260729 外卖小哥剧照一张** ⇨ [𝕏](https://x.com/ctv_dorama/status/2082386004737192273)
+    > **260804 offshot合照一张** ⇨ [𝕏](https://x.com/ctv_dorama/status/2084616834171711787)
 * **260701《Seventeen》夏号(7/1)杂志发售** ⚠️是BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
     > **260705 宣传视频with女模特** ⇨ [ins](https://www.instagram.com/reel/DaZus8rztJE/)
+    > **260725 网络特辑**{: .text-solo} ⇨ [𝕏](https://x.com/SeventeenJP_mag/status/2080971796350631952)｜[直链](https://seventeen-web.jp/lifestyle/l-news/26143/) 图特别多但是BG特辑⚠️
 * **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的新连载, 每期一张自拍+3张其他照片
     > **260527 新连载情报解禁+宣传视频1** ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
     > **260601 宣传视频2** ⇨ [𝕏宣传视频2](https://x.com/preppy_magazine/status/2061387280754053536)
     > **260701 杂志发售** ⇨ [𝓲简](https://www.instagram.com/p/DaPrzrFAUfG/)/[📕简(7/2)](http://xhslink.com/o/93Wx160jDdS)
+    > **260724 应募拍立得** ⇨ [𝕏](https://x.com/preppy_magazine/status/2080608937200730304)
 
 ---
 * **260630《Butter》05(6/30) HMV限定版W封面杂志发售**
@@ -94,6 +121,8 @@ permalink: /solo/
     > **260709 继续图透** 起床中 ⇨ [𝕏](https://x.com/auditionblue/status/2075154241015128130)
     > **260710 继续图透** 咖啡厅 ⇨ [𝕏](https://x.com/auditionblue/status/2075505310673023104)
     > **260717 继续图透** 清晨听音乐 ⇨ [𝕏](https://x.com/auditionblue/status/2078042034523509239)
+    > **260729 拍摄花絮视频1** ⇨ [𝕏](https://x.com/Auditionblue/status/2082394448475103613) 全身牛仔
+    > **260803 拍摄花絮视频2** ⇨ [𝕏](https://x.com/Auditionblue/status/2084202870572982605) 戴眼镜的小简；渣画质
 * **260630【快拍】小简熬夜看球中: 日本vs巴西**
 * **260629【FC｜直播】21꞉15~ 电台直播**{: .text-red} 有提到7/2会上DAZN的世界杯节目，当天节目出演表也出来了。
 * **260629【快拍】2026 ASIAN ARTISTS OF GLOBAL INFLUENCE投票 第二名！** ⇨ [𝕏](https://x.com/GLOBAL_AYA_/status/2071475048502939874)
@@ -287,7 +316,7 @@ permalink: /solo/
 * **241220 电影「【推しの子】 -The Final Act-」上映** 鳴嶋メルト役
 * **241205 电视剧「あざとくて何が悪いの？あざと连ドラ」第5话~登场** 24:45~ @テレビ朝日
 * **241128 电视剧「【推しの子】」上线** 21:00~ 鳴嶋メルト役 @Amazon Prime Video
-* **241110 简秀吉2025年日历发售+纪念活动**{: .text-red} 线上&线下活动均有 @TSUTAYA SHIBUYA ⇨ [活动](https://shibuyatsutaya.tsite.jp/article/446.html)
+* **241110 简秀吉2025年日历发售+纪念活动**{: .text-red} 线上&线下活动均有 @TSUTAYA SHIBUYA ⇨ [活动](https://shiyatsutaya.tsite.jp/article/446.html)
 <!-- ｜[𝓲简](https://www.instagram.com/p/DCL-w4ATLjV/) -->
 * **241109 综艺「芸能人が本気で考えた！ドッキリGP」播出**「ヒーロー俳優は悪者からアイドルを助けるか？」@フジテレビ
 * **241030 书籍「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」封面模特** ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)
@@ -338,6 +367,7 @@ permalink: /solo/
     > **230831 20:30~** 线上签名会 ⇨ [详情](https://www.corazon-store.com/event/2023/07-18/8806/)
     > **230902 发售纪念线下活动DAY1** @HMV&BOOKS SHINSAIBASHI
     > **230903 发售纪念线下活动DAY2** @HMV&BOOKS SHIBUYA
+    > **231028 発売記念&生誕オンライン特典会** 19:00~ ⇨ [🆈Youtube直播](https://www.youtube.com/watch?v=wKvY2kllOlQ)
     > **231104 簡秀吉1st写真集「IKKAN」発売記念 & オンラインタコパ会** 线上章鱼小丸子大会 ⇨ [🆈Youtube直播](https://www.youtube.com/watch?v=wliaq_CDfog)
 <!-- * **230819【直播】ins直播** https://x.com/kan_hideyoshi/status/1692481472928809406 -->
 * **230728【极狐】电影「映画 仮面ライダーギーツ 4人のエースと黒狐」上映** 主演・浮世英寿/仮面ライダーギーツ役
@@ -389,6 +419,9 @@ permalink: /solo/
 ## 藤本 洸大
 {: #kodai .text-solo-k}
 
+* **270108 电影「高校生家族」上映**
+    > **260723 登场情报解禁** ⇨ [𝕏](https://x.com/kokosei_kazoku/status/2080050253051658538)
+
 ### 2026
 {: #kodai2026}
 
@@ -415,6 +448,7 @@ permalink: /solo/
     > **260716 洸大相关情报解禁** ⇨ [𝕏Oricon](https://www.oricon.co.jp/news/2468197/)/[𝕏Emomiu](https://x.com/emo_miu/status/2077645914416845161)/[𝕏推し楽](https://x.com/oshiraku/status/2077645314123812963)
 * **260722【杂志｜藤本洸大】《JUNON》9月号(7/22)杂志发售** 洸大的喜怒哀乐
     > **260717 情报封面解禁** ⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641) 通常版附录A3海报有洸大:塩﨑太智（M!LK）× 藤本洸大
+    > **260722 相卡打印开始** ⇨ [𝕏相卡](https://x.com/eprintservice/status/2079733164721738190) 逐渐长长的毛栗子头
 * **260716【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} 🎨花火大会 ⇨ [𝓲洸](https://www.instagram.com/p/Da2r_zElE19)
 * **260715 ViVi国宝級イケメンランキング ViVi国宝级帅哥榜 洸大入榜NEXT部门第14位**{: .text-red}  ⇨ [vivi](https://www.vivi.tv/special/ikemenranking2026first/next/) 恭喜入榜NEXT(22岁以下)部门!
     > **260717 洸大给中国粉丝的留言** 竟然是中国特供？⇨ [📕](http://xhslink.com/o/3MswOjcvMQ5)/[微博](https://weibo.com/5838045854/5321729318849081)
@@ -429,10 +463,11 @@ permalink: /solo/
     > 问答视频: 相较于采访的老练和冷静，视频反而异常情绪高涨233；最近被人说像蒙奇奇hhh到底为什么会笑得这么开心啊！👀 因为看了恋综想去法国尼斯（伟大的同人老师们听到了吗新梗来了！）
     > **260707 预告+洸大宣传视频** ⇨ [𝕏](https://x.com/jj_official_jj/status/2074328229238968809)/[ins](https://www.instagram.com/reel/DaedUveBa3E) 三连表情包cut可爱！
     > **260710 拍摄花絮视频+应募拍立得** ⇨ [TT花絮](https://www.tiktok.com/@jj_official_1975/video/7660821115564068116)/[ins](https://www.instagram.com/reels/Dam0cHYBVIu/)｜[𝕏拍立得](https://x.com/jj_official_jj/status/2075509238131200262)
-* **260709《FINEBOYS》8月号(7/9)杂志发售** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)
+* **260709《FINEBOYS》8月号(7/9)杂志发售** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099) 偏见眼镜特辑
     > **260702 情报解禁** 眼镜造型 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2072515619237347535)
     > **260709 洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/Dakb3D8SB3p)
     > **260718 洸大ins发拍摄花絮照** ⇨ [𝓲洸](https://www.instagram.com/p/Da7z8a8FN5w/) 完全是另一种风味呢~
+    > **260723 洸大应募拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2080201255947796930)
 * **260707 电视剧「クロスロード 〜救命救急の約束〜」开播**{: .text-red} 真島裕人役(ゲスト出演) 7月7日(火)21:00~ 初回拡大スペシャル @テレビ朝日
     > [📕cut(喵)](http://xhslink.com/o/5aMjwhTT2cS)/[📕中字cut(bala)](http://xhslink.com/o/8SQuWP5mp5v)
     > **260612 ゲスト出演情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DZfBpF_pw0w/)
@@ -461,6 +496,9 @@ permalink: /solo/
     > **260709「食べる女子、好き？」** 洸大的饭都被吃了笑死 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2075051789855097154)/[ins](https://www.instagram.com/reel/Dajl6JGpCOc)
     > **260714「好きぴLINEいつ既読？」** 洸大名字出演233 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2076863645414469637)/[ins](https://www.instagram.com/p/Dawd0KXJWmb/)
     > **260716「OTUKARE」** 跳舞小视频 ⇨ [𝕏](https://x.com/z_drama_ntv/status/2077592727597023384)/[ins](https://www.instagram.com/p/Da1olkENTFY/)
+    > **260720「エアロビックリス？」** cha「エアロピクルス」；同时融入了剧名ビックリ(“惊奇”)，有点太放飞自我了洸大…！⇨ [𝕏](https://x.com/z_drama_ntv/status/2079037863048757449)/[ins]()
+    > **260723「先生は、恋のセコンド」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2080125661881225335) 女生告白版
+    > **260729「一番似てるのだーれ？」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2082299016357060935) 模仿表情包小视频，好可爱的…
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)
