@@ -22,11 +22,11 @@ permalink: /solo/
 * **261031 神户学院大学大学祭 简秀吉talkshow**{: .text-red} 14:00~ @神戸学院大学 ポートアイランドキャンパス B302教室
     > **260717 情报解禁** 外部观众7/25~开票，很便宜而且不是抽选! ⇨ [𝕏](https://x.com/135fes/status/2078038469792903451)｜[ins详情](https://www.instagram.com/p/Da4vcXvkQMo/)
     > **250718 校内申请开放** ⇨ [ins](https://www.instagram.com/p/Da6c-gzE8oy/)
-* **261018 简秀吉24岁生日会&见面会 大宫生日会**{. text-red} 14:30/18:30📍大宮ソニックシティホール大ホール
+* **261018 简秀吉24岁生日会&见面会 大宫生日会**{: .text-red} 14:30/18:30📍大宮ソニックシティホール大ホール
     > **260801 情报解禁** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2083516878979502158)｜[𝕏简-另一条](https://x.com/kan_hideyoshi/status/2083517088162087370)/[ins](https://www.instagram.com/p/DbfvSnlBos-/)/[微博](https://weibo.com/7984735683/RbpjysWCK)
     > **260803 FC先行抽选** 8/3~8/16 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2084222976032137308)｜[𝓲简](https://www.instagram.com/p/DbkwxbgAa8A/)｜[微博](https://weibo.com/7984735683/RbHFRhh0L) 很帅的黑白西装!
----
 
+---
 * **260926 Rakuten GirlsAward 2026秋冬走秀** @幕張メッセ1-3ホール
     > **260806 情报解禁** ⇨ [𝕏](https://x.com/GirlsAward/status/2085581293753151507)
 * **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ

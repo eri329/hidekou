@@ -9,10 +9,15 @@ permalink: /category/
 *根据日期/关键词可以到[【时间线】]({{ site.baseurl }}/index/)或[【个人物料】]({{ site.baseurl }}/solo/)中检索详细内容*
 -->
 
-建设中...
+#### 索引
+* [双人线下活动](#event) ｜ [狐猪见面记录](#meet) ｜ [直播记录](#live)
+* [双人杂志/采访](#two-magazine) ｜ [简秀吉杂志/采访](#kan-magazine) ｜ [藤本洸大杂志/采访](#kou-magazine)
 
+<div class="line"></div>
 
 ## 双人线下活动
+{: #event}
+
 * **260606 修学旅行韩国见面会** 2场
 * **260418 修学旅行台湾见面会** 3场
 * **260329 修学旅行公式书大阪手渡会**
@@ -20,7 +25,11 @@ permalink: /category/
 * **251219 修学旅行最终回先行上映会** 2场
 * **251207 修学旅行快闪店涩谷手渡会**
 
+<div class="line"></div>
+
 ## 狐猪见面记录
+{: #meet}
+
 * **260606~260607 修学旅行韩国见面会** 6/5暂时不知道见面了没有
 * **260417~260419 修学旅行台湾见面会**
 * **260329 修学旅行公式书大阪手渡会**
@@ -54,10 +63,19 @@ permalink: /category/
 * **250901 修仲剧本围读**
 * **25年7月到8月8日前的某一天** 狐猪第一次见面了! *第一次见面时的采访于250917公开*{: .text-small}
 
-## 双人直播
-* **251018 修学旅行开播 双人首次直播** <span>⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)</span>{: .text-small}
+<div class="line"></div>
 
-## 双人杂志/采访 *[双人杂中译合集(微博)](https://m.weibo.cn/status/5240466527748415)*{: .text-small}
+## 直播记录
+{: #live}
+*修仲相关直播*{: .text-small}
+
+* **251018 修学旅行开播 双人首次直播**{: .text-red} <span>⇨ [ins直播](https://www.instagram.com/reels/DP9BEdCE9EE/)｜[b站(中字)](https://www.bilibili.com/video/BV1CpCuB6ErV)</span>{: .text-small}
+
+<div class="line"></div>
+
+## 双人杂志/采访
+{: #two-magazine}
+*[双人杂中译合集(微博)](https://m.weibo.cn/status/5240466527748415)*{: .text-small}
 
 * **260820 TVガイドdan vol.61（双人封底）** <span>两版封底 ⇨ </span>{: .text-small}
 * **260607 Emo!miu采访（web）**<span>Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}

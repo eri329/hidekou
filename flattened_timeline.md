@@ -63,6 +63,8 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 7/13, 8/26 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
 * **260822**
     > **【修学旅行｜正片】修学旅行TV再放送 第6话**
+* **260820**
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
 * **260811**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
 * **260810**
@@ -110,11 +112,11 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】洸大的natslive咖啡厅 洸大のサイコロジーアートカフェ活动开始**{: .text-solo-k} 点单送小卡+现场贩售周边 @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
 * **260731**
     > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 双人特典图解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2083100775400747169)
-    > **【修学旅行】ModelPress日腐「海边名场景」排行榜修仲5位** ⇨ [𝕏](https://x.com/modelpress/status/2080563650025398347) 海沿いで渡会が日置に想いを告げるシーン；渡会海边告白场景
     > **【杂志｜简秀吉】《PREPPY》9月号 杂志发售**{: .text-solo} 連載 簡秀吉の「MY 4CUT」vol.2 ⇨ [𝕏](https://x.com/preppy_magazine/status/2083024863782978001)｜[封面目录](https://heritage-onlineshop.com/products/preppy-202609-1)｜[联动采访](https://preppyweb.com/article/33370)
     > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24) 情报解禁+特典解禁**{: .text-solo} ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[ins](https://www.instagram.com/p/Dbe5TDigYXv/)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393)《跌落就完了》剧宣杂；生写特典三随一/全套
     > **【个人活动｜藤本洸大】神戸女学院大学岡田山祭 藤本洸大talkshow(10/24)情报解禁**{: .text-solo-k} ⇨ [𝕏](https://x.com/festival_kc/status/2083135735197278607) 10月24日(土) 16:30~
     > **【个人活动｜FC｜藤本洸大】修学旅行台湾见面会 洸大的台湾vlog+礼物抽选**{: .text-solo-k} ⇨ [TC](https://sp.tcland.jp/contents/1079501) 应募期间7/31~8/7, 抽8人；洸大在台湾和韩国都给粉丝买了小礼物~
+    > **【修学旅行】ModelPress日腐「海边名场景」排行榜修仲5位**{: .text-other} ⇨ [𝕏](https://x.com/modelpress/status/2080563650025398347) 海沿いで渡会が日置に想いを告げるシーン；渡会海边告白场景
 * **260730**
     > **【修学旅行｜双人】修仲夏日同窗会 ins快拍问题征集** ⇨ [𝕏](https://x.com/dramal_abc/status/2082769741811535936)
     > **【SNS｜简秀吉】超近怼脸自拍**{: .text-solo} ⇨ [𝓲简](https://www.instagram.com/p/DbanU5iAeX1/)
@@ -138,10 +140,10 @@ permalink: /flattened_timeline/
     > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9) 眼镜造型合集视频**{: .text-solo-k} ⇨ [ins](https://www.instagram.com/p/DbNqIkbBUv3/)
     > **【杂志｜藤本洸大】《JUNON》9月号(7/22) 拍摄花絮**{: .text-solo-k} ⇨ [𝕏](https://x.com/JUNON_jp/status/2080850541396033755)/[ins](https://www.instagram.com/p/DbMzJObzGbI/)
 * **260724**
-    > **ModelPress日腐「夏日青春电视剧」排行榜修仲9位**{: .text-other} ⇨ [𝕏](https://x.com/modelpress/status/2080563650025398347)
     > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7) 洸大拍摄offshot**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DbLQZ6FFOSq/)
     > **【杂志｜简秀吉】《Preppy》8月号(7/1) 应募拍立得**{: .text-solo} ⇨ [𝕏](https://x.com/preppy_magazine/status/2080608937200730304)
     > **【个人活动｜简秀吉】2025年东京国际电影节「Thailand Night」泰国之夜活动照片**{: .text-solo} ⇨ [ins一张大合照](https://www.instagram.com/p/DbI__OGkxCH/)
+    > **ModelPress日腐「夏日青春电视剧」排行榜修仲9位**{: .text-other} ⇨ [𝕏](https://x.com/modelpress/status/2080563650025398347)
 * **260723~260819**
     > **【个人活动｜藤本洸大】ViVi国宝级帅哥榜周边Kuji 开售**{: .text-solo-k} 📅販売期間 7月23日(木)12:00〜8月19日(水)23:59 ⇨ [Kuji(只限日本IP访问)](https://kuji.k2cstore.com/lotteries/1384)｜[𝕏洸大吃丸子宣传](https://x.com/vivi_magazine/status/2080187536010592638)/[ins](https://www.instagram.com/p/DbH-x-dyrqW/) 这个吃丸子真的谜之中毒……
 * **260723**
@@ -297,7 +299,6 @@ permalink: /flattened_timeline/
 
 * **260630**
     > **【修学旅行】堀田生日快乐！** ⇨ [𝕏官方](https://x.com/dramal_abc/status/2071715511977828473)/[ins](https://www.instagram.com/p/DaL419jzViO/)｜[𝕏亲妈发推](https://x.com/rcnfe37/status/2071730664228131213)
-    > **【修学旅行】ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位**{: .text-other} ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)/[ins](https://www.instagram.com/reels/DafM_JPSD1O/)
     > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30)杂志发售+小简宣传视频**
         > [ins-封底](https://www.instagram.com/p/DaLJFFQSmDY/)｜[ins-封面](https://www.instagram.com/p/DaLI0yIShk5/) 官号介绍的时候又在捆绑……
         > [𝓲简](https://www.instagram.com/p/DaNVYX_E69S/) 顺便快拍庆祝了第200条post(哥你太有仪式感了)
@@ -307,6 +308,7 @@ permalink: /flattened_timeline/
     > **【杂志｜简秀吉】《Butter》05(6/30) 杂志发售**{: .text-solo} ⇨ [𝕏封面封底特典](https://x.com/auditionblue/status/2071940401678909755)
     > **【杂志｜简秀吉】《FINEBOYS》7月号(6/9) 巧克力造型拍摄花絮**{: .text-solo} ⇨ [ins](https://www.instagram.com/p/DaNEiush5j-/) 超级帅！
     > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」Season2配信决定**{: .text-solo-k} 宣传视频里有洸大~ ⇨ [𝕏](https://x.com/z_drama_ntv/status/2071793462811476317)/[ins](https://www.instagram.com/reels/DaMbr7Hx9qo/)
+    > **【修学旅行】ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位**{: .text-other} ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)/[ins](https://www.instagram.com/reels/DafM_JPSD1O/)
 * **260629**
     > **【杂志｜简秀吉｜藤本洸大】《FINEBOYS+plus FACE》05(6/30) 小简封底look拍摄花絮** ⇨ [ins](https://www.instagram.com/reels/DaKmji7haJU/) 只有10秒
     > **【FC｜直播｜简秀吉】21꞉15~ 小简电台直播**{: .text-solo} 有提到7/2会上DAZN的世界杯节目。当天节目出演表也出来了。
