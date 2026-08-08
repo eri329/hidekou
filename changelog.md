@@ -75,7 +75,9 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 录音师：https://x.com/search?q=from%3Atopnotetokyo%20%E3%83%89%E3%83%A9%E3%83%9E%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
 
-[ 2026-08-03 ~ ] 常规更新WIP
+<!-- https://sp.tcland.jp/contents/special -->
+
+[ 2026-08-03 ~ 2026-08-07 ] 常规更新至8/7
 
 [ 2026-08-02 ] 查漏补缺修仲ins的reels部分；补档进藤导演ins；补充【修学旅行】页面演员表信息；补档岩波詩織(杏那)、三浦健人(守崎哥哥)的SNS
 
