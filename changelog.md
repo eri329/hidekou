@@ -71,11 +71,15 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO：整理修学的所有直播；小猪直播小简陪同情况!!! -->
 
-<!-- TODO：NEXT 海李X，海李ig，守崎ins，XTEEN和原自分，共演们SNS，秀洸FC -->
+<!-- TODO：NEXT: XTEEN和原自分，共演们SNS，秀洸FC -->
 
 <!-- 录音师：https://x.com/search?q=from%3Atopnotetokyo%20%E3%83%89%E3%83%A9%E3%83%9E%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
 
 <!-- https://sp.tcland.jp/contents/special -->
+
+<!-- 准备开一个修学旅行TMI专栏：收录导演密话，录音师密话，拍摄小趣事，狐猪直播/采访时提到的各种趣事，然后把具体笔记内容从时间线移除；DXTEEN小视频专门拿出来 -->
+
+[ 2026-08-08 ~ 2026-08-09 ] 补档清水海李X+Ins, 樱木雅哉Ins, 山田健人Ins, 下村未空Ins, 新井元輝X+Ins
 
 [ 2026-08-03 ~ 2026-08-07 ] 常规更新至8/7
 

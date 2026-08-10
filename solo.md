@@ -264,7 +264,6 @@ permalink: /solo/
     > **260213 特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2022143706569314607)
     > **其他物料** ⇨ [𝕏(2/9)](https://x.com/MensPREPPY/status/2020694148496634272)｜[𝕏(2/21)](https://x.com/MensPREPPY/status/2025042809640595708)｜[𝕏(3/2)](https://x.com/MensPREPPY/status/2028334487172698393)
 * **260127《awesome! Plus》Vol.45(1/27) 杂志发售** 简秀吉xKyle对谈 [𝕏宣传视频](https://x.com/BP25th_awesome/status/2016063724092850629)｜[𝕏宣传(2/10)](https://x.com/BP25th_awesome/status/2021222626396418126)｜[𝓲简-图透(1/24)](https://www.instagram.com/p/DT5Bv2RgRwQ/) 这本物料少得可怜多谢小简自己发图
-* **260109 2026 DXTEEN ARENA LIVE 〜FULL OUT！〜** 小简(以及修仲剧组?)去看了DXTEEN的live ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2009624618139836593)「にっこにっこにー🪄」
 * **260101 新年帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2006668755011776684)｜[𝓲简](https://www.instagram.com/p/DS9tGd7gdps/)｜[𝕏(12/31)](https://x.com/kan_hideyoshi/status/2006318151039164425)
 
 ### 2025
@@ -471,7 +470,7 @@ permalink: /solo/
 ---
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
-* **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸]()
+* **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)
 
 ---
 * **260731~260809 洸大的NATSLIVE咖啡厅 洸大のサイコロジーアートカフェ活动开始** 完全预约制，点单送小卡+现场贩售周边 2026.7.31(金)～8.9(日) @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)
@@ -771,7 +770,7 @@ permalink: /solo/
 * **251231 2025年总结** ⇨ [𝓲洸❤️](https://www.instagram.com/p/DS7V1KtlMxh/) 有一张日置浴衣照~
 * **251225【SNS】洸大宣传菅田将晖live谷当T恤模特/圣诞洸大** ⇨ [𝓲洸](https://www.instagram.com/p/DSrJWPygQjT/)/[tc-ins(12/23)](https://www.instagram.com/p/DSmhGTokjZS/)｜[𝓲洸-圣诞](https://www.instagram.com/p/DSr_hoFFFMA/)
 * **251222《JUNON》2月号(12/22) 杂志发售** ⇨ [杂志详情](https://www.junon-tv.jp/articles/4122) 应该就是在卷头特辑里出现了一下，但是温泉视频有😇 顺说这本msy也登场了哈哈哈好多人啊()
-    > **251219** ⇨ [𝕏附录扑克牌](https://x.com/JUNON_jp/status/2001933983316349067)
+    > **251219 情报解禁** ⇨ [𝕏情报解禁](https://x.com/JUNON_jp/status/2001928554179973423)｜[𝕏附录扑克牌](https://x.com/JUNON_jp/status/2001933983316349067)
     > **251220** ⇨ [𝕏泡温泉花絮(12/20)](https://x.com/JUNON_jp/status/2002333155483922930)｜[𝕏海李也登场了说也取材了修仲相关(12/20)](https://x.com/kairi_shimizu/status/2002229094440972574)
     > **251222** ⇨ [𝕏小卡(12/22)](https://x.com/eprintservice/status/2002906941543043366)
     > **260105** ⇨ [𝕏年末年始视频(1/5)](https://x.com/JUNON_jp/status/2008010579030819201) 
