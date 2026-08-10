@@ -54,6 +54,10 @@ permalink: /
     > **260725 追加亲签小卡特典** ⇨ [𝕏](https://x.com/mahocast_jp/status/2080850531371659760) 购买直播+回放票的各部2名共抽4张秀人合照亲签小卡
     > **260730 ins快拍问题征集** ⇨ [𝕏](https://x.com/dramal_abc/status/2082769741811535936)
     > **260809 狐猪双人宣传**{: .text-red} ⇨ [𝕏](https://x.com/dramal_abc/status/2086414232032350366)/[ins](https://www.instagram.com/p/Db0VPBECopu/) 是第一个动态的短发洸大&简秀吉!应该是6月底拍的预制菜
+
+<details markdown="1">
+<summary><strong>=================== 修学旅行第一季时间线(点击左侧箭头▶展开/收起)===================</strong></summary>
+
 * **260807【修学旅行｜漫画】漫画第11话上线** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2085615062430204333)
 * **260806【杂志｜简秀吉】《TV LIFE》8/21号(8/3) 小简拍TVlife时提到了洸大~**{: .text-red} ⇨ [𝕏](https://x.com/tv_life/status/2085224362559603042)
     > #### 「誌面に目を通していると｢お！洸大やん！｣と#藤本洸大さんのインタビューページを発見🧐藤本さんが“今はかわいいを卒業する時”と話していたことを知ると｢何を言うてんねん🥺！こういうところがかわいいんですよねぇ｣とこの日一番の笑顔を見せていました🤭」这个staff也是嗑美了🤭: 看到洸大采访里说“现在是该从可爱毕业了”时，小简:“他在说什么呢！正是这种地方才可爱呀！”一边露出了当天最灿烂的笑容。（晕过去了）
@@ -1044,6 +1048,9 @@ permalink: /
 ## 2024
 ### 2024.12
 * **241220【修学旅行｜原作】《修学旅行で仲良くないグループに入りました》第一卷发售** ⇨ [𝕏特典小漫画](https://x.com/BeLuckbunko/status/1869888543763656740) <span>萌死……</span>{: .text-pink}
+
+</details>
+
 </div>
 
 <!-- https://www.threads.com/@kai_yingz/post/DTFY5CKkTOj/%E9%95%B7%E8%B0%B7%E5%B7%9D%E7%9B%A3%E7%9D%A3-%E5%88%86%E4%BA%ABafter-story%E5%B9%95%E5%BE%8C%E8%8A%B1%E7%B5%AE-%E6%8E%A8%E6%96%87%E6%88%91%E6%9C%89%E5%B9%B8%E6%93%94%E4%BB%BB%E5%B0%8E%E6%BC%94%E6%88%91%E5%9C%A8%E5%AD%B8%E6%A0%A1%E6%97%85%E8%A1%8C%E4%B8%AD%E8%A2%AB%E5%88%86%E5%88%B0%E4%BA%86%E4%B8%80%E5%80%8B%E7%B3%9F%E7%B3%95%E7%9A%84%E5%B0%8F%E7%B5%84after-story-%E5%89%8D%E7%AF%87%E5%B7%B2%E5%9C%A8fod%E4%B8%8A%E6%9E%B6%E6%92%AD%E5%87%BA%E9%80%99%E6%AC%A1%E7%9A%84%E5%BE%8C%E7%BA%8C%E6%95%85 -->
