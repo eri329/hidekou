@@ -21,9 +21,14 @@
 
     </div>
 
+    <button id="go-top" class="go-top-button" type="button" aria-label="Back to top">
+      <img src="{{ '/assets/arrow-up.png' | relative_url }}" alt="Back to top">
+    </button>
+
     {% if site.javascript_enabled %}
       <script src="{{ '/assets/newTab.js' | relative_url }}"></script>
       <script type="text/javascript" src="{{ '/assets/lightbox.js' | relative_url }}"></script>
+      <script src="{{ '/assets/go-top.js' | relative_url }}"></script>
     {% endif %}
 
   </body>

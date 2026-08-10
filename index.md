@@ -43,8 +43,7 @@ permalink: /
 
 <div class="line"></div>
 
-* **=================== 250810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
-
+* **=================== 260810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
 * **260810【修学旅行｜双人】修仲夏日同窗会**{: .text-red} ⇨ [活动详情](https://www.mahocast.com/ce/c/124) 两部15:30/19:00，五人出演
     > **260523 情报解禁+抽选开票** 虽然很开心但是等着宣第二季的大家又被溜了…… ⇨ [𝕏](https://x.com/dramal_abc/status/2058020089727947241)/[ins](https://www.instagram.com/p/DYqlGASk3PD/)/[TT](https://www.tiktok.com/@schooltrip_abc/photo/7642954649145707783)
     > **260528 活动说明** 本确+检查行李，祝花不允许使用演员肖像 ⇨ [𝕏](https://x.com/mahocast_jp/status/2059922629214232949)
