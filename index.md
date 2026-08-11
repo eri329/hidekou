@@ -56,7 +56,7 @@ permalink: /
     > **260809 狐猪双人宣传**{: .text-red} ⇨ [𝕏](https://x.com/dramal_abc/status/2086414232032350366)/[ins](https://www.instagram.com/p/Db0VPBECopu/) 是第一个动态的短发洸大&简秀吉!应该是6月底拍的预制菜
 
 <details markdown="1">
-<summary><strong>=================== 修学旅行第一季时间线(点击左侧箭头▶展开/收起)===================</strong></summary>
+<summary><strong>=================== 修学旅行第一季时间线(点击此行展开/收起)===================</strong></summary>
 
 * **260807【修学旅行｜漫画】漫画第11话上线** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2085615062430204333)
 * **260806【杂志｜简秀吉】《TV LIFE》8/21号(8/3) 小简拍TVlife时提到了洸大~**{: .text-red} ⇨ [𝕏](https://x.com/tv_life/status/2085224362559603042)
