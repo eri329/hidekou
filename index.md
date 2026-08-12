@@ -21,7 +21,7 @@ permalink: /
 
 ### [2026](#year2026)
 * [2026.1](#jan2026) ｜ [2026.2](#feb2026) ｜ [2026.3](#mar2026) ｜ [2026.4](#apr2026) ｜ [2026.5](#may2026) ｜ [2026.6](#jun2026)
-* [2026.7](#jul2026) ｜ [2026.8](#aug2026) *※第二季启动*{: .text-small .text-red}
+* [2026.7](#jul2026) ｜ [2026.8](#aug2026) *※第二季启动*{: .text-small .text-red} ｜ [2026.9](#sep2026) 
 ### [2025](#year2025)
 * [2025.7](#jul2025) ｜ [2025.8](#aug2025) *※第一季启动*{: .text-small .text-red} ｜ [2025.9](#sep2025) ｜ [2025.10](#oct2025) ｜ [2025.11](#nov2025) ｜ [2025.12](#dec2025)
 
@@ -34,6 +34,12 @@ permalink: /
 
 <!-- <div class="line"></div> -->
 
+### 2026.9
+{: #sep2026}
+
+* **260919【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划
+    > **260810 情报解禁** 8/10~8/23 preorder ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)
+
 ### 2026.8
 {: #aug2026}
 
@@ -43,6 +49,7 @@ permalink: /
 
 <div class="line"></div>
 
+* **260811【修学旅行S2】男团时间步汰和雅哉cha舞**{: .text-other} ⇨ [ins-Our Sky](https://www.instagram.com/p/Db5NJ36PJVn/)｜[ins-火宴](https://www.instagram.com/p/Db5N3HohDwW/)
 * **=================== 260810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
 * **260810【修学旅行S2】第二季放送决定!26年10月17日开播!🎥**{: .text-red #anchor-260810-housou}
     > <span>放送日：10月17日（土）放送スタート　毎週土曜深夜１時</span>{: .text-small}
@@ -50,14 +57,17 @@ permalink: /
     > <span>配信：TVer・ABEMAで見逃し配信。FODでは独占見放題配信</span>{: .text-small}
     > **260803 进藤导演勘景** 发了X和快拍表示正在为今年最后一部BL作品 ⇨ [𝕏](https://x.com/shindo59512/status/2084252382540730556)
     > **Oricon News** ⇨ [X](https://x.com/oricon/status/2086806162826268953)｜[🆈シーズン2制作決定!](https://www.youtube.com/watch?v=sZFAAVU-9Bo) <span>有新的making和同窗会发表S2片段！</span>{: .text-pink}
-    > **官方账号** ⇨ 8:05pm:[𝕏](https://x.com/dramal_abc/status/2086770795356008778) <span>5万点赞2万转发，请看什么叫做普天同庆……</span>{: .text-pink}
-    > **小简全平台官宣** ⇨ 9:17pm:[𝕏简](https://x.com/kan_hideyoshi/status/2086789066029465734) <span>每一条都没有忘记提日置😭</span>{: .text-pink}
-    > #### X:「ただいま渡会紬嵩…全力で渡会紬嵩を生きたいと思っています。よろしくね日置朝陽❤️‍🔥」
-    > **三天王** ⇨ 8:21pm:[𝕏DXTEEN(官宣图)](https://x.com/official_DXTEEN/status/2086775022887301467) <span>和官方X发的图一样但是超高清，DXTEEN[官网](https://dxteen.com/news/detail/2034)里的图更大</span>{: .text-pink}｜8:30pm:[𝕏海李转发官推](https://x.com/kairi_shimizu/status/2086777170928754816)｜8:41pm:[𝕏DXTEEN(合照)](https://x.com/official_DXTEEN/status/2086780042236104805)｜9:00pm:[𝕏原自分(雅哉)-视频](https://x.com/genjibu_sdr/status/2086784627147002308)｜9:55pm:[𝕏DXTEEN(步汰)](https://x.com/official_DXTEEN/status/2086798684906504679)｜10:03pm:[𝕏海李](https://x.com/kairi_shimizu/status/2086800555926868068)｜11:14pm:[TT-步汰-同窗会花絮视频](https://www.tiktok.com/@official_dxteen/video/7672405325479185672) <span>后台vlog!</span>{: .text-pink}
+    > **官方账号** ⇨ 8:05pm:[𝕏](https://x.com/dramal_abc/status/2086770795356008778)/[ins图更大](https://www.instagram.com/p/Db23bDaTPQy/) <span>5万点赞2万转发，请看什么叫做普天同庆……</span>{: .text-pink}
+    > **小简全平台官宣**{: .text-red} ⇨ 9:17pm:[𝕏简](https://x.com/kan_hideyoshi/status/2086789066029465734)｜9:17pm:[𝓲简](https://www.instagram.com/p/Db2_nt4genZ/)｜[📕简](http://xhslink.com/o/3Ixt8T3L4eO)｜[微博](https://weibo.com/7984735683/RcMqCb6Ib)｜[🔒FC-长文+秀洸新图](https://kan-hideyoshi.com/member/photos/626853) <span>各个平台发的图都不一样；但是每一条都是秀洸合照放第一张😭</span>{: .text-pink}
+    > #### X:「ただいま渡会紬嵩…全力で渡会紬嵩を生きたいと思っています。よろしくね日置朝陽❤️‍🔥」ins和X文案差不多加了一句「よろしくです、三天王🫰🏻」小红书&微博:“我回来了，渡会紬嵩。”“我回来了，日置朝阳。” FC: 很真诚的长文，最多也是最认真的一串「ただいま」，谢谢你把修仲放在第一，把日置放在最后。X和FC都只放了一张击掌。是你拿手的手相，是你们的约定，是两个伙伴对彼此的信赖，是再一次开启有修仲、有渡日未来的击掌声。一旦开启修仲模式就会全身心投入成为渡会这一点，真的非常感激……也许洸大是最爱修仲的人，但是小简绝对是最爱渡会最爱渡日的人。cp粉跟到你真的很幸福。
+    > **洸大ins** ⇨ 10:21pm:[𝓲洸](https://www.instagram.com/p/Db3G_vtlNMY/)｜[🔒FC-洸大经纪人记录](https://sp.tcland.jp/contents/1100217) <span>说到活动结束后五个人在后台约定一定要让第二季大获成功!有时间的话也会做同时视听的</span>{: .text-pink}
+    > **三天王** ⇨ 8:21pm:[𝕏DXTEEN(官宣图)](https://x.com/official_DXTEEN/status/2086775022887301467) <span>和官方X发的图一样但是超高清，DXTEEN[官网](https://dxteen.com/news/detail/2034)里的图更大</span>{: .text-pink}｜8:30pm:[𝕏海李转发官推](https://x.com/kairi_shimizu/status/2086777170928754816)｜8:41pm:[𝕏DXTEEN(合照)](https://x.com/official_DXTEEN/status/2086780042236104805)｜9:00pm:[𝕏原自分(雅哉)-视频](https://x.com/genjibu_sdr/status/2086784627147002308)｜9:55pm:[𝕏DXTEEN(步汰)](https://x.com/official_DXTEEN/status/2086798684906504679)｜10:03pm:[𝕏海李](https://x.com/kairi_shimizu/status/2086800555926868068)/10:28pm:[ins海李](https://www.instagram.com/p/Db3H0Fjkidu/)｜10:41pm:[ins雅哉](https://www.instagram.com/p/Db3CSIHTwoy/)｜11:14pm:[TT-步汰-同窗会花絮视频](https://www.tiktok.com/@official_dxteen/video/7672405325479185672)/[ins](https://www.instagram.com/p/Db3NEbDPeXf/) <span>后台vlog!</span>{: .text-pink}
     > **相羽星良发女子组offshot祝贺** ⇨ 10:37pm:[𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
     > **进藤导演快拍** ⇨ 8:24pm:再始動！<span>⬅️还发了一张有五人签名的修仲日历!</span>{: .text-pink}
     > **亲妈发推** ⇨ 9:04pm:[𝕏](https://x.com/RcNfe37/status/2086785872880709811)｜9:08pm:[𝕏](https://x.com/RcNfe37/status/2086786792012021927) 「2は五天王でいきましょう」
-    > **260811 进藤导演/安见导演/长谷川导演发推** [𝕏进藤](https://x.com/shindo59512/status/2087020243734737195)｜安见导演将继续执导S2 ⇨ [𝕏](https://x.com/lennono560/status/2086842055901454387) <span>「写真は夏休み同窓会にこっそり参戦した写真です」⬅️こっそり参戦(偷偷猫猫参加同窗会)也太好笑了</span>{: .text-pink}｜长谷川导演也将继续执导S2 ⇨ [𝕏](https://x.com/hasetaku0227/status/2087065975892156879) <span>「皆さんが本当に喜んでくださっている姿を見て、なぜだか思わず涙が込み上がりました。」导演也很爱修学😭</span>{: .text-pink}
+    > **260811 官方ins发Season2举牌照片/同窗会回放开始** ⇨ [𝕏(无图)](https://x.com/dramal_abc/status/2086983171057635773)/[ins](https://www.instagram.com/p/Db4fZF6z6ck/) <span>大家似乎都是举着自己的代表色哦~好用心的剧组</span>{: .text-pink}
+    > **260811 简秀吉FC限定同窗会vlog** ⇨ [🔒【FC限定】Setlog ～夏休み同窓会編～🎥🌻](https://kan-hideyoshi.com/movies/131205)
+    > **260811 进藤导演/安见导演/长谷川导演发推** [𝕏进藤](https://x.com/shindo59512/status/2087020243734737195)｜[ins进藤](https://www.instagram.com/p/Db4NGfRk6-C/) <span>疑似还有修仲新图!?</span>{: .text-pink}｜安见导演将继续执导S2 ⇨ [𝕏](https://x.com/lennono560/status/2086842055901454387)/[ins图更大](https://www.instagram.com/p/Db3c2_3oGT1/) <span>「写真は夏休み同窓会にこっそり参戦した写真です」⬅️こっそり参戦(偷偷猫猫参加同窗会)也太好笑了</span>{: .text-pink}｜长谷川导演也将继续执导S2 ⇨ [𝕏](https://x.com/hasetaku0227/status/2087065975892156879)/[ins](https://www.instagram.com/p/Db4-YVujxoG/) <span>「皆さんが本当に喜んでくださっている姿を見て、なぜだか思わず涙が込み上がりました。」导演也很爱修学😭</span>{: .text-pink}
 * **260810【修学旅行｜双人】修仲夏日同窗会**{: .text-red} ⇨ [活动详情](https://www.mahocast.com/ce/c/124) 两部15:30/19:00，五人出演
     > **260523 情报解禁+抽选开票** 虽然很开心但是等着宣第二季的大家又被溜了…… ⇨ [𝕏](https://x.com/dramal_abc/status/2058020089727947241)/[ins](https://www.instagram.com/p/DYqlGASk3PD/)/[TT](https://www.tiktok.com/@schooltrip_abc/photo/7642954649145707783)
     > **260528 活动说明** 本确+检查行李，祝花不允许使用演员肖像 ⇨ [𝕏](https://x.com/mahocast_jp/status/2059922629214232949)
@@ -316,7 +326,7 @@ permalink: /
     > **260301 台湾见面会定档4/18** ⇨ [𝕏](https://x.com/dramal_abc/status/2027783353915625940)/[ins](https://www.instagram.com/p/DVTvCWpEUWP/)
     > **260319 GagaOOLala VIP抽奖送票活动** ⇨ [𝕏](https://x.com/gagaoolala/status/2034585681876705708)
     > **260327** [𝕏情报](https://x.com/manga10_tw/status/2037471140638310839)｜[活动详情](https://world.manga10.com/blogs/eventstaiwan/shugakuryokofm2026)
-    > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}｜[FCblog更新](https://kan-hideyoshi.com/member/photos/609823)
+    > [📕简-准备视频](http://xhslink.com/o/1P36D0S1cAs) <span>FC聊天室有发带声音版本;文字:「能够像这样**两个人**一起登台与大家见面，都离不开一直支持我们的你们」</span>{: .text-pink}｜[🔒FCblog更新](https://kan-hideyoshi.com/member/photos/609823)
     > **260418** [yahoo新闻(视频)(look1)(已删除)](https://news.yahoo.co.jp/articles/f9c7570f8d84ec91c48acd7c1b2c8d449b124982)/[𝕏新闻转载](https://x.com/altjdsus__/status/2045481021970514176)｜[修仲公式𝕏](https://x.com/dramal_abc/status/2045480150788456897)
     > **260419** [活动结束双人视频(look3)](https://x.com/dramal_abc/status/2045533082414145674)/[ins](https://www.instagram.com/reels/DXR2vVpEw5f/)
     > **260419** [TC马内甲笔记](https://sp.tcland.jp/contents/1066713) <span>内含洸大准备活动的花絮，特别特别认真的一个好孩子</span>{: .text-pink}
@@ -340,7 +350,7 @@ permalink: /
     > **260424** [𝓲洸-台湾之行](https://www.instagram.com/p/DXg0q0IFB92/)
     > **260506 台湾见面会狐猪合照** 终于被官方(作为box的宣传一环)放出来了！⇨ [𝕏](https://x.com/dramal_abc/status/2052015206650515560)
 * **260413 小简开设小红书账号！** ⇨ [📕简](http://xhslink.com/o/8V1luAlHrSu) 评论区大混战,小简唯一回复的那条评论还被删了｜随即第二条就晒了狐猪获奖的合照❤️ [📕HubAward2025](http://xhslink.com/o/7SUzuoAxAUn) <span>一连5天6条小红书都是回的修仲粉的留言^^</span>{: .text-pink}
-* **260406【直播｜简秀吉】小简FC电台直播**
+* **260406【FC｜直播｜简秀吉】小简FC电台直播**
 * **260403～260503【修学旅行】快闪店in台湾** ⇨ [𝕏](https://x.com/manga10_tw/status/2040006475196838279)
     > **260213 台湾快闪店开设决定** 4/3～5/3 ⇨ [𝕏](https://x.com/manga10_tw/status/2022249397178786247)
 * **260403【修学旅行｜漫画】漫画第7话上线** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2040023553391935838)

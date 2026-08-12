@@ -4,11 +4,12 @@ layout: page
 permalink: /template/
 ---
 
-
+<span></span>{: .text-pink}
 
 > **【杂志｜双人】《TVガイドdan》vol.61(8/20)** ⇨ [𝕏]()
 > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7)** ⇨ [ins]()
 
+> **【个人活动｜简秀吉】小简写真集账号:Dec. 2026**{: .text-solo} ⇨ [𝕏]()
 > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大宫生日会**{: .text-solo} ⇨ [𝕏]()
 > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大阪生日会**{: .text-solo} ⇨ [𝕏]()
 > **【杂志｜简秀吉】《PERCE NEIGE》(8/26)**{: .text-solo} ⇨ [𝕏]()
@@ -30,6 +31,7 @@ permalink: /template/
 > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9)**{: .text-solo-k} ⇨ [ins]()
 
 
+> **【修学旅行S2】**{: .text-other} ⇨ [ins]()
 
 
 

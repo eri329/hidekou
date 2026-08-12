@@ -46,6 +46,7 @@ permalink: /solo/
     > **260720 写真集初次透露情报** ⇨ [𝕏写真集-Incoming.](https://x.com/kanhideyoshi1st/status/2079115174972379233)/[ins](https://www.instagram.com/p/DbAdeAbSBFp/)/[微博](https://weibo.com/7984735683/R9yPAiRnc)
     > **260727 小简写真集账号:Stay tuned.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)/[ins](https://www.instagram.com/p/DbSiK3ISIsA/)
     > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
+    > **260811 小简写真集账号:Dec.2026** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2087087527715053913)/[ins](https://www.instagram.com/p/Db5G8C5y-7_/)/[微博](https://weibo.com/7984735683/RcUd1BHZl)
 * **260812【FC｜直播】21:00~ 小简FC直播**{: .text-red}
 * **260806【FC｜直播】小简FC电台直播**{: .text-red} 对4天后就是同窗会大感震惊233
 * **260806 时尚活动 KENZO POPUP EVENT** ⇨ [𝓲简](https://www.instagram.com/p/DbsgJecAUPj/)
@@ -202,11 +203,11 @@ permalink: /solo/
 
 ---
 * **260423《FINEBOYS》初登场告知** ⇨ [𝕏](https://x.com/fineboys_jp/status/2047262744865587387) ⇨ 详情移步时间线因为洸大也上了这一本XD
-* **260419【FC】FC更新tiktok小视频** ⇨ [FC](https://kan-hideyoshi.com/movies/127454)
+* **260419【FC】FC更新tiktok小视频** ⇨ [🔒FC](https://kan-hideyoshi.com/movies/127454)
 * **260416【FC｜直播】21:00~22:00 FC直播**{: .text-red} ⇨ [📕简-fc直播通知](http://xhslink.com/o/9ZliB6wjR0f)
 * **260413 小简开设小红书账号！**{: .text-red} ⇨ [📕简-新事务所](http://xhslink.com/o/8V1luAlHrSu)｜[📕简-信件地址(4/14)](http://xhslink.com/o/9TtyeW9hcd4)/[微博](https://weibo.com/7984735683/5287699753996083)
 * **260413 小简宣布加入新事务所MR8**{: .text-red} 恭喜!!官网资料很齐全宣传照超级帅! ⇨ [官网](https://mr8.jp/talent/簡秀吉/)｜[𝕏简](https://x.com/kan_hideyoshi/status/2043615442208714846)｜[𝓲简](https://www.instagram.com/p/DXEOgKmAQXo/)｜[小简微博](https://weibo.com/7984735683/5287287484318292)｜[𝕏MR8](https://x.com/official_mr8/status/2043572899869753512)｜[𝓲MR8](https://www.instagram.com/p/DXD7TuDk20e/)｜[Oricon新闻](https://www.oricon.co.jp/news/2448553/full/)
-    > **260417 宣传照拍摄花絮** [FCblog](https://kan-hideyoshi.com/movies/127412)｜[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
+    > **260417 宣传照拍摄花絮** [🔒FCblog](https://kan-hideyoshi.com/movies/127412)｜[𝕏通知](https://x.com/official_MR8/status/2045095455848354103)
     > **260420 造型师牧野裕大发图** 宣材图, 没有新图 ⇨ [ins](https://www.instagram.com/p/DXVb3cpE6bB/)
 * **260401《Preppy》5月号(4/1) 杂志发售 & 海报展告知**{: .text-red}
     > **260218 情报解禁** 封面＆16P ３LOOK ⇨ [𝕏](https://x.com/preppy_magazine/status/2023958811040502198)
@@ -493,6 +494,7 @@ permalink: /solo/
     > **260730 第2周W赏拍立得图透** ⇨ [𝕏](https://x.com/k2c_store/status/2082662475070386195)
     > **260805 洸大宣传视频:第2周结束** ⇨ [𝕏](https://x.com/vivi_magazine/status/2084942426326831310)
     > **260806 第3周W赏拍立得图透** ⇨ [𝕏](https://x.com/k2c_store/status/2085199179576688807)
+    > **260809 洸大的二选一挑战** ⇨ [ins](https://www.instagram.com/p/Db0ZAZfyU1e/) 夏天更想去海边；回到过去更想再来一次运动会；比起“令人安心”更想被人说“好帅!”
 * **260722【杂志｜藤本洸大】《JUNON》9月号(7/22)杂志发售** 洸大的喜怒哀乐
     > **260717 情报封面解禁** ⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641) 通常版附录A3海报有洸大:塩﨑太智（M!LK）× 藤本洸大
     > **260722 相卡打印开始** ⇨ [𝕏相卡](https://x.com/eprintservice/status/2079733164721738190) 逐渐长长的毛栗子头
@@ -585,7 +587,7 @@ permalink: /solo/
     > **260430 一个很短的预告片段** ⇨ [𝕏](https://x.com/eiga_mirai/status/2049790882183037041)
     > **260522 剧组演员发杀青合照** ⇨ [𝓲洸](https://www.instagram.com/p/DYpOtlbgbbW/)
 * **260502《日経エンタテインメント！》6月号(5/2)杂志发售** 今、求められる俳優 ⇨ [𝕏封面](https://x.com/nikkei_ent/status/2050379787701751860)｜[𝕏图透1张](https://x.com/nikkei_ent/status/2050398654159343767)
-* **260501【FC】19:00~ TopCoat五一企划 大西利空×藤本洸大活动花絮公开** ⇨ [FC页面](https://sp.tcland.jp/contents/1069937)
+* **260501【FC】19:00~ TopCoat五一企划 大西利空×藤本洸大活动花絮公开** ⇨ [🔒FC-花絮](https://sp.tcland.jp/contents/1069937)
 
 ---
 * **260428《TV Life》9号(4/28)杂志发售** #今旬コレクション ⇨ [𝕏](https://x.com/tv_life/status/2047504917938753643)｜[详情](https://www.tvlife.jp/latest/787489)
@@ -865,8 +867,8 @@ permalink: /solo/
 * **240817 活动「TopCoat夏祭り 2024~SAITEN～」配信** TC初次有现场观众的直播 16:30開演 @品川インターシティホール
 * **240719 综艺「中居正広の金曜日のスマイルたちへ（金スマ）」20:00~『日本バレー波瀾万丈 なぜこんなに強くなった？』第2弾 短片出演** 西田有志選手役
 * **240712 电视剧「磯部磯兵衛物語～浮世はつらいよ～」开播** 高杉秀才役 @WOWOW
-* **240502 FC「星道。」卒業遠足後編 配信** ⇨ [TC会员限定](https://sp.tcland.jp/movies/98594)
-* **240419 FC「星道。」卒業遠足前編 配信** ⇨ [TC会员限定](https://sp.tcland.jp/movies/98461)
+* **240502 FC「星道。」卒業遠足後編 配信** ⇨ [🔒TC](https://sp.tcland.jp/movies/98594)
+* **240419 FC「星道。」卒業遠足前編 配信** ⇨ [🔒TC](https://sp.tcland.jp/movies/98461)
 <!-- * **240318 MANTAN WEB 揭载** https://www.instagram.com/p/C4o2ja7JkzH/ -->
 * **240315 电影「恋わずらいのエリー」上映** 青葉洸役
     > **240213「恋わずらいのエリー」のバレンタインスペシャルイベント」情人节活动出席**
