@@ -46,6 +46,7 @@ permalink: /solo/
     > **260720 写真集初次透露情报** ⇨ [𝕏写真集-Incoming.](https://x.com/kanhideyoshi1st/status/2079115174972379233)/[ins](https://www.instagram.com/p/DbAdeAbSBFp/)/[微博](https://weibo.com/7984735683/R9yPAiRnc)
     > **260727 小简写真集账号:Stay tuned.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)/[ins](https://www.instagram.com/p/DbSiK3ISIsA/)
     > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
+* **260812【FC｜直播】21:00~ 小简FC直播**{: .text-red}
 * **260806【FC｜直播】小简FC电台直播**{: .text-red} 对4天后就是同窗会大感震惊233
 * **260806 时尚活动 KENZO POPUP EVENT** ⇨ [𝓲简](https://www.instagram.com/p/DbsgJecAUPj/)
 * **260805 时尚活动 Jo Malone London “Sea Salt Adventure”** ⇨ [𝓲简](https://www.instagram.com/p/DbqEK6_gZ1X/)｜[カルマins有一张和小简的合照](https://www.instagram.com/p/Dbp-ikCEjpN/) 小简兔牙消失之恐慌……；カルマ是极狐共演
@@ -468,6 +469,7 @@ permalink: /solo/
     > **260807 封面拍摄花絮** ⇨ [𝕏](https://x.com/JUNON_jp/status/2085697911770185762)/[ins](https://www.instagram.com/p/DbvPpwdi5nC/) 黑豆封面；太可爱了BGM特别搭!
 
 ---
+* **260821【直播】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
 * **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)

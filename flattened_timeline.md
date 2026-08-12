@@ -63,21 +63,44 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 7/13, 8/26 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
 * **260822**
     > **【修学旅行｜正片】修学旅行TV再放送 第6话**
+* **260821**
+    > **【直播｜藤本洸大】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k}
 * **260820**
     > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
 * **260811**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
+* **260812**
+    > **【FC｜直播｜简秀吉】21:00~ 小简FC直播**{: .text-solo}
 
 <div class="line"></div>
 
+* **260811**
+    > **【修学旅行S2】进藤导演发推** ⇨ [𝕏](https://x.com/shindo59512/status/2087020243734737195)
+    > **【修学旅行S2】安见导演发推** 还将继续执导S2! ⇨ [𝕏](https://x.com/lennono560/status/2086842055901454387)「写真は夏休み同窓会にこっそり参戦した写真です」⬅️こっそり参戦(偷偷猫猫参加同窗会)也太可爱了
+    > **【修学旅行S2】长谷川导演发推** 他也将继续执导S2! ⇨ [𝕏](https://x.com/hasetaku0227/status/2087065975892156879) 「皆さんが本当に喜んでくださっている姿を見て、なぜだか思わず涙が込み上がりました。」导演也很爱修学😭
+
+
+* **=================== 260810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
 * **260810**
-    > **【修学旅行｜双人】修仲夏日同窗会**{: .text-red}
+    > **【修学旅行S2】第二季放送决定!26年10月17日开播!🎥**{: .text-red}
+        > 详细记录请看[【时间线】260810]({{ site.baseurl }}/index/#anchor-260810-housou)
+        > **Oricon News** ⇨ [X](https://x.com/oricon/status/2086806162826268953)｜[🆈シーズン2制作決定!](https://www.youtube.com/watch?v=sZFAAVU-9Bo) 有新的making和同窗会发表S2片段！
+        > **官方账号** ⇨ 8:05pm:[𝕏](https://x.com/dramal_abc/status/2086770795356008778) 5万点赞2万转发，请看什么叫做普天同庆……
+        > **小简全平台官宣** 每一条都没有忘记提日置😭 ⇨ 9:17pm:[𝕏简](https://x.com/kan_hideyoshi/status/2086789066029465734)
+        > **三天王** ⇨ 8:21pm:[𝕏DXTEEN(官宣图)](https://x.com/official_DXTEEN/status/2086775022887301467)｜8:30pm:[𝕏海李转发官推](https://x.com/kairi_shimizu/status/2086777170928754816)｜8:41pm:[𝕏DXTEEN(合照)](https://x.com/official_DXTEEN/status/2086780042236104805)｜9:00pm:[𝕏原自分(雅哉)-视频](https://x.com/genjibu_sdr/status/2086784627147002308)｜9:55pm:[𝕏DXTEEN(步汰)](https://x.com/official_DXTEEN/status/2086798684906504679)｜10:03pm:[𝕏海李](https://x.com/kairi_shimizu/status/2086800555926868068)｜11:14pm:[TT-步汰-同窗会花絮视频](https://www.tiktok.com/@official_dxteen/video/7672405325479185672)
+        > **相羽星良发女子组offshot祝贺** ⇨ 10:37pm:[𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
+        > **进藤导演快拍** ⇨ 8:24pm:再始動！⬅️还发了一张有五人签名的修仲日历!
+        > **亲妈发推** ⇨ 9:04pm:[𝕏](https://x.com/RcNfe37/status/2086785872880709811)｜9:08:[𝕏](https://x.com/RcNfe37/status/2086786792012021927) 「2は五天王でいきましょう」
+    > **【修学旅行｜双人】修仲夏日同窗会**{: .text-red} 
+        > 狐猪双人宣传校服版 ⇨ [𝕏](https://x.com/dramal_abc/status/2086700737271365696)
+        > MC森遥香发推 ⇨ [𝕏](https://x.com/mori_haruka_/status/2086784847662760255)
 
 <details markdown="1">
 <summary><strong>=================== 修学旅行第一季时间线(点击此行展开/收起)===================</strong></summary>
 
 * **260809**
     > **【修学旅行｜双人】修仲夏日同窗会 狐猪双人宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/2086414232032350366)/[ins](https://www.instagram.com/p/Db0VPBECopu/) 是第一个动态的短发洸大&简秀吉!应该是6月底拍的预制菜
+    > **【修学旅行】杏那演员发杏那新的offshot**{: .text-other} ⇨ [𝕏](https://x.com/shiori_iwanami/status/2086458616190758957) 嗯嗯大概是知道明天是什么日子所以发了新图XD
 * **260808**
     > **【修学旅行｜正片】修学旅行TV再放送 第5话** ※24:30~
 * **260807**
@@ -97,6 +120,7 @@ permalink: /flattened_timeline/
 * **260804**
     > **【修学旅行】公式书导演/摄影师黑川香草子发ins** 发了很多公式书的图!似乎还有新图 ⇨ [ins](https://www.instagram.com/p/DbnHwXZlIez/)
 * **260803**
+    > **【修学旅行S2】进藤导演发X和快拍表示正在为今年最后一部BL作品勘景** ⇨ [𝕏](https://x.com/shindo59512/status/2084252382540730556)
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 FC先行抽选开始**{: .text-solo} 8/3~8/16 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2084222976032137308)｜[𝓲简](https://www.instagram.com/p/DbkwxbgAa8A/)｜[微博](https://weibo.com/7984735683/RbHFRhh0L) 很帅的黑白西装!
     > **【个人活动｜简秀吉】小简写真集账号:Coming soon.**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
     > **【杂志｜简秀吉】《TV LIFE首都圏版》8/21号(8/3) 杂志发售**{: .text-solo} 不定期巻末企画『Time to Talk』
