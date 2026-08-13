@@ -47,6 +47,7 @@ permalink: /solo/
     > **260727 小简写真集账号:Stay tuned.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)/[ins](https://www.instagram.com/p/DbSiK3ISIsA/)
     > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
     > **260811 小简写真集账号:Dec.2026** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2087087527715053913)/[ins](https://www.instagram.com/p/Db5G8C5y-7_/)/[微博](https://weibo.com/7984735683/RcUd1BHZl)
+* **260812 Emo!miu采访 with清水海李** ⇨ [𝕏](https://x.com/Emo_miu/status/2087466879992700982)｜[𝕏应募拍立得](https://x.com/Emo_miu/status/2087467877230420457)｜[📕海李](http://xhslink.com/o/4nFFmUM4z1e) 电视剧「跌落就完了」剧宣
 * **260812【FC｜直播】21:00~ 小简FC直播**{: .text-red}
 * **260806【FC｜直播】小简FC电台直播**{: .text-red} 对4天后就是同窗会大感震惊233
 * **260806 时尚活动 KENZO POPUP EVENT** ⇨ [𝓲简](https://www.instagram.com/p/DbsgJecAUPj/)
@@ -495,6 +496,8 @@ permalink: /solo/
     > **260805 洸大宣传视频:第2周结束** ⇨ [𝕏](https://x.com/vivi_magazine/status/2084942426326831310)
     > **260806 第3周W赏拍立得图透** ⇨ [𝕏](https://x.com/k2c_store/status/2085199179576688807)
     > **260809 洸大的二选一挑战** ⇨ [ins](https://www.instagram.com/p/Db0ZAZfyU1e/) 夏天更想去海边；回到过去更想再来一次运动会；比起“令人安心”更想被人说“好帅!”
+    > **260812 洸大宣传视频:第3周结束** ⇨ [𝕏](https://x.com/vivi_magazine/status/2087487358304415941)
+    > **260813 第4周W赏宣传** ⇨ [𝕏](https://x.com/k2c_store/status/2087735904169324962)
 * **260722【杂志｜藤本洸大】《JUNON》9月号(7/22)杂志发售** 洸大的喜怒哀乐
     > **260717 情报封面解禁** ⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641) 通常版附录A3海报有洸大:塩﨑太智（M!LK）× 藤本洸大
     > **260722 相卡打印开始** ⇨ [𝕏相卡](https://x.com/eprintservice/status/2079733164721738190) 逐渐长长的毛栗子头

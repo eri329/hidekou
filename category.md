@@ -107,9 +107,10 @@ permalink: /category/
 <span>格式: 栏目名｜妆造/主题｜页数 ⇨ 封面｜内页</span>{: .text-small}
 <!-- <span> ⇨ </span>{: .text-small} -->
 
-* **260820 TVガイドdan vol.61**{: .text-red}
 * **260826 PERCE NEIGE** <span>「おちたらおわり」剧宣｜8p ⇨ </span>{: .text-small}
 * **260824 月刊TVガイド 10月号** <span>「おちたらおわり」剧宣 ⇨ </span>{: .text-small}
+* **260820 TVガイドdan vol.61**{: .text-red} <span>⇨ </span>{: .text-small}
+* **260812 Emo!miu采访(web)** <span>⇨ [簡秀吉×清水海李インタビュー](https://emomiu.jp/news/270288/)</span>{: .text-small}
 * **260803 TV LIFE首都圏版 8/21号** <span>「おちたらおわり」剧宣｜Time to Talk ⇨ [📕内页(偏差值)](http://xhslink.com/o/1X4BAT8Uggl)</span>{: .text-small}
 * **260731 PREPPY 9月号** <span>連載 簡秀吉の「MY 4CUT」vol.2 ⇨ [封面目录](https://heritage-onlineshop.com/products/preppy-202609-1)｜[联动采访](https://preppyweb.com/article/33370)</span>{: .text-small}
 * **260722 TV guide采访(web)** <span>「おちたらおわり」剧宣 ⇨ [簡秀吉×清水海李が沼落ちポイント告白「会いたいのは海李くん」【前編】](https://www.tvguide.or.jp/feature/feature-5053177/)｜[簡秀吉×清水海李が互いの素顔を告白「プライベートではふにゃふにゃ」【後編】](https://www.tvguide.or.jp/feature/feature-5053319/)</span>{: .text-small}

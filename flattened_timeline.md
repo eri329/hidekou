@@ -68,24 +68,28 @@ permalink: /flattened_timeline/
     > **【直播｜藤本洸大】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k}
 * **260820**
     > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
-* **260811**
-    > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
-* **260812**
-    > **【FC｜直播｜简秀吉】21:00~ 小简FC直播**{: .text-solo}
 
 <div class="line"></div>
 
+* **260812**
+    > **【FC｜直播｜简秀吉】21:00~ 小简FC直播**{: .text-solo} 提到第二季是什么时候有信儿的~
+    > **【采访｜简秀吉】emomiu采访 with清水海李**{: .text-solo} ⇨ [𝕏](https://x.com/Emo_miu/status/2087466879992700982)｜[𝕏应募拍立得](https://x.com/Emo_miu/status/2087467877230420457)｜[📕海李](http://xhslink.com/o/4nFFmUM4z1e) 依旧电视剧「跌落就完了」剧宣
+    > **【个人活动｜藤本洸大】ViVi国宝级帅哥榜周边Kuji 洸大宣传视频:第3周结束**{: .text-solo-k} ⇨ [𝕏](https://x.com/vivi_magazine/status/2087487358304415941)
 * **260811**
     > **【修学旅行S2】官方ins发Season2举牌照片/同窗会回放开始** ⇨ [𝕏(无图)](https://x.com/dramal_abc/status/2086983171057635773)/[ins](https://www.instagram.com/p/Db4fZF6z6ck/)
     > **【修学旅行S2】进藤导演发推** ⇨ [𝕏](https://x.com/shindo59512/status/2087020243734737195)｜[ins](https://www.instagram.com/p/Db4NGfRk6-C/) 疑似还有修仲新图!?
     > **【修学旅行S2】安见导演发推** 还将继续执导S2! ⇨ [𝕏](https://x.com/lennono560/status/2086842055901454387)/[ins图更大](https://www.instagram.com/p/Db3c2_3oGT1/)「写真は夏休み同窓会にこっそり参戦した写真です」⬅️こっそり参戦(偷偷猫猫参加同窗会)也太可爱了
     > **【修学旅行S2】长谷川导演发推** 他也将继续执导S2! ⇨ [𝕏](https://x.com/hasetaku0227/status/2087065975892156879)/[ins](https://www.instagram.com/p/Db4-YVujxoG/) 「皆さんが本当に喜んでくださっている姿を見て、なぜだか思わず涙が込み上がりました。」导演也很爱修学😭
     > **【FC｜简秀吉】同窗会vlog** ⇨ [【FC限定】Setlog ～夏休み同窓会編～🎥🌻](https://kan-hideyoshi.com/movies/131205)
+    > **【修学旅行｜双人】修仲夏日同窗会 媒体报道** ⇨ [𝕏mdpr-追加洸大饭撒照片](https://x.com/modelpress/status/2086840801506783327)｜[𝕏TVguide repo-19p](https://x.com/TVGweb/status/2086841768507789782)｜[𝕏theTV-海李步汰](https://x.com/thetvjp/status/2087074225551204382)｜[𝕏preppy发yt视频](https://x.com/preppy_magazine/status/2086950722965512515) 和oricon的视频一样｜以下都没有新图 [𝕏awesome](https://x.com/BP25th_awesome/status/2087044280217206821)/[𝕏crank_in](https://x.com/crank_in_net/status/2086994774268256485)/[𝕏PASH!PLUS](https://x.com/magazine_pash/status/2087054513073221790)
+    > **【修学旅行S2】编辑部宣传/新特典** ⇨ [𝕏BeLuck发表第二季](https://x.com/BeLuckbunko/status/2087084768223789270)｜[𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
+    > **【修学旅行S2】其他贺电** ⇨ [📕海李](http://xhslink.com/o/2ITKn7wpIyU)｜[𝕏Gaga](https://x.com/gagaoolala/status/2087098964265099443)/[𝕏Gaga-Thai](https://x.com/Gagaoolala_Thai/status/2087124555001410027)
+    > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
     > **【个人活动｜简秀吉】小简写真集账号:Dec.2026**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2087087527715053913)/[ins](https://www.instagram.com/p/Db5G8C5y-7_/)/[微博](https://weibo.com/7984735683/RcUd1BHZl)
     > **【修学旅行S2】男团时间步汰和雅哉cha舞**{: .text-other} ⇨ [ins-Our Sky](https://www.instagram.com/p/Db5NJ36PJVn/)｜[ins-火宴](https://www.instagram.com/p/Db5N3HohDwW/)
 * **=================== 260810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
 * **260810**
-    > **【修学旅行S2】第二季放送决定!26年10月17日开播!🎥**{: .text-red}
+    > **【修学旅行S2】㊗重大発表㊗第二季放送决定!26年10月17日开播!🎥**{: .text-red}
         > 详细记录请看[【时间线】260810]({{ site.baseurl }}/index/#anchor-260810-housou)
         > **Oricon News** ⇨ [X](https://x.com/oricon/status/2086806162826268953)｜[🆈シーズン2制作決定!](https://www.youtube.com/watch?v=sZFAAVU-9Bo) 有新的making和同窗会发表S2片段！
         > **官方账号** ⇨ 8:05pm:[𝕏](https://x.com/dramal_abc/status/2086770795356008778)/[ins图更大](https://www.instagram.com/p/Db23bDaTPQy/) 5万点赞2万转发，请看什么叫做普天同庆……
@@ -95,10 +99,11 @@ permalink: /flattened_timeline/
         > **相羽星良发女子组offshot祝贺** ⇨ 10:37pm:[𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
         > **进藤导演快拍** ⇨ 8:24pm:再始動！⬅️还发了一张有五人签名的修仲日历!
         > **亲妈发推** ⇨ 9:04pm:[𝕏](https://x.com/RcNfe37/status/2086785872880709811)｜9:08:[𝕏](https://x.com/RcNfe37/status/2086786792012021927) 「2は五天王でいきましょう」
-    > **【修学旅行】全話イッキ見祭 情报解禁** 13:00~ 电影院放映1-10话+番外一口气看完企划；会有演员的特典评论影片；8/10~8/23 preorder ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)
+    > **【修学旅行】全話イッキ見祭 情报解禁** 13:00~ 电影院放映1-10话+番外一口气看完企划；会有演员的特典评论影片；8/10~8/23 先行抽选；9/12~ 一般开票 ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)｜[𝕏推し楽](https://x.com/oshiraku/status/2086784630821446027)｜[详情](https://prtimes.jp/main/html/rd/p/000002045.000003481.html)
     > **【修学旅行｜双人】修仲夏日同窗会**{: .text-red} 
         > 狐猪双人宣传校服版 ⇨ [𝕏](https://x.com/dramal_abc/status/2086700737271365696)
         > MC森遥香发推 ⇨ [𝕏](https://x.com/mori_haruka_/status/2086784847662760255)
+        > **媒体报道** ⇨ [𝕏Oricon-13p](https://x.com/oricon/status/2086778643230126254)｜[𝕏TVguide-4p](https://x.com/TVGweb/status/2086785597663023340)｜[𝕏theTV-46p](https://x.com/thetvjp/status/2086797179021398304)｜[𝕏mdpr-78p](https://x.com/modelpress/status/2086816800654999758)｜[𝕏natalie-7p](https://x.com/natalie_mu/status/2086793492135895516)｜[𝕏preppy-3p](https://x.com/preppy_magazine/status/2086818600548274185)｜[𝕏emomiu-3p](https://x.com/Emo_miu/status/2086792592994501019)｜[𝕏TDB-9p](https://x.com/talent_databank/status/2086786937369809041)｜以下纯文字转发 [𝕏FOD](https://x.com/fujitvplus/status/2086795596321714183)｜[𝕏chillchill](https://x.com/chillchillbl/status/2086785917545836825)｜[𝕏Men'sPreppy](https://x.com/MensPREPPY/status/2086818600447512616)｜以下其他演员报道 [mdpr-樱木雅哉](https://mdpr.jp/drama/detail/4827441)｜[𝕏theTV-步汰雅哉](https://x.com/thetvjp/status/2086824700353929304)｜[𝕏natalie-步汰雅哉为主-27p](https://x.com/natalie_mu/status/2086827461350928398)/[ins](https://www.instagram.com/p/Db9d0TKoMXt)
 
 <details markdown="1">
 <summary><strong>=================== 修学旅行第一季时间线(点击此行展开/收起)===================</strong></summary>
