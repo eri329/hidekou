@@ -43,8 +43,7 @@ https://x.com/oricon/status/1982015558515392793
 <!-- 11-21 TVguide 1月号
 251206 TVguide 1月号 other cut https://x.com/GEKKAN_TVGUIDE/status/1997159899542004210 -->
 
-<!-- 一些直播！！ 11/24/25 https://www.instagram.com/reel/DRcKSZ3j4JV/
-https://www.instagram.com/dxteen_official/reels/ -->
+<!-- 一些直播！！https://www.instagram.com/dxteen_official/reels/ -->
 
 <!-- https://fan.books.rakuten.co.jp/articles/7871
 https://fan.books.rakuten.co.jp/articles/8545 -->
@@ -55,11 +54,9 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO: https://www.instagram.com/dramal_abc/reposts/;简秀吉ins;洸大ins 基本上就完成大头了!!!接下来的一些计划:修仲图全记录计划 -->
 
-<!-- TODO next: 查漏补缺：WIKI/翻修仲快拍/爬豆瓣楼/ins其他版块/几个修仲直播？/杂志官号/亲妈X/ins@topcoat_staff -->
+<!-- TODO next: 查漏补缺：WIKI/ins其他版块/几个修仲直播？/杂志官号/亲妈X/ins@topcoat_staff -->
 
 <!-- 博主:https://weibo.com/u/2277992341?tabtype=feed -->
-
-<!-- 演员们的ins：海李快拍+ins https://www.instagram.com/stories/highlights/18057475172133204/ 似乎只有海李发得比较多-->
 
 <!-- 251108 有一个洸大快拍发的浴衣口播 -->
 
@@ -81,7 +78,9 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- VIVI在国内平台发的东西，小简小红书 -->
 
-[ 2026-08-12] 整理完同窗会/第二季解禁；常规更新至8/12
+[ 2026-08-13] DXTEEN X 补到2025/10/8；常规更新至8/14下午
+
+[ 2026-08-12] 整理完同窗会/第二季解禁；常规更新至8/13下午
 
 [ 2026-08-11 ] 整理小简全平台发帖；依然没整理完S2官宣💦 应该只剩报道阵了；开始整理🔒FC链接
 

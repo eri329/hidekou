@@ -474,7 +474,7 @@ permalink: /solo/
 * **260821【直播】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
-* **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)
+* **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)/[b站中字(发扬洸大)](https://www.bilibili.com/video/BV1wRgw66ESF/)
 
 ---
 * **260731~260809 洸大的NATSLIVE咖啡厅 洸大のサイコロジーアートカフェ活动开始** 完全预约制，点单送小卡+现场贩售周边 2026.7.31(金)～8.9(日) @NATSLIVE CAFE 表参道店 ⇨ [官网](https://cafe.natslive.jp/collabo91)

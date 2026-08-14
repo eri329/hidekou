@@ -53,6 +53,9 @@ permalink: /category/
     > **250918~250919 修仲拍摄** DAY5-DAY6 旅馆戏 *导演、海李快拍*{: .text-small}
     > **250921 修仲拍摄** 游乐园拍摄 *小简花絮透露*{: .text-small}
     > **250922 修仲拍摄** 雨天场景拍摄 *导演快拍*{: .text-small}
+    > **250922 修仲拍摄** 疑似深大寺拍摄 *DXTEEN群演招募信息*{: .text-small}
+    > **250925或250926 修仲拍摄** 疑似深大寺拍摄 *DXTEEN群演招募信息*{: .text-small}
+    > **250929~250930 修仲拍摄** 山梨县，有客人和工作人员的戏 *DXTEEN群演招募信息*{: .text-small}
     > **250930 修仲拍摄** 久违的学校拍摄 *海李*{: .text-small}
     > **251006 修仲拍摄** 海边拍摄+洸大生日 *洸大在剧组过的生日*{: .text-small}
     > **251012 修仲拍摄** 有教室场景
@@ -79,7 +82,7 @@ permalink: /category/
 {: #two-magazine}
 *[双人杂中译合集(微博)](https://m.weibo.cn/status/5240466527748415)*{: .text-small}
 
-* **260820 TVガイドdan vol.61（双人封底）** <span>两版封底 ⇨ </span>{: .text-small}
+* **260820 TVガイドdan vol.61（双人封底）** <span>两版封底 ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)</span>{: .text-small}
 * **260607 Emo!miu采访（web）**<span>Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)</span>{: .text-small}
 * **260501 Preppy 6月号（双人封面）**<span>The Rising Star｜3 look｜20p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2038919236148396458)｜[📕内页(偏差值)](http://xhslink.com/o/8x23da3XYsM)｜[联动采访](https://preppyweb.com/article/26576)</span>{: .text-small}
 * **260420 Retro 双人特刊** <span> ⇨ [📕3版封面+特典set](https://xhslink.com/o/Ad3Fiss2v13)/[ins](https://www.instagram.com/p/DW_IHoej7IB/)</span>{: .text-small}
@@ -108,7 +111,7 @@ permalink: /category/
 <!-- <span> ⇨ </span>{: .text-small} -->
 
 * **260826 PERCE NEIGE** <span>「おちたらおわり」剧宣｜8p ⇨ </span>{: .text-small}
-* **260824 月刊TVガイド 10月号** <span>「おちたらおわり」剧宣 ⇨ </span>{: .text-small}
+* **260824 月刊TVガイド 10月号** <span>「おちたらおわり」剧宣 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2087835966308549097)</span>{: .text-small}
 * **260820 TVガイドdan vol.61**{: .text-red} <span>⇨ </span>{: .text-small}
 * **260812 Emo!miu采访(web)** <span>⇨ [簡秀吉×清水海李インタビュー](https://emomiu.jp/news/270288/)</span>{: .text-small}
 * **260803 TV LIFE首都圏版 8/21号** <span>「おちたらおわり」剧宣｜Time to Talk ⇨ [📕内页(偏差值)](http://xhslink.com/o/1X4BAT8Uggl)</span>{: .text-small}
@@ -119,7 +122,7 @@ permalink: /category/
 * **260701 PREPPY 8月号** <span>新連載 簡秀吉の「MY 4CUT」｜橙色西装(渡会版)｜2p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2066460713368125449)｜[📕内页(小半)](http://xhslink.com/o/6DVnG9ArKC2)｜[web联动](https://preppyweb.com/article/30542)</span>{: .text-small}
 * **260701 Seventeen夏号** <span>カップル胸きゅんストーリー ⚠️BG企画｜浴衣｜3p ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)｜[📕内页(小半)](http://xhslink.com/o/75zutaSZrNq)</span>{: .text-small}
 * **260630 FINEBOYS+plus FACE（BACK COVER）**{: .text-blue} <span>绿条纹polo+眼镜 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2070107235414384994)｜[𝓲小简封底](https://www.instagram.com/p/DaAdGW9JiGT/)</span>{: .text-small}
-* **260630 Butter05（HMV限定版表紙）**<span>友だち以上恋人未満をやめて新たな関係で再スタート｜红色无袖/全身牛仔 ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)</span>{: .text-small}
+* **260630 Butter05（HMV限定版表紙）**<span>友だち以上恋人未満をやめて新たな関係で再スタート｜红色无袖/全身牛仔｜12p ⇨ [𝕏封面](https://x.com/Auditionblue/status/2069742330542784768)｜[𝕏封底](https://x.com/Auditionblue/status/2069743589697921319)</span>{: .text-small}
 * **260609 FINEBOYS 7月号** <span>ヒデヨシくんをチョコっと。｜巧克力企画｜9p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[📕内页(软糖)](http://xhslink.com/o/6r2QzTJl4nq)｜[fineboys online网络版](https://fineboys-online.jp/fashion/detail.php?id=6194&p=1)</span>{: .text-small}
 * **260607 Emo!miu（web）**{: .text-red}
 * **260602 TVガイドdan vol.60（表紙）**{: .text-blue}<span>Departure｜居家连帽衫｜10p ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/2059183389496992182)｜[𝕏HMV版封底](https://x.com/TVguidePERSON/status/2059184041790980175)｜[📕内页(偏差值)](http://xhslink.com/o/8Xtrx9YpNJy)</span>{: .text-small}

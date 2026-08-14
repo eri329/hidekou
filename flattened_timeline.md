@@ -48,7 +48,7 @@ permalink: /flattened_timeline/
 * **260926**
     > **【个人活动｜简秀吉】Rakuten GirlsAward 2026秋冬走秀**{: .text-solo} @幕張メッセ1-3ホール
 * **260919**
-    > **【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划
+    > **【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划 ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
     > **【个人活动｜简秀吉】TGC 2026秋冬走秀**{: .text-solo} @横浜アリーナ
 * **260912**
     > **【修学旅行｜正片】修学旅行TV再放送 第8话**
@@ -71,7 +71,11 @@ permalink: /flattened_timeline/
 
 <div class="line"></div>
 
+* **260814**
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 狐猪封底解禁** ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862) 太好看了!!
+    > **【FC｜藤本洸大】FC限定同窗会vlog**{: .text-solo-k} ⇨ [𝕏30s切片](https://x.com/topcoat_staff/status/2088099558060421589)/[🔒TC限定-3min完整版](https://sp.tcland.jp/contents/1101097)
 * **260812**
+    > **【修学旅行S2】官网更新新闻** ⇨ [シーズン2放送決定](https://www.asahi.co.jp/schooltrip/news/260812.html)
     > **【FC｜直播｜简秀吉】21:00~ 小简FC直播**{: .text-solo} 提到第二季是什么时候有信儿的~
     > **【采访｜简秀吉】emomiu采访 with清水海李**{: .text-solo} ⇨ [𝕏](https://x.com/Emo_miu/status/2087466879992700982)｜[𝕏应募拍立得](https://x.com/Emo_miu/status/2087467877230420457)｜[📕海李](http://xhslink.com/o/4nFFmUM4z1e) 依旧电视剧「跌落就完了」剧宣
     > **【个人活动｜藤本洸大】ViVi国宝级帅哥榜周边Kuji 洸大宣传视频:第3周结束**{: .text-solo-k} ⇨ [𝕏](https://x.com/vivi_magazine/status/2087487358304415941)
@@ -80,7 +84,7 @@ permalink: /flattened_timeline/
     > **【修学旅行S2】进藤导演发推** ⇨ [𝕏](https://x.com/shindo59512/status/2087020243734737195)｜[ins](https://www.instagram.com/p/Db4NGfRk6-C/) 疑似还有修仲新图!?
     > **【修学旅行S2】安见导演发推** 还将继续执导S2! ⇨ [𝕏](https://x.com/lennono560/status/2086842055901454387)/[ins图更大](https://www.instagram.com/p/Db3c2_3oGT1/)「写真は夏休み同窓会にこっそり参戦した写真です」⬅️こっそり参戦(偷偷猫猫参加同窗会)也太可爱了
     > **【修学旅行S2】长谷川导演发推** 他也将继续执导S2! ⇨ [𝕏](https://x.com/hasetaku0227/status/2087065975892156879)/[ins](https://www.instagram.com/p/Db4-YVujxoG/) 「皆さんが本当に喜んでくださっている姿を見て、なぜだか思わず涙が込み上がりました。」导演也很爱修学😭
-    > **【FC｜简秀吉】同窗会vlog** ⇨ [【FC限定】Setlog ～夏休み同窓会編～🎥🌻](https://kan-hideyoshi.com/movies/131205)
+    > **【FC｜简秀吉】FC限定同窗会vlog** ⇨ [【FC限定】Setlog ～夏休み同窓会編～🎥🌻](https://kan-hideyoshi.com/movies/131205)
     > **【修学旅行｜双人】修仲夏日同窗会 媒体报道** ⇨ [𝕏mdpr-追加洸大饭撒照片](https://x.com/modelpress/status/2086840801506783327)｜[𝕏TVguide repo-19p](https://x.com/TVGweb/status/2086841768507789782)｜[𝕏theTV-海李步汰](https://x.com/thetvjp/status/2087074225551204382)｜[𝕏preppy发yt视频](https://x.com/preppy_magazine/status/2086950722965512515) 和oricon的视频一样｜以下都没有新图 [𝕏awesome](https://x.com/BP25th_awesome/status/2087044280217206821)/[𝕏crank_in](https://x.com/crank_in_net/status/2086994774268256485)/[𝕏PASH!PLUS](https://x.com/magazine_pash/status/2087054513073221790)
     > **【修学旅行S2】编辑部宣传/新特典** ⇨ [𝕏BeLuck发表第二季](https://x.com/BeLuckbunko/status/2087084768223789270)｜[𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
     > **【修学旅行S2】其他贺电** ⇨ [📕海李](http://xhslink.com/o/2ITKn7wpIyU)｜[𝕏Gaga](https://x.com/gagaoolala/status/2087098964265099443)/[𝕏Gaga-Thai](https://x.com/Gagaoolala_Thai/status/2087124555001410027)
@@ -91,7 +95,7 @@ permalink: /flattened_timeline/
 * **260810**
     > **【修学旅行S2】㊗重大発表㊗第二季放送决定!26年10月17日开播!🎥**{: .text-red}
         > 详细记录请看[【时间线】260810]({{ site.baseurl }}/index/#anchor-260810-housou)
-        > **Oricon News** ⇨ [X](https://x.com/oricon/status/2086806162826268953)｜[🆈シーズン2制作決定!](https://www.youtube.com/watch?v=sZFAAVU-9Bo) 有新的making和同窗会发表S2片段！
+        > **Oricon News** ⇨ [X](https://x.com/oricon/status/2086806162826268953)｜[🆈シーズン2制作決定!](https://www.youtube.com/watch?v=sZFAAVU-9Bo)/[b站中字(发扬洸大)](https://www.bilibili.com/video/BV1xvuy68EUe) 有新的making和同窗会发表S2片段！
         > **官方账号** ⇨ 8:05pm:[𝕏](https://x.com/dramal_abc/status/2086770795356008778)/[ins图更大](https://www.instagram.com/p/Db23bDaTPQy/) 5万点赞2万转发，请看什么叫做普天同庆……
         > **小简全平台官宣**{: .text-red} 每一条都没有忘记提日置😭 ⇨ 9:17pm:[𝕏简](https://x.com/kan_hideyoshi/status/2086789066029465734)｜9:17pm:[𝓲简](https://www.instagram.com/p/Db2_nt4genZ/)｜[📕简](http://xhslink.com/o/3Ixt8T3L4eO)｜[微博](https://weibo.com/7984735683/RcMqCb6Ib)｜[🔒FC-长文+秀洸新图](https://kan-hideyoshi.com/member/photos/626853)
         > **洸大ins** ⇨ 10:21pm:[𝓲洸](https://www.instagram.com/p/Db3G_vtlNMY/)｜[🔒FC-洸大经纪人记录](https://sp.tcland.jp/contents/1100217)
@@ -99,9 +103,10 @@ permalink: /flattened_timeline/
         > **相羽星良发女子组offshot祝贺** ⇨ 10:37pm:[𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
         > **进藤导演快拍** ⇨ 8:24pm:再始動！⬅️还发了一张有五人签名的修仲日历!
         > **亲妈发推** ⇨ 9:04pm:[𝕏](https://x.com/RcNfe37/status/2086785872880709811)｜9:08:[𝕏](https://x.com/RcNfe37/status/2086786792012021927) 「2は五天王でいきましょう」
-    > **【修学旅行】全話イッキ見祭 情报解禁** 13:00~ 电影院放映1-10话+番外一口气看完企划；会有演员的特典评论影片；8/10~8/23 先行抽选；9/12~ 一般开票 ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)｜[𝕏推し楽](https://x.com/oshiraku/status/2086784630821446027)｜[详情](https://prtimes.jp/main/html/rd/p/000002045.000003481.html)
+    > **【修学旅行】全話イッキ見祭 情报解禁** 13:00~ 电影院放映1-10话+番外一口气看完企划；会有演员的特典评论影片；8/10~8/23 先行抽选；9/12~ 一般开票 ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)｜[𝕏推し楽](https://x.com/oshiraku/status/2086784630821446027)｜[详情](https://liveviewing.jp/schooltripmatsuri/)
     > **【修学旅行｜双人】修仲夏日同窗会**{: .text-red} 
         > 狐猪双人宣传校服版 ⇨ [𝕏](https://x.com/dramal_abc/status/2086700737271365696)
+        > 调查问卷 ⇨ [Google Form](https://forms.gle/pzBBzu4FFxy3qWxE7) 关于活动、关于修仲、关于第二季的调查问卷!
         > MC森遥香发推 ⇨ [𝕏](https://x.com/mori_haruka_/status/2086784847662760255)
         > **媒体报道** ⇨ [𝕏Oricon-13p](https://x.com/oricon/status/2086778643230126254)｜[𝕏TVguide-4p](https://x.com/TVGweb/status/2086785597663023340)｜[𝕏theTV-46p](https://x.com/thetvjp/status/2086797179021398304)｜[𝕏mdpr-78p](https://x.com/modelpress/status/2086816800654999758)｜[𝕏natalie-7p](https://x.com/natalie_mu/status/2086793492135895516)｜[𝕏preppy-3p](https://x.com/preppy_magazine/status/2086818600548274185)｜[𝕏emomiu-3p](https://x.com/Emo_miu/status/2086792592994501019)｜[𝕏TDB-9p](https://x.com/talent_databank/status/2086786937369809041)｜以下纯文字转发 [𝕏FOD](https://x.com/fujitvplus/status/2086795596321714183)｜[𝕏chillchill](https://x.com/chillchillbl/status/2086785917545836825)｜[𝕏Men'sPreppy](https://x.com/MensPREPPY/status/2086818600447512616)｜以下其他演员报道 [mdpr-樱木雅哉](https://mdpr.jp/drama/detail/4827441)｜[𝕏theTV-步汰雅哉](https://x.com/thetvjp/status/2086824700353929304)｜[𝕏natalie-步汰雅哉为主-27p](https://x.com/natalie_mu/status/2086827461350928398)/[ins](https://www.instagram.com/p/Db9d0TKoMXt)
 
@@ -136,7 +141,7 @@ permalink: /flattened_timeline/
     > **【个人活动｜简秀吉】小简写真集账号:Coming soon.**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
     > **【杂志｜简秀吉】《TV LIFE首都圏版》8/21号(8/3) 杂志发售**{: .text-solo} 不定期巻末企画『Time to Talk』
     > **【杂志｜简秀吉】《Butter》05(6/30) 拍摄花絮视频2**{: .text-solo} ⇨ [𝕏](https://x.com/Auditionblue/status/2084202870572982605)/[ins](https://www.instagram.com/p/Dbkn4CGITZK/) 戴眼镜的小简；渣画质
-    > **【直播｜藤本洸大】洸大ins直播:写真集宣传**{: .text-solo-k} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)
+    > **【直播｜藤本洸大】洸大ins直播:写真集宣传**{: .text-solo-k} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)/[b站中字(发扬洸大)](https://www.bilibili.com/video/BV1wRgw66ESF/)
 * **260802**
     > **【杂志｜藤本洸大】《FINEBOYS》8月号(7/9) 拍摄花絮视频**{: .text-solo-k} ⇨ [ins](https://www.instagram.com/p/DbiQeXfhFw5/)
 * **260801**
@@ -1740,7 +1745,7 @@ permalink: /flattened_timeline/
 * **251009**
     > **【修学旅行】官方Tiktok小视频**{: .text-red} これが渡会紬嵩です；风见野校草；简秀吉自拍中 ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7559141617601465608)/[𝓲简(10/10)](https://www.instagram.com/reel/DPoNG1VgeN8/) ⬅️小简转发:要看哦 [𝕏简](https://x.com/kan_hideyoshi/status/1976224588033032460)
 * **251008**
-    > **【修学旅行】海报视觉图解禁**{: .text-red} ⇨ [𝕏](https://x.com/dramal_abc/status/1975856191751495728)/[ins](https://www.instagram.com/p/DPix4gOE9hD/)/[𝓲简](https://www.instagram.com/p/DPi7K5TAQbJ/)/[𝓲洸](https://www.instagram.com/p/DPjDaZsE4kT/)
+    > **【修学旅行】海报视觉图解禁**{: .text-red} ⇨ [𝕏](https://x.com/dramal_abc/status/1975856191751495728)/[ins](https://www.instagram.com/p/DPix4gOE9hD/)/[𝓲简](https://www.instagram.com/p/DPi7K5TAQbJ/)/[𝓲洸](https://www.instagram.com/p/DPjDaZsE4kT/)/[𝕏DXTEEN](https://x.com/official_DXTEEN/status/1975856198701445315) DXTEEN发的永远最高清
     > **【修学旅行】第1话PR+120s预告解禁** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1975856191671533708)/[ins](https://www.instagram.com/p/DPix0G-EyoG/)/[𝓲洸](https://www.instagram.com/p/DPjA08fE1Lb/)｜[🆈120sPR](https://www.youtube.com/watch?v=pNN4CLmXhwI)
     > **【修学旅行】OP「トレモロ」宣传+樱木雅哉寄语** 本作のために書き下ろされた新曲 ⬅️是专门为修仲写的！⇨ [𝕏](https://x.com/dramal_abc/status/1975856673060446409)/[ins](https://www.instagram.com/p/DPixib-k8sp/)
     > **【修学旅行】进藤导演寄语** ⇨ [𝕏有一张F5拍摄花絮照](https://x.com/dramal_abc/status/1975880030594249177)/[ins](https://www.instagram.com/p/DPi8JQkk-qP/)｜[ins进藤个人](https://www.instagram.com/p/DPi6Qf5kSaI/) 发了洸大生日图和和制作人的合影
@@ -1782,6 +1787,7 @@ permalink: /flattened_timeline/
     > **【修学旅行｜简秀吉】小简提问箱回答问题** 和渡会相似的地方是？➡️有点笨拙的地方；发的照片漏出了狐猪拍立得手机壳!! 
 * **250929**
     > **【修学旅行】公式Youtube频道开设修学专栏** ⇨ [𝕏](https://x.com/dramal_abc/status/1972533524306755726)｜[🆈Youtube Playlist](https://www.youtube.com/playlist?list=PLBSIlhdUJqQpvmrwt22iLQtYjEeFRIung)
+    > **260929~250930 疑似在山梨县某处拍摄有客人和工作人员的戏** DXTEEN招募群演饰演客人和工作人员，地点山梨县某所
     > **【杂志｜双人】《GIANNA PLUS》06(10/31) 情报解禁** 簡秀吉×藤本洸大大特集(26p⬅️后来增加到28p), FASHIONグラビア＋INTERVIEW, 先行予約開始 ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/1972494812697006279)
     > **【杂志｜双人】《TVガイドdan》vol.57(10/16) 特典生写解禁** 7net特典生写真3张随机1张 ⇨ [𝕏](https://x.com/TVguidePERSON/status/1972617542553530581)
 * **250928**
@@ -1792,6 +1798,7 @@ permalink: /flattened_timeline/
 * **250927**
     > **【修学旅行】官推发花絮照** ⇨ [𝕏比👍的渡日](https://x.com/dramal_abc/status/1971896373282066759)/[ins](https://www.instagram.com/p/DPGo6h8ExIr/)
     > **【修学旅行】官方Tiktok小视频** 洸大肘击屏幕中 ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7554755085432065288)
+    > **【修学旅行】ABC活动 推しに出会えるABC〜10月クール番組祭り〜(9/19)在电视上播出** 9月27日(土) 23:00~23:30；修学旅行VTR出演 ⇨ [𝕏](https://x.com/official_DXTEEN/status/1971139868093972702)
     > **【修学旅行｜直播｜藤本洸大】洸大ins直播:修学旅行インスタライブ**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DPG01cUgXAC/) 说到今天也是取材日!小简有来看直播~小简「かわいいなぁ笑」官号和导演也都来了
     > **【修学旅行】进藤导演快拍透露第1话已经编辑完成!**
 * **250926**
@@ -1799,6 +1806,7 @@ permalink: /flattened_timeline/
     > **【SNS｜藤本洸大】大西利空×藤本洸大 縦型動画第二弾 第二話「開花編」**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DOyAXJegZc1/)
 * **250925**
     > **【修学旅行】官推发花絮照** ⇨ [𝕏比剪刀手的渡会](https://x.com/dramal_abc/status/1971183231170187287) ⬅️小简转发:毎日たのしぃ[𝕏简](https://x.com/kan_hideyoshi/status/1971185020506460466)/[ins](https://www.instagram.com/p/DPBkfdxE7xB/)
+    > **【修学旅行】疑似深大寺拍摄**{: .text-off} 9/25或9/26；DXTEEN招募“拝観客役”(寺庙参拜群演)第二弹
     > **【修学旅行｜双人】官方Tiktok小视频** 修仲取材日Take1，戳脸开始！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7553997327388675346) (洸大18号就发过)
     > **【修学旅行｜SNS｜藤本洸大】洸大发狐猪合照宣传小说第2卷10/20发售** ⇨ [𝓲洸❤️](https://www.instagram.com/p/DPBkUo0geBU/) 还是在那个TVdan(TC?)的大楼上
 * **250924**
@@ -1813,7 +1821,8 @@ permalink: /flattened_timeline/
     > **【修学旅行】公式Tiktok开设！** ⇨ [𝕏](https://x.com/dramal_abc/status/1970109234005311872)｜[公式TT](https://www.tiktok.com/@schooltrip_abc)｜[TT第一条](https://www.tiktok.com/@schooltrip_abc/video/7552893853649472786) 五天王两片想手势舞
     > **【修学旅行】官号发五人小框图** ⇨ [ins](https://www.instagram.com/p/DO6A0qyEu_V/)
     > **【杂志｜双人】《TVガイドdan》vol.57(10/16) 情报解禁** 藤本洸大×簡秀吉 ⇨ [𝕏(纯文字)](https://x.com/TVguidePERSON/status/1969960029249032400)
-    > **【修学旅行】进藤快拍说今天拍下雨场景**
+    > **【修学旅行】进藤快拍说今天拍下雨场景**{: .text-off}
+    > **【修学旅行】疑似深大寺拍摄**{: .text-off} DXTEEN招募“拝観客役”(寺庙参拜群演)；深大寺和科技馆仅相隔30分钟，感觉也是有可能一天拍两场戏的()
     > **【修学旅行｜SNS｜藤本洸大】日置offshot + 直播问题募集** ⇨ [𝓲洸](https://www.instagram.com/p/DO55rJ9gdTE/)
 * **250921**
     > **【修学旅行｜采访｜双人】TVer interview之对原作的印象** ⇨ [𝕏-25s预览](https://x.com/dramal_abc/status/1969698810055274687) 完整版见250920的b站存档。
@@ -1828,6 +1837,7 @@ permalink: /flattened_timeline/
     > **【修学旅行】仲里生日快乐！**⇨ [𝕏亲妈发推](https://x.com/RcNfe37/status/1968799086137466996)｜[𝕏官推(图)](https://x.com/dramal_abc/status/1968920526874919133)
     > **【修学旅行】ABC活动 推しに出会えるABC〜10月クール番組祭り〜(9/19)** 修学旅行VTR出演 18:30~19:30 ⇨ [官网](https://tv-evt.abcid.asahi.co.jp/event/14466)｜[b站-疑似修仲VTR(中字)](https://www.bilibili.com/video/BV1o4zYBnEZQ/)
     > **【修学旅行】摄影日志:温泉灯牌/拍摄第6天** ⇨ [𝕏](https://x.com/dramal_abc/status/1968994623834948093) 海李快拍提到今天是DAY6
+    > **【修学旅行】DXTEEN FC招募群演** ⇨ [𝕏1](https://x.com/official_DXTEEN/status/1968842503597211668)｜[𝕏2](https://x.com/official_DXTEEN/status/1968842732178391179) 1️⃣ 9/25或9/26: 还是招募“拝観客役”，深大寺+1 2️⃣ 9/29~9/30: 招募客人和工作人员，地点山梨县某所
     > **【SNS｜简秀吉】小简ins发照片期待一个月后的生日会**{: .text-solo} ⇨ [𝓲简](https://www.instagram.com/p/DOx5EjwgaHO/)
     > **【SNS｜藤本洸大】大西利空×藤本洸大 縦型動画第二弾 第一話「出会編」**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DOyAXJegZc1/)
 * **250918**
@@ -1839,11 +1849,12 @@ permalink: /flattened_timeline/
     > **【修学旅行】进藤快拍/海李快拍/拍摄第5天**{: .text-red} 进藤: 今天去海边拍摄(其实那个旅馆就在海边!)，今天要泡温泉了/海李: 今天是拍摄第5天。海李快拍说这两天(9/18-9/19)都在拍温泉。
 * **250917**
     > **【修学旅行】7:00AM 预告解禁**{: .text-red} ⇨ [𝕏30s预告](https://x.com/dramal_abc/status/1968072404456145403)/[ins](https://www.instagram.com/p/DOrdqTBk45J/)/[𝓲洸❤️](https://www.instagram.com/p/DOs9pS1gcet/)
-    > **【修学旅行｜新闻】ABC Magazine报道 主题曲决定！DXTEEN「両片想い」**{: .text-red} 主题曲&主视觉图&角色定妆&预告解禁 ⇨ [abc-magazine](https://abc-magazine.asahi.co.jp/post-62271/)
+    > **【修学旅行｜新闻】ABC Magazine报道 主题曲决定！DXTEEN「両片想い」**{: .text-red} 主题曲&主视觉图&角色定妆&预告解禁 ⇨ [abc-magazine](https://abc-magazine.asahi.co.jp/post-62271/)｜[𝕏DXTEEN](https://x.com/official_DXTEEN/status/1968072406469423589) 还有一些第1话剧照
     > **【修学旅行｜SNS｜双人】狐猪ins发主视觉图** abc的图更大 ⇨ [𝓲简❤️](https://www.instagram.com/p/DOsuqHHAcoO/)/[𝓲洸-🟦🟩❤️](https://www.instagram.com/p/DOs94LlAfcX/)
     > **【修学旅行｜双人】TVer页面开设&狐猪双人宣传** ⇨ [𝕏-TVer](https://x.com/dramal_abc/status/1968101643062595993)｜[𝕏狐猪双人宣传](https://x.com/dramal_abc/status/1968255390208127461)/[ins](https://www.instagram.com/p/DOsw15_k_VE/) TVer里应该已经放出狐猪第一天见面的采访了（请看250920修仲X发的TVer物料）
 * **250916**
     > **【修学旅行】摄影日志:教室黑板** 官方tag决定！#ドラマ修学旅行 ⇨ [𝕏](https://x.com/dramal_abc/status/1967936662455063018)
+    > **【修学旅行】DXTEEN FC招募9/22群演** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1967793062928847319) 招募“拝観客役”，感觉9/22是去拍深大寺了
 * **250915**
     > **【修学旅行】摄影日志:本日值日生日置** ⇨ [𝕏](https://x.com/dramal_abc/status/1967573297178243352) 这里有玩梗日置的名字和「日直」很像，原作其实也cue了这个点。
 * **250914**
