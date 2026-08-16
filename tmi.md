@@ -17,11 +17,12 @@ permalink: /tmi/
 ### 狐猪
 
 ### 三天王
-<!-- * **第7话：海李说3班的佐藤因为身体太强壮被橄榄球部挖角了** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1995131094283477203)
-* **海李在和步汰、雅哉跳男团舞的时候自称来自「腹筋6LDK」团，粉丝名称「プロテイン」(蛋白质)，推活是锻炼肌肉**  ⇨ [𝕏](https://x.com/kairi_shimizu/status/1998010129682464960) 2333 -->
+
 * **海李在自己的X上简直是一个步汰梦男夸夸狂魔！** 
 * **第6话：真实的海边赛跑结果:洸大跑得超快，海李直接跑海里去了**(清水海李/251128) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1994374185293095145)
     > 海李说跑海里没跟大家说但是悄悄跟摄影师确认了拍摄角度hhhh（为花絮都这么操心！
+* **第6话：洸大生日惊喜幕后**(清水海李/251123) ⇨ [ins](https://www.instagram.com/p/DRXT1txEiaB/)
+    > 今天大家一边拍摄一边给洸大准备生日惊喜非常忙乱；生日蛋糕是中午吃的；这天晚上是满月，天空很漂亮。
 * **第6话：守崎哥哥给步汰买回来的冰淇淋是「NICO大福」**(福田步汰/251123) NICO是DXTEEN的粉丝名! 超级可爱的冰淇淋 ⇨ [ins](https://www.instagram.com/p/DRZNRniD3Vp/)
 * **第5话：堀田超高活力的全力奔跑**(清水海李/251116) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1989736834071769482)
     > 海李说在操场跑步时使出了全力，因为是一早拍的，拍完之后那一天的体力就降为0了hhh
@@ -47,7 +48,7 @@ permalink: /tmi/
 ## 修仲别景
 {: #sidecar}
 
-*※ 此处收集所有演员修仲相关的主要发帖和图频物料*{: .text-small}
+*※ 此处收集所有演员修仲相关的主要发帖和图频物料;转发一般不收集*{: .text-small}
 *※ 纯PR会直接并入首页时间线的修仲事件*{: .text-small}
 *※ 如果有狐猪出镜/可以明确判断出是哪一集的花絮/修仲相关直播，会同时保留在首页时间线*{: .text-small}
 *※ 音乐歌曲相关请看[【修学旅行】音乐]({{ site.baseurl }}/drama#music)*{: .text-small}
@@ -56,11 +57,56 @@ permalink: /tmi/
 
 ### 清水海李
 
-* **251124 海李晒手机屏保是仲里** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1992837060592648420/) 前情是海李问大家「メロい」是什么意思([𝕏](https://x.com/kairi_shimizu/status/1992601164358340760))，知道了以后就发了这条推说原来这就是メロい……俩正经恋爱主角都没你会卖!!
+※ 海李转了很多官推，活人感很强
+
+* **260810 夏日同窗会&修仲第二季!** ⇨ [𝕏海李](https://x.com/kairi_shimizu/status/2086800555926868068)/[ins海李](https://www.instagram.com/p/Db3H0Fjkidu/)
+    > 「皆様の声が確実に届きましたよ！みんなありがとう！堀田進級できたぞ！よくやった！🔥よりパワーアップした"修仲"をお届けできるよう一丸となって撮影臨んでいきます！」海李心心念念的升三年级终于做到了！双向奔赴泪目ing
+* **260718 回应修仲官推祝贺清水生日快乐:明年不要迟到了** 海李是7/17生日 ⇨ [𝕏](https://x.com/kairi_shimizu/status/2078428507110260747)
+* **260201 和小简步汰吃饭** あゆたお疲れ様会 ⇨ [𝕏(2/2)](https://x.com/kairi_shimizu/status/2018087306209767689)｜[ins(2/6)](https://www.instagram.com/p/DUaiBV9EtqM/)
+* **260109 看了DXTEEN的FULL OUT live** ⇨ [𝕏](https://x.com/kairi_shimizu/status/2009603329559760939)
+* **251221 高二5班毕业照**{: .text-red} ⇨ [𝕏2](https://x.com/kairi_shimizu/status/2002743366665310425)/[ins图不一样](https://www.instagram.com/p/DShzRM7kuej/) ⬅️「完」
+* **251220/251221 杀青/第10话剧照/花絮照**{: .text-red} ⇨ [𝕏1](https://x.com/kairi_shimizu/status/2002352310350135500)/[ins海李杀青/F3剧照](https://www.instagram.com/p/DSfGSonEnKD/)
+    > 「このメンバーで修学旅行のグループを組めて本当に良かったです。皆んなと過ごす時間が本当に楽しくて、毎日良い作品になるよう撮影に臨めました。」
+* **251220 上了JUNON2月号取材修仲** ⇨ [𝕏](https://x.com/kairi_shimizu/status/2002229094440972574)
+* **251220 最终回先行上映会5人合照**{: .text-red} ⇨ [𝕏](https://x.com/kairi_shimizu/status/2002040802579730864)
+* **251217 四天王狂舞中**{: .text-green} ⇨ [TT舞](https://www.tiktok.com/@schooltrip_abc/video/7584772024438918421)｜[𝕏1](https://x.com/kairi_shimizu/status/2001243041517261279)/[𝕏2](https://x.com/kairi_shimizu/status/2001243846341214314)
+    > 海李:「【速報】福田歩汰 横揺れ上手い; みんな個性爆発で面白いんだけど、1番はあゆたが上手すぎるのがおもしろすぎる」
+* **251215 和女仆日置的合照**{: .text-blue} ⇨ [𝕏](https://x.com/kairi_shimizu/status/2000403281148019026) 说着绝对不能被渡会发现，然后小简就回复了「見〜つけた👀👊🏻」wwww
+* **251214 第9话结束;cos+校服堀仲** ⇨ [𝕏](https://x.com/kairi_shimizu/status/2000078061342245077)｜[ins发三天王和女仆日置(12/15)](https://www.instagram.com/p/DSRuxJBEjG_/) ⬅️又cue了“進級”
+* **251213 本日第9话;cos服三天王** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1999840956053590320)/[ins](https://www.instagram.com/p/DSNLUOoEklT/)
+* **251209 和步汰雅哉跳男团手势舞** 说这是师走dance，手忙脚乱才能跟上 ⇨ [ins舞](https://www.instagram.com/reel/DSCmo8Dky3E/)｜[𝕏](https://x.com/kairi_shimizu/status/1998357913413562780)
+* **251208 和步汰雅哉跳男团舞** ⇨ [ins舞](https://www.instagram.com/reel/DSABYxeEyzt/)｜[𝕏段子](https://x.com/kairi_shimizu/status/1998010129682464960) 自称来自「腹筋6LDK」团，粉丝名称「プロテイン」(蛋白质)，推活是锻炼肌肉2333 
+* **251207 本日第8话;堀田监督花絮照**{: .text-blue} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1997327240561062065)/[ins](https://www.instagram.com/p/DR7SJKLEpd1/) 海李在没有堀田戏份的那天向监督借的椅子233 自称“神童監督”
+* **251130 第7话结束** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1995131094283477203) 图是发过的;海李说3班的佐藤因为身体太强壮被橄榄球部挖角了233
+* **251129 本日第7话;四天王初识剧照**{: .text-green} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1994761634334871903/)/[ins](https://www.instagram.com/p/DRpGKurEnZe/)
+* **251124【直播】参加了DXTEEN的直播**{: .text-green} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1992956055610077611)
+* **251124 海李晒手机屏保是仲里** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1992837060592648420/)
+    > 前情是海李问大家「メロい」是什么意思([𝕏](https://x.com/kairi_shimizu/status/1992601164358340760))，知道了以后就发了这条推说原来这就是メロい……俩正经恋爱主角都没你会卖!!
+* **251123 第6话结束;海边+烟花合照**{: .text-red} ⇨ [ins洸大的生日蛋糕](https://www.instagram.com/p/DRXT1txEiaB/)｜[ins海边堀田/烟花三天王/守崎哥&堀田](https://www.instagram.com/p/DRZf0XDkjJS/)
+* **251116 第5话结束;年级大会三天王offshot** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1989735085495701904)/[ins](https://www.instagram.com/p/DRFYK6ikqK_/)
+    > 海李说「撮影シーン動画に収めたのでいつか解禁できる時があれば皆さんに見せたいです」，abc你什么时候把窗帘花絮放出来…………
+* **251115 本日第5话;堀田涂鸦&单人照@体育馆** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1989703026786115876)/[ins](https://www.instagram.com/p/DRFCUuuklQ8/)
+* **251112 旋转木马拍摄地**{: .text-green} ⇨ [ins](https://www.instagram.com/p/DQ8aj6Xks8w/) 发了一张三人影子让大家猜是谁->快拍里给了答案是他和渡会、守崎
+* **251108 本日第4话;五天王浴衣大合照**{: .text-red} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1987122305999511865)/[ins图不一样(11/9)](https://www.instagram.com/p/DQzOeIyEt1b/)
+* **251105「私の卒業」共演组合照**{: .text-green} 海李、小简、樱木雅哉 ⇨ [𝕏](https://x.com/kairi_shimizu/status/1986008260965740562)
+* **251104 堀仲小剧场:壁咚/旋转木马**{: .text-green} ⇨ [𝕏堀仲的鬼屋壁咚&旋转木马](https://x.com/kairi_shimizu/status/1985370959927488659)/[ins](https://www.instagram.com/p/DQmXEYYkvRQ/)
+    > 小简出没。⬅️「しかし、2人の間にはいつもひょうきん渡会、いや簡吉あり。笑」
+* **251102 第3话结束;堀田旋转木马/F5比猫猫拳**{: .text-red} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1984942461542871382/)/[ins](https://www.instagram.com/p/DQjNh4fEo0I/)
+* **251101 本日第3话;堀田单人照@旅馆** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1984596159860785566)
 * **251031 堀仲小剧场:名导演堀田&演员仲里** ⇨ [ins名导演堀田&演员仲里](https://www.instagram.com/p/DQd8MLcEjX-/)
+* **251026 第2话结束;和渡日泡温泉的花絮照**{: .text-red} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1982314247213424782)/[ins](https://www.instagram.com/p/DQQqstrkvv9/)
+* **251025 本日第2话;第1-3话剧照/花絮照**{: .text-red} 有堀田的宇航员照片 ⇨ [𝕏](https://x.com/kairi_shimizu/status/1982015219053543488)｜[ins旅馆夜谈剧照](https://www.instagram.com/p/DQOHyBdkqj9/) ⬅️堀田清大家注意F5的睡姿
 * **251022 海李祝贺谷口彩菜杀青** 两位刚好在另一个在播综艺中共演 ⇨ [𝕏](https://x.com/kairi_shimizu/status/1980987950264660438)
+* **251019 第1话怎么样?;花絮照**{: .text-blue} 有和日置仲里守崎萌萌的合照们 ⇨ [𝕏教室&服务站](https://x.com/kairi_shimizu/status/1979792992967008390/)/[ins](https://www.instagram.com/p/DP-5NPmkq1K/)
+* **251017 清水海李发第1话大巴花絮照**{: .text-red} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1979176354001359054)/[ins有新的堀田单人](https://www.instagram.com/p/DP6Vf-WEsgN/)
+* **251016 看到步汰和另一位共演的合照后转推**「あゆたに取られちゃう」⇨ [𝕏](https://x.com/kairi_shimizu/status/1978825510298824941) 👀
 * **251016 和步汰的合照** 两个人在比赛集卡233 ⇨ [𝕏](https://x.com/kairi_shimizu/status/1978794970044928031) 海李:「【かわいいあゆちん大公開】」⬅️步汰转发「かいくんもかわいいよ🩷」([𝕏](https://x.com/official_DXTEEN/status/1978837734098616787))
-* **251008 和另一位女演员谷口彩菜的offshot** 两位刚好在另一个在播综艺中共演 ⇨ [𝕏](https://x.com/kairi_shimizu/status/1975914311366377776)
+* **251008 和另一位女演员谷口彩菜的offshot** 两位刚好在另一个在播综艺中共演 ⇨ [𝕏1](https://x.com/kairi_shimizu/status/1975914311366377776)｜[ins](https://www.instagram.com/p/DPjM0K0EoVB/)｜[𝕏2](https://x.com/kairi_shimizu/status/1976214163014942855)
+* **251008 修仲海报解禁**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DPi3ckaEmSc/)
+* **250923 角色形象解禁**{: .text-red} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1970148525603426478)/[ins(9/22)](https://www.instagram.com/p/DO6A0qyEu_V/)
+* **250920 修仲拍摄中** ⇨ [ins](https://www.instagram.com/p/DO04joLEppE/)
+* **250808 角色情报解禁** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1953643921546064004)/[ins](https://www.instagram.com/p/DNE2mxRytGA/)
+    > 「リアルな仲良しグループを画面に表現できるよう撮影に臨んできます！」(希望拍出看起来真的关系很好的小组) ⬅️这一点你们真的做到了!
 
 ### 福田步汰(DXTEEN)
 
@@ -73,7 +119,8 @@ permalink: /tmi/
 * **260203 DXTEEN发小简海李步汰chaハルコイ**{: .text-green} ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7602599974735498504)/[ins](https://www.instagram.com/reel/DUS08yzjyvH/) 2月1日三个人出去吃饭了~
 * **260114 福田步汰(DXTEEN)前些日子打卡了修仲快闪店F5立牌** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2011388435786056010)
 * **260114 DXTEEN发还原修仲第6话海边捡贝壳片段** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7595202786371980562)/[ins](https://www.instagram.com/reel/DTfkrMOj0Wp/) 突然开始旋转木马笑死
-* **251222 DXTEEN发修仲杀青照&最终回花絮照+感言**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DSj5_nIj68E/) 又有新的F5高二合照了！「こっちゃん、かんちゃん、まさや、かいくん！みんなだーいすきだよ🫶出会ってくれてありがとう😚」步汰暖暖的😭
+* **251222 DXTEEN发修仲杀青照&最终回花絮照+感言**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DSj5_nIj68E/)
+    > 又有新的F5高二合照了！「こっちゃん、かんちゃん、まさや、かいくん！みんなだーいすきだよ🫶出会ってくれてありがとう😚」步汰暖暖的😭
 * **251221【直播】DXTEEN ins直播 福田步汰+田中笑太郎 最终回同时视听** 22:30~ ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2002757594239398044)
 * **251221 福田步汰(DXTEEN)最终回感谢帖** ⇨ [𝕏-圣诞树单人](https://x.com/official_DXTEEN/status/2002416203911053542)
 * **251220【直播】DXTEEN ins直播 福田步汰+田中笑太郎 第9话同时视听** 20:00~ ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2002352678572298552)

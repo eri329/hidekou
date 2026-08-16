@@ -321,6 +321,11 @@ li p {
 	display: inline;
 }
 
+.text-small{
+	font-size: 13px;
+	color: #5f5f5f;
+}
+
 .small-text-container li{
 	font-size: 13px;
 	color: #5f5f5f;
@@ -345,8 +350,13 @@ li p {
 
 .small-text-container .text-green,
 .text-green{
-	color: #17ca68;
+	color: #1cb461;
 }
+
+.small-text-container .text-separate {
+	color:#1a9b90;
+}
+
 
 .text-pink{
 	color: #ee5b9f;
@@ -356,16 +366,13 @@ li p {
 	color: #b0b0b0;
 }
 
-.text-small{
-	font-size: 13px;
-	color: #5f5f5f;
-}
-
+.small-text-container .text-solo,
 .text-solo{
 	color: #c39bdb
 	// color:rgb(160, 160, 160)
 }
 
+.small-text-container .text-solo-k,
 .text-solo-k{
 	color: #90a4c5
 	// color:rgb(160, 160, 160)

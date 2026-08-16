@@ -16,7 +16,16 @@ permalink: /solo/
 ### 2026
 {: #kan2026}
 
-* **261103 简秀吉24岁生日会&见面会 大阪生日会**{. text-red} 14:00/17:30📍大阪エル・シアター
+* **261211 简秀吉写真集发售**{: .text-red}
+    > **260713【SNS】小简发小红书** 来週、何かきそうな予感🃏 ⇨ [📕简](http://xhslink.com/o/2SVe0TNcKou)
+    > **260717【SNS】小简发小红书** 周一会有新消息~ ⇨ [📕简](http://xhslink.com/o/2IHC8APYxeg)
+    > **260720 写真集初次透露情报** ⇨ [𝕏写真集-Incoming.](https://x.com/kanhideyoshi1st/status/2079115174972379233)/[ins](https://www.instagram.com/p/DbAdeAbSBFp/)/[微博](https://weibo.com/7984735683/R9yPAiRnc)
+    > **260727 小简写真集账号:Stay tuned.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)/[ins](https://www.instagram.com/p/DbSiK3ISIsA/)
+    > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
+    > **260811 小简写真集账号:Dec.2026** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2087087527715053913)/[ins](https://www.instagram.com/p/Db5G8C5y-7_/)/[微博](https://weibo.com/7984735683/RcUd1BHZl)
+    > **260816 明天有通知** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2088966779825733912)
+    > **260817 写真集情报解禁**
+* **261103 简秀吉24岁生日会&见面会 大阪生日会**{: .text-red} 14:00/17:30📍大阪エル・シアター
 
 ---
 * **261031 神户学院大学大学祭 简秀吉talkshow**{: .text-red} 14:00~ @神戸学院大学 ポートアイランドキャンパス B302教室
@@ -40,13 +49,6 @@ permalink: /solo/
     > **260726 情报解禁** ⇨ [𝕏](https://x.com/perceneige_mp/status/2081333721639297136)
 * **260824《月刊TVガイド》10月号(8/24) 杂志发售**《跌落就完了》剧宣杂
     > **260731 情报解禁** ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[ins](https://www.instagram.com/p/Dbe5TDigYXv/)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393) 生写特典三随一/全套
-* **260817 写真集情报解禁**
-    > **260713【SNS】小简发小红书** 来週、何かきそうな予感🃏 ⇨ [📕简](http://xhslink.com/o/2SVe0TNcKou)
-    > **260717【SNS】小简发小红书** 周一会有新消息~ ⇨ [📕简](http://xhslink.com/o/2IHC8APYxeg)
-    > **260720 写真集初次透露情报** ⇨ [𝕏写真集-Incoming.](https://x.com/kanhideyoshi1st/status/2079115174972379233)/[ins](https://www.instagram.com/p/DbAdeAbSBFp/)/[微博](https://weibo.com/7984735683/R9yPAiRnc)
-    > **260727 小简写真集账号:Stay tuned.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)/[ins](https://www.instagram.com/p/DbSiK3ISIsA/)
-    > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
-    > **260811 小简写真集账号:Dec.2026** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2087087527715053913)/[ins](https://www.instagram.com/p/Db5G8C5y-7_/)/[微博](https://weibo.com/7984735683/RcUd1BHZl)
 * **260812 Emo!miu采访 with清水海李** ⇨ [𝕏](https://x.com/Emo_miu/status/2087466879992700982)｜[𝕏应募拍立得](https://x.com/Emo_miu/status/2087467877230420457)｜[ins海李](https://www.instagram.com/p/Db8TjgnkvZu)/[📕海李](http://xhslink.com/o/4nFFmUM4z1e)｜[ins1](https://www.instagram.com/p/Db73n0WH_Zo/)/[ins2](https://www.instagram.com/p/Db73XHqiEDK/)/[ins3](https://www.instagram.com/p/Db712iHCT8A/) 电视剧「跌落就完了」剧宣
 * **260812【FC｜直播】21:00~ 小简FC直播**{: .text-red}
 * **260806【FC｜直播】小简FC电台直播**{: .text-red} 对4天后就是同窗会大感震惊233
@@ -408,7 +410,7 @@ permalink: /solo/
 * **230703【极狐】挿入歌「Live for the moment(浮世英寿&ジーン（簡秀吉&鈴木福）)」MV公开** ⇨ [🆈avex](https://www.youtube.com/watch?v=tacuH8uodxg) 230326~ 音频配信:[音频](https://avex.lnk.to/KR_GEATS_Liveforthemoment)
 * **230503/230504【极狐】特别活动「仮面ライダーギーツ GOLDEN DESIRE NIGHT」** 19:00~ @ランドプリンスホテル新高輪
 * **230504【极狐】广告「大塚製薬 オロナミンC CM 仮面ライダーギーツ 夢をかなえるチカラ篇」播出** *日期不明
-* **230421 杂志登场「TVガイドdan vol.47」发售**
+* **230421 杂志登场「TVガイドdan vol.47」发售** *极狐主题*
 * **230403【极狐】「仮面ライダーギーツ」キャラクターブック 公式角色书发售**
 * **230329 杂志登场「TV LIFE 4/14号」发售**
 * **230209【极狐】「超英雄祭 KAMEN RIDER × SUPER SENTAI LIVE & SHOW 2023」** 18:30~ @横浜アリーナ
@@ -420,7 +422,7 @@ permalink: /solo/
     > **221224 公開記念舞台挨拶** @ユナイテッド・シネマ豊洲 ⇨ [🆈舞台挨拶](https://www.youtube.com/watch?v=0viXToUNZY8)
 * **221031 杂志登场「別冊カドカワScene 12」发售**
 * **221023 小简20岁生日!**{: .text-red}
-* **221014 杂志登场「TVガイドdan vol.45」发售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1581225815052021760)
+* **221014 杂志登场「TVガイドdan vol.45」发售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/1581225815052021760)｜[🆈TVdan花絮](https://youtu.be/2oFuijWpppc?si=BNGxz3rzPpX0bDRR)
 * **221003【极狐】杂志登场「宇宙船 vol.178」** *特摄杂志*
 * **221001【极狐】广告「東洋水産 赤いきつね 緑のたぬき×仮面ライダーギーツ」播出** *日期不明 ⇨ [niconico](https://www.nicovideo.jp/watch/sm41396792)
 * **220928 杂志登场「ACTIMAGE Vol.001」发售**
@@ -469,10 +471,13 @@ permalink: /solo/
     > **260717 开始预售!** ⇨ [𝓲洸-金发洸大新图🈶](https://www.instagram.com/p/Da5NyEMFC-K)｜[𝕏JUNON](https://x.com/junon_jp/status/2078047604437578144)｜[135册详情+购入链接](https://www.hmv.co.jp/news/article/260710114/)｜[10册详情+购入链接(大阪)](https://www.hmv.co.jp/store/event/55837/)｜[10册详情+购入链接(东京)](https://www.hmv.co.jp/store/event/55838/) 详情都写得很详细了可以仔细阅读!10册需要在罗森app上申请抽选；语音是现场录的，内容只能二选一；合影不能指定姿势；10册的贴纸是洸大给每个粉丝现场画的自画像。
     > **260803 洸大ins直播封面解禁**
     > **260805 发售纪念照片展情报解禁** TowerRecord涉谷店；10/6~10/19；抽选赠送照片板 ⇨ [𝕏](https://x.com/TOWER_Shibuya/status/2084936066025631853)
-    > **260807 封面拍摄花絮** ⇨ [𝕏](https://x.com/JUNON_jp/status/2085697911770185762)/[ins](https://www.instagram.com/p/DbvPpwdi5nC/) 黑豆封面；太可爱了BGM特别搭!
+    > **260807 黑豆封面拍摄花絮** ⇨ [𝕏](https://x.com/JUNON_jp/status/2085697911770185762)/[ins](https://www.instagram.com/p/DbvPpwdi5nC/) 黑豆封面；太可爱了BGM特别搭!
 
 ---
 * **260821【直播】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}
+* **260815 blankandsea: coming soon!** 洸大设计的衣服要和windandsea的新品牌联名啦
+    > **260815 coming soon!** ⇨ [ins](https://www.instagram.com/p/DcDu0sZmBcB/)
+    > **260816 coming soon!** ⇨ [𝕏](https://x.com/blankandsea/status/2088952540893462774)/[ins](https://www.instagram.com/p/DcGTlQUGM0j/)
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
 * **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)/[b站中字(发扬洸大)](https://www.bilibili.com/video/BV1wRgw66ESF/)
