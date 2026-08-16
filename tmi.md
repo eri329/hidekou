@@ -4,10 +4,10 @@ layout: page
 permalink: /tmi/
 ---
 
-本页收集修仲拍摄/剧本/幕后的轶闻趣事及其他演员发布的(个人向)修仲相关物料。
+本页收集修仲拍摄/剧本/幕后的轶闻趣事及其他演员发布的修仲相关物料。
 
 #### 索引
-[幕后故事](#bts) ｜ [修仲边栏](#sidecar)
+[幕后故事](#bts) ｜ [修仲别景](#sidecar)
 
 <div class="line"></div>
 
@@ -22,8 +22,10 @@ permalink: /tmi/
 * **海李在自己的X上简直是一个步汰梦男夸夸狂魔！** 
 * **第6话：真实的海边赛跑结果:洸大跑得超快，海李直接跑海里去了**(清水海李/251128) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1994374185293095145)
     > 海李说跑海里没跟大家说但是悄悄跟摄影师确认了拍摄角度hhhh（为花絮都这么操心！
+* **第6话：守崎哥哥给步汰买回来的冰淇淋是「NICO大福」**(福田步汰/251123) NICO是DXTEEN的粉丝名! 超级可爱的冰淇淋 ⇨ [ins](https://www.instagram.com/p/DRZNRniD3Vp/)
 * **第5话：堀田超高活力的全力奔跑**(清水海李/251116) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1989736834071769482)
     > 海李说在操场跑步时使出了全力，因为是一早拍的，拍完之后那一天的体力就降为0了hhh
+* **第4话：步汰拿到的签里面写着很多DXTEEN的歌词**(福田步汰/251109) 步汰看到的时候都觉得「诶！！好厉害！」剧组实在太用心了 ⇨ [ins](https://www.instagram.com/p/DQ0numIj6IW/)
 * **第3话：在酒店吃晚饭时的「いただきニャン！」「ニャン！」「いやマジ見てらんないわ」全都是即兴演出**(清水海李/251102) ⇨ [𝕏](https://x.com/Ko_shin102/status/1984809496624185595) 大家相性未免太好了！
 * **第1话: 仲里拍照时究竟有几个芝士版本**(清水海李/251019) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1979895579674321344)
     > 海李说第1集在科技馆的合照仲里拍“片状芝士（Slice Cheese）”那场戏的时候，光是在彩排和正式拍摄前测试的阶段就演了大概6次，但他每次都会换不同的词233 堀田最喜欢的是“牙套（Mouthpiece）！” 这道XX芝士最后也成了修仲同窗会的题目，同窗会上步汰说在科技馆说了Slice Cheese，而文化祭说了Cheddar Cheese(www)
@@ -42,13 +44,15 @@ permalink: /tmi/
 
 <div class="line"></div>
 
-## 修仲边栏
+## 修仲别景
 {: #sidecar}
 
-*※ F5: 仅收录与狐猪无关、非修仲官方发布、无法判断集数的自拍/花絮/个人或团体向cha舞。*{: .text-small}
-*※ 其他演员: 收录所有修仲相关发帖。如果其中有狐猪出镜或可以明确判断出是哪一集的花絮，会同时保留在首页时间线。*{: .text-small}
-*※ 修仲相关排名、repo: 直接归档在首页时间线*{: .text-small}
-<!-- *※ 如果演员提到幕后趣事会详细记录在[【修仲百景】]({{ site.baseurl }}/tmi/)*{: .text-small} -->
+*※ 此处收集所有演员修仲相关的主要发帖和图频物料*{: .text-small}
+*※ 纯PR会直接并入首页时间线的修仲事件*{: .text-small}
+*※ 如果有狐猪出镜/可以明确判断出是哪一集的花絮/修仲相关直播，会同时保留在首页时间线*{: .text-small}
+*※ 音乐歌曲相关请看[【修学旅行】音乐]({{ site.baseurl }}/drama#music)*{: .text-small}
+*※ 修仲相关排名、repo会直接归档在首页时间线*{: .text-small}
+*※ 幕后趣事会记录在上方*{: .text-small}
 
 ### 清水海李
 
@@ -61,13 +65,51 @@ permalink: /tmi/
 ### 福田步汰(DXTEEN)
 
 * **260811 修仲男团组步汰和雅哉cha舞 - our sky** ⇨ [ins-Our Sky](https://www.instagram.com/p/Db5NJ36PJVn/)
-* **260524 DXTEEN旋转木马修仲梗抖音小视频** 真的很好笑…… ⇨ [𝕏](https://x.com/official_DXTEEN/status/2058501044607615339)
-* **251117 DXTEEN官方Tiktok还原第5话扔怀里场景** 还原了日置被扔到渡会怀里的一段 ⇨ [TT(11/17)](https://www.tiktok.com/@official_dxteen/video/7573675433103772936)
-* **251108 DXTEEN官方Tiktok再现修仲旋转木马片段** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7570292599467068679)
+* **260810 DXTEEN修仲夏日同窗会&官宣第二季**{: .text-red}
+    > [𝕏DXTEEN(高清官宣图)](https://x.com/official_DXTEEN/status/2086775022887301467)｜[𝕏DXTEEN(合照)](https://x.com/official_DXTEEN/status/2086780042236104805)｜[𝕏DXTEEN(步汰)](https://x.com/official_DXTEEN/status/2086798684906504679)｜[TT-步汰-同窗会花絮视频](https://www.tiktok.com/@official_dxteen/video/7672405325479185672)/[ins](https://www.instagram.com/p/Db3NEbDPeXf/)
+* **260524 DXTEEN旋转木马修仲梗抖音小视频** 真的很好笑…… ⇨ [𝕏](https://x.com/official_DXTEEN/status/2058501044607615339)/[ins](https://www.instagram.com/reel/DYuAMvTPzMB/)
+* **260330 福田步汰(DXTEEN)录小视频回应狐猪的生日祝福**{: .text-red} [𝕏](https://x.com/official_DXTEEN/status/2038626898897735909)
+* **260327 福田步汰(DXTEEN)打卡大阪朝日电视台大厅渡日立牌** [𝕏](https://x.com/official_DXTEEN/status/2037477072315224334)
+* **260203 DXTEEN发小简海李步汰chaハルコイ**{: .text-green} ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7602599974735498504)/[ins](https://www.instagram.com/reel/DUS08yzjyvH/) 2月1日三个人出去吃饭了~
+* **260114 福田步汰(DXTEEN)前些日子打卡了修仲快闪店F5立牌** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2011388435786056010)
+* **260114 DXTEEN发还原修仲第6话海边捡贝壳片段** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7595202786371980562)/[ins](https://www.instagram.com/reel/DTfkrMOj0Wp/) 突然开始旋转木马笑死
+* **251222 DXTEEN发修仲杀青照&最终回花絮照+感言**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DSj5_nIj68E/) 又有新的F5高二合照了！「こっちゃん、かんちゃん、まさや、かいくん！みんなだーいすきだよ🫶出会ってくれてありがとう😚」步汰暖暖的😭
+* **251221【直播】DXTEEN ins直播 福田步汰+田中笑太郎 最终回同时视听** 22:30~ ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2002757594239398044)
+* **251221 福田步汰(DXTEEN)最终回感谢帖** ⇨ [𝕏-圣诞树单人](https://x.com/official_DXTEEN/status/2002416203911053542)
+* **251220【直播】DXTEEN ins直播 福田步汰+田中笑太郎 第9话同时视听** 20:00~ ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2002352678572298552)
+* **251219 DXTEEN修仲先行上映会物料**{: .text-red}
+    > [𝕏DXTEEN-步汰单人](https://x.com/official_DXTEEN/status/2001991063339466886)｜[𝕏DXTEEN-F5合照](https://x.com/official_DXTEEN/status/2002021833449857494)｜[TT步汰vlog(12/20)](https://www.tiktok.com/@official_dxteen/video/7585880391219809543)/[ins](https://www.instagram.com/reel/DSe4cbGD_E1/)｜[TT笑太郎vlog(12/22)](https://www.tiktok.com/@official_dxteen/video/7586617335562161415)/[ins](https://www.instagram.com/reel/DSj8RtAj1WN/) 修仲ガチオタがイベント行ってみた⬅️狂热粉出征hhh｜[𝕏笑太郎和日置步汰海李的后台合照(12/22)](https://x.com/official_DXTEEN/status/2003092571170725980)｜[TT笑太郎xF5cha两片想(12/23)](https://www.tiktok.com/@official_dxteen/video/7587016776526040338)/[ins](https://www.instagram.com/reel/DSms6inj6jH/)/[ins(笑太郎)和五天王合照](https://www.instagram.com/p/DSm3w5ZDxzU/) 笑太郎「絶対進級するぞ！！！！！！」全世界都盼着第二季呢!!
+* **251216 福田步汰(DXTEEN)发戴了小熊耳朵的仲里** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2000918112707993940)
+* **251214 DXTEEN发修仲第9话学园祭cos服花絮照**{: .text-red} ⇨ [𝕏步汰&海李](https://x.com/official_DXTEEN/status/1999879487547482535)｜[ins全员](https://www.instagram.com/p/DSOpeh8j8y1/) 还有一张仲里&女仆日置
+* **251213 田中笑太郎(DXTEEN)发小视频和步汰一起宣传第9话** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1999816539105534127)
+* **251207 DXTEEN发第8话仲里蹲墙角** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1997342774346338593)
+* **251206 修仲第8话步汰和笑太郎期待中※** ⇨ [𝕏步汰](https://x.com/official_DXTEEN/status/1997241820988969033)｜[𝕏笑太郎](https://x.com/official_DXTEEN/status/1997301039184388295) ⬅️他真的太喜欢修仲了!
+* **251129 DXTEEN发仲里自拍@教室** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1994806057668153622)
+* **251127 福田步汰(DXTEEN)发仲里自拍** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1994015540709609682) 疑似学园祭量尺寸的戏；步汰:「かわいすぎてごめん✌️」
+* **251124【直播】DXTEEN ins直播:福田步汰,田中笑太郎,清水海李,简秀吉**{: .text-green} ⇨ [直播回放](https://www.instagram.com/reel/DRcKSZ3j4JV/) 第6話同時視聴インスタライブ
+* **251123 DXTEEN发修仲第6话海边花絮照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DRZNRniD3Vp/) 有给洸大庆生和一起放烟花的照片；三天王为主｜[𝕏仲里骑充气虎鲸@海边](https://x.com/official_DXTEEN/status/1992269345326801382)
+* **251121 福田步汰(DXTEEN)发仲里自拍@体育馆;明天第6话!** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1991817365236167154)
+* **251117 DXTEEN官方Tiktok还原第5话扔怀里场景** ⇨ [ins](https://www.instagram.com/reel/DRKMTiZD_jT/)/[TT](https://www.tiktok.com/@official_dxteen/video/7573675433103772936) 还原了日置被扔到渡会怀里的一段，因为人手不足步汰二次利用中XD
+* **251117【直播】简秀吉ins直播 修学五天王连线直播**{: .text-red} 20:30~21:30 ⇨ [ins直播](https://www.instagram.com/reel/DRKIO_JAZxP/)
+* **251117【直播】DXTEEN ins直播 福田步汰+田中笑太郎** 20:15~ ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/1990405565911384542) 步汰赶完这个场子又去赶了修仲的五天王直播
+* **251116 DXTEEN官方Tiktok发布还原旋转木马花絮** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7573263354064637192)
+* **251116 DXTEEN发仲里运动服@第3话酒店** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1989732628594135463)
+* **251115 田中笑太郎(DXTEEN)发推说期待第5话** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1989689247507296397) 看得出来孩子真的很急了！
+* **251113 福田步汰(DXTEEN)说已经买了修仲小说2** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1988925542922596626) 步汰这时候已经在祈祷修仲电视剧也能有2了！
+* **251109 DXTEEN发仲里浴衣照**{: .text-red} ⇨ [𝕏](https://x.com/official_DXTEEN/status/1987195912880570629)｜[ins](https://www.instagram.com/p/DQ0numIj6IW/) 全是浴衣!
+* **251108 DXTEEN官方Tiktok再现修仲旋转木马片段** ⇨ [ins](https://www.instagram.com/reel/DQyw0Gtjz-t/)/[TT](https://www.tiktok.com/@official_dxteen/video/7570292599467068679) 笑死了 ⬅️DXTEEN笑太郎成为修仲宅粉中「自称渡会と自称日置です！」（[𝕏](https://x.com/official_DXTEEN/status/1987150402396307947)）
+* **251102 DXTEEN发修仲1-3话花絮照**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DQikBbdD99g/) 科技馆F5自拍超级可爱!大部分是三天王offshot；「修仲らぶ🫶」
+* **251102 DXTEEN发仲里坐游乐园卡通小车** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1984659197393584293)
+* **251030 福田步汰(DXTEEN)发步汰雅哉和晴辉尚哉** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1983863423072129024)
+* **251026 DXTEEN发仲里运动服@旅馆** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1982122483575923178)
 * **251019 DXTEEN官方Tiktok** 步汰笑太郎樱木雅哉cha两片想 ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7562893368775429384)
+* **251019 DXTEEN发仲里在校门口的纪念照** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1979587025734164769)
 * **251008 福田步汰(DXTEEN)发仲里怼脸自拍** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1975881556322570698) 每天都和大家在愉快地拍摄!
+* **251008 修仲海报视觉图解禁**{: .text-red} ⇨ [𝕏](https://x.com/official_DXTEEN/status/1975856198701445315) 最高清的一版海报
 * **250919 DXTEEN FC招募群演** ⇨ [𝕏1](https://x.com/official_DXTEEN/status/1968842503597211668) 9/25or9/26｜[𝕏2](https://x.com/official_DXTEEN/status/1968842732178391179) 9/29~9/30
+* **250917 两片想主题曲情报解禁**{: .text-red} ⇨ [𝕏](https://x.com/official_DXTEEN/status/1968072406469423589) 还发了很多高清剧照!
 * **250916 DXTEEN FC招募9/22群演** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1967793062928847319) 招募“拝観客役” (果然早期的群演就是薅粉丝呢💦)
+* **250808 DXTEEN 福田步汰角色解禁** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1953576895855116775)
 
 ### 樱木雅哉(原自分)
 

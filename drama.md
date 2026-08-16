@@ -94,12 +94,17 @@ permalink: /drama/
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
 ## 修学旅行音乐
+{: #music}
+
 * **ED/主題歌:「両片想い」DXTEEN** ⇨ [Youtube-MV](https://www.youtube.com/watch?v=esiaDnFotXQ)
-    > **260508** DXTEEN 両片想い(Acoustic Ver.) ⇨ [Youtube](https://www.youtube.com/watch?v=NNyvLNoHYfA)
     > **260809 Luckyfes'26 live** ⇨ [𝕏](https://x.com/l_my_mee_mine/status/2086332279471886546)
+    > **260508 DXTEEN 両片想い(Acoustic Ver.)公开** ⇨ [Youtube](https://www.youtube.com/watch?v=NNyvLNoHYfA)
+    > **260109 DXTEEN ARENA LIVE 〜FULL OUT!〜 live** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2014608299694686399)
+    > **250924 DXTEEN「両片想い」发售**
+    > **250917 DXTEEN「両片想い」修仲主题曲情报解禁**
 * **OP:「トレモロ」原因は自分にある。** ⇨ [Youtube](https://www.youtube.com/watch?v=g4fUelgqMbU)
-    > **251108 发布** ⇨ [链接集](https://lnk.to/GNJB_tremolo)
     > **260522「トレモロ」live** from LIVE TOUR 2026 輪廻の箱庭 at 仙台サンプラザホール ⇨ [𝕏](https://x.com/genjibu_sdr/status/2057784535761486247)
+    > **251108 发布** ⇨ [链接集](https://lnk.to/GNJB_tremolo)
 * **260107 官方OST by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595?ADTAG=h5_share_album&redirecttag=mn.redirect.custom&mnst=1.69)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
 > **「ドラマ「修学旅行で仲良くないグループに入りました」オリジナル・サウンドトラック」**
 > 1 4+1のPrologue

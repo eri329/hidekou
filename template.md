@@ -39,23 +39,38 @@ permalink: /template/
 
 
 
-> **【修学旅行】DXTEEN发仲里运动服@旅馆**{: .text-other} ⇨ [𝕏](https://x.com/official_DXTEEN/status/1982122483575923178)
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
 
+> **【修学旅行】DXTEEN发还原修仲第6话海边捡贝壳片段**{: .text-other} ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7595202786371980562) 突然开始旋转木马笑死
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发带了小熊耳朵的仲里**{: .text-other} ⇨ [𝕏](https://x.com/official_DXTEEN/status/2000918112707993940)
+> **【修学旅行】福田步汰(DXTEEN)发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发**{: .text-other} ⇨ [𝕏]()
+
+
+
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】田中笑太郎(DXTEEN)发先行上映会后台合照** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2003092571170725980)
 > **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
 > **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
 > **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
-> **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
-> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
+
+
+
+
+
+> **【修学旅行】DXTEEN发修仲杀青照&最终回花絮照** ⇨ [ins](https://www.instagram.com/p/DSj5_nIj68E/)
+> **【修学旅行】DXTEEN发修仲花絮照** ⇨ [ins]()
+
+
 > **【修学旅行】DXTEEN发** ⇨ [𝕏]()
 > **【修学旅行】DXTEEN发** ⇨ [𝕏]()
 

@@ -9,6 +9,7 @@ layout: page
 #### 资讯来源(站长自用)
 * 修仲官方X，修仲官方ins，简秀吉X，简秀吉ins，MR8官网, 藤本洸大ins，TC(schedule-刊载情报,出演情报)
     > 搜索X语句 `from:dramal_abc since:2025-10-18 until:2025-10-19` + 切换到Latest tab
+    > 搜索DXTEEN X `from:official_DXTEEN 修学旅行 since:2025-07-01 until:2025-12-31`
 * 简秀吉小红书，简秀吉微博
 * 简洸ins其他部分: reels, repost
 * 简洸快拍: story, highlight
@@ -78,11 +79,11 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- VIVI在国内平台发的东西，小简小红书 -->
 
-[ 2026-08-15] 增加【修仲百景】页面
+[ 2026-08-15] 增加【修仲百景】页面；补档完成DXTEEN的X和Ins!
 
-<!-- 修仲百景需要revisit的部分：所有演员的SNS重新过一遍；已经过了的：海李X；接下来新过的：DXTEEN和原自分，导演，幕后人员 -->
+<!-- 修仲百景需要revisit的部分：所有演员的SNS重新过一遍；海李X里明显单人的还是拎出来；接下来新过的：DXTEEN和原自分，导演，幕后人员 -->
 
-[ 2026-08-13] DXTEEN X 补到2025/10/8；常规更新至8/14下午
+[ 2026-08-13] DXTEEN X 补档2025/8/1~10/8；常规更新至8/14下午
 
 [ 2026-08-12] 整理完同窗会/第二季解禁；常规更新至8/13下午
 
