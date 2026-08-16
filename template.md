@@ -39,6 +39,25 @@ permalink: /template/
 
 
 
+> **【修学旅行】DXTEEN发仲里运动服@旅馆**{: .text-other} ⇨ [𝕏](https://x.com/official_DXTEEN/status/1982122483575923178)
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发**{: .text-other} ⇨ [𝕏]()
+
+> **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
+> **【修学旅行】福田步汰(DXTEEN)发** ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
+> **【修学旅行】DXTEEN发** ⇨ [𝕏]()
 
 
 
@@ -52,12 +71,3 @@ permalink: /template/
 {: .text-other}
 
 
-
-
-辻谷
-
-DXTEEN
-* **251019【修学旅行】DXTEEN官方Tiktok** 步汰笑太郎樱木雅哉cha两片想 ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7562893368775429384)
-* **251117 DXTEEN官方Tiktok还原第5话修仲场景**{: .text-other} 还原了日置被扔到渡会怀里的一段 ⇨ [TT(11/17)](https://www.tiktok.com/@official_dxteen/video/7573675433103772936)
-* **251108【修学旅行】DXTEEN官方Tiktok再现修仲旋转木马片段**{: .text-other} ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7570292599467068679)
-* **260524【修学旅行】DXTEEN旋转木马修仲梗抖音小视频** 真的很好笑…… ⇨ [𝕏](https://x.com/official_DXTEEN/status/2058501044607615339)

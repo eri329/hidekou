@@ -47,7 +47,7 @@ permalink: /solo/
     > **260727 小简写真集账号:Stay tuned.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2081657598525485395)/[ins](https://www.instagram.com/p/DbSiK3ISIsA/)
     > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
     > **260811 小简写真集账号:Dec.2026** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2087087527715053913)/[ins](https://www.instagram.com/p/Db5G8C5y-7_/)/[微博](https://weibo.com/7984735683/RcUd1BHZl)
-* **260812 Emo!miu采访 with清水海李** ⇨ [𝕏](https://x.com/Emo_miu/status/2087466879992700982)｜[𝕏应募拍立得](https://x.com/Emo_miu/status/2087467877230420457)｜[📕海李](http://xhslink.com/o/4nFFmUM4z1e) 电视剧「跌落就完了」剧宣
+* **260812 Emo!miu采访 with清水海李** ⇨ [𝕏](https://x.com/Emo_miu/status/2087466879992700982)｜[𝕏应募拍立得](https://x.com/Emo_miu/status/2087467877230420457)｜[ins海李](https://www.instagram.com/p/Db8TjgnkvZu)/[📕海李](http://xhslink.com/o/4nFFmUM4z1e)｜[ins1](https://www.instagram.com/p/Db73n0WH_Zo/)/[ins2](https://www.instagram.com/p/Db73XHqiEDK/)/[ins3](https://www.instagram.com/p/Db712iHCT8A/) 电视剧「跌落就完了」剧宣
 * **260812【FC｜直播】21:00~ 小简FC直播**{: .text-red}
 * **260806【FC｜直播】小简FC电台直播**{: .text-red} 对4天后就是同窗会大感震惊233
 * **260806 时尚活动 KENZO POPUP EVENT** ⇨ [𝓲简](https://www.instagram.com/p/DbsgJecAUPj/)
@@ -88,6 +88,7 @@ permalink: /solo/
     > **260802 小简和某个女角色的offshot** ⇨ [ins](https://www.instagram.com/p/DbiUrmbPD-8/)
     > **260804 小简社会人offshot** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2084642332293624228)/[ins](https://www.instagram.com/p/Dbnusp8mV6k/) 拿着公文包的上班族，帅！！
     > **260806 小简和女主剧情切片** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2085333915863245164)/[ins](https://www.instagram.com/p/DbsoqmFPZUN/)
+    > **260815 Tiktok小简单人小视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2088607436500505038)/[TT](https://www.tiktok.com/@dramaism_mbs/video/7674236843562388743)
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260702 DAZN世界杯节目出演** 收费节目
     > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
@@ -498,6 +499,7 @@ permalink: /solo/
     > **260809 洸大的二选一挑战** ⇨ [ins](https://www.instagram.com/p/Db0ZAZfyU1e/) 夏天更想去海边；回到过去更想再来一次运动会；比起“令人安心”更想被人说“好帅!”
     > **260812 洸大宣传视频:第3周结束** ⇨ [𝕏](https://x.com/vivi_magazine/status/2087487358304415941)
     > **260813 第4周W赏宣传** ⇨ [𝕏](https://x.com/k2c_store/status/2087735904169324962)
+    > **260815 洸大介绍周边** ⇨ [𝕏](https://x.com/vivi_magazine/status/2088551873490104724)/[ins](https://www.instagram.com/p/DcDiW4qyNWt/)
 * **260722【杂志｜藤本洸大】《JUNON》9月号(7/22)杂志发售** 洸大的喜怒哀乐
     > **260717 情报封面解禁** ⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641) 通常版附录A3海报有洸大:塩﨑太智（M!LK）× 藤本洸大
     > **260722 相卡打印开始** ⇨ [𝕏相卡](https://x.com/eprintservice/status/2079733164721738190) 逐渐长长的毛栗子头
@@ -539,6 +541,8 @@ permalink: /solo/
     > **260626 出演情报解禁** 第8話「死びとの恋わずらい-悩む女と影-」, 第10話「死びとの恋わずらい-絶叫の夜-」手島光太郎役 ⇨ [𝕏告知+tvguide新闻](https://x.com/TVGweb/status/2070417026628387261)/[𝓲电视剧官号](https://www.instagram.com/p/DaCqbh7Tjqg/)｜[官网](https://www.tv-tokyo.co.jp/junjiito_strange/)｜[𝕏导演近藤亮太评价洸大](https://x.com/ryotakondofilm/status/2070419868692992416)｜[𝕏推し楽news](https://x.com/oshiraku/status/2070416780376584684)
     > 龍介の親友・手島光太郎を演じ、龍介と共に“美少年”の謎を追うが、狂気が連鎖する町の中で自身も恐怖に巻き込まれていく。
     > 第8話/第10話 8/22・9/5〈予定〉@テレビ東京; 8/31・9/14〈予定〉@BSテレビ東京
+    > **260815 第8话预告** ⇨ [𝕏](https://x.com/tx_strange/status/2088460675089871212)/[ins](https://www.instagram.com/p/DcC33T7k1bA/)
+    > **260821 洸大初登场** 24:12~
 * **260703/260708 TVガイドWeb 采访**
     > **260703 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
     > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
@@ -776,7 +780,7 @@ permalink: /solo/
 
 * **251231 2025年总结** ⇨ [𝓲洸❤️](https://www.instagram.com/p/DS7V1KtlMxh/) 有一张日置浴衣照~
 * **251225【SNS】洸大宣传菅田将晖live谷当T恤模特/圣诞洸大** ⇨ [𝓲洸](https://www.instagram.com/p/DSrJWPygQjT/)/[tc-ins(12/23)](https://www.instagram.com/p/DSmhGTokjZS/)｜[𝓲洸-圣诞](https://www.instagram.com/p/DSr_hoFFFMA/)
-* **251222《JUNON》2月号(12/22) 杂志发售** ⇨ [杂志详情](https://www.junon-tv.jp/articles/4122) 应该就是在卷头特辑里出现了一下，但是温泉视频有😇 顺说这本msy也登场了哈哈哈好多人啊()
+* **251222《JUNON》2月号(12/22) 杂志发售** ⇨ [杂志详情](https://www.junon-tv.jp/articles/4122) 应该就是在卷头特辑里出现了一下，但是温泉视频有😇 顺说这本msy和海李也登场了哈哈哈好多人啊()
     > **251219 情报解禁** ⇨ [𝕏情报解禁](https://x.com/JUNON_jp/status/2001928554179973423)｜[𝕏附录扑克牌](https://x.com/JUNON_jp/status/2001933983316349067)
     > **251220** ⇨ [𝕏泡温泉花絮(12/20)](https://x.com/JUNON_jp/status/2002333155483922930)｜[𝕏海李也登场了说也取材了修仲相关(12/20)](https://x.com/kairi_shimizu/status/2002229094440972574)
     > **251222** ⇨ [𝕏小卡(12/22)](https://x.com/eprintservice/status/2002906941543043366)
