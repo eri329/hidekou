@@ -48,7 +48,7 @@ permalink: /
     > **260729 双人封底登场解禁+特典情报** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2限定店铺双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
     > **260731 双人特典图解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2083100775400747169)
     > **260814 封底解禁** ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)｜[ins](https://www.instagram.com/p/DcA2spEEjYg/) <span>太好看了吧!!贴得好近好暧昧</span>{: .text-pink}
-* **260819【修学旅行S2】原作小说新特典开始发布** 13:00~
+* **260819【修学旅行｜原作】原作小说新特典开始发布** 13:00~
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
 
 <div class="line"></div>

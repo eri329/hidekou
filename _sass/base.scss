@@ -321,20 +321,35 @@ li p {
 	display: inline;
 }
 
-.text-blue{
+.small-text-container li{
+	font-size: 13px;
+	color: #5f5f5f;
+}
+
+.small-text-container li strong{
+	font-size: 15px;
+	color: var(--text-color);
+}
+
+/* Scoped color overrides inside the small-text container so utility
+   classes like .text-red and .text-blue take precedence. */
+.small-text-container .text-red,
+.text-red {
+	color: #ff1818;
+}
+
+.small-text-container .text-blue,
+.text-blue {
 	color: #1779ca;
 }
 
+.small-text-container .text-green,
 .text-green{
 	color: #17ca68;
 }
 
 .text-pink{
 	color: #ee5b9f;
-}
-
-.text-green{
-	color: #28aa67;
 }
 
 .text-grey{
@@ -344,10 +359,6 @@ li p {
 .text-small{
 	font-size: 13px;
 	color: #5f5f5f;
-}
-
-.text-red{
-	color: #ff1818;
 }
 
 .text-solo{
