@@ -7,7 +7,8 @@ permalink: /tmi/
 本页收集修仲拍摄/剧本/幕后的轶闻趣事及其他演员发布的修仲相关物料。
 
 #### 索引
-[幕后故事](#bts) ｜ [修仲别景](#sidecar)
+* [幕后故事](#bts)
+* [修仲别景](#sidecar)
 
 <div class="line"></div>
 
@@ -18,7 +19,6 @@ permalink: /tmi/
 
 ### 三天王
 
-* **海李在自己的X上简直是一个步汰梦男夸夸狂魔！** 
 * **第6话：真实的海边赛跑结果:洸大跑得超快，海李直接跑海里去了**(清水海李/251128) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1994374185293095145)
     > 海李说跑海里没跟大家说但是悄悄跟摄影师确认了拍摄角度hhhh（为花絮都这么操心！
 * **第6话：洸大生日惊喜幕后**(清水海李/251123) ⇨ [ins](https://www.instagram.com/p/DRXT1txEiaB/)
@@ -40,7 +40,7 @@ permalink: /tmi/
 * **池谷总会是读错杏那的姓氏最后喜得汁谷外号**(录音师柴田/251223) ⇨ [𝕏柴田](https://x.com/topnotetokyo/status/2003316436752887849)｜[𝕏岩波(杏那)](https://x.com/shiori_iwanami/status/2004221747902742707)
     > 说是辻谷老是把「池ヶ谷」说成「池谷」, 录音师威胁他下次再读错就让他改名成「汁谷」，结果还是完美地说错了，于是开始叫他汁谷君（哈哈哈哈）杏那的演员说“我也好几次谜之要喊出「辻ケ谷」来了”
 * **守崎哥哥演员分享饰演守崎辽翔时听的歌曲**(三浦健人/251218) ⇨ [ins](https://www.instagram.com/p/DSZ_-5iEjJl/)
-    > 竟然是NEWS的「さくらガール」；后来三浦健人(守崎辽翔演员)还发了很多跟山田健人出去玩的ins，说他们是「健人同士」www([12/3](https://www.instagram.com/p/DRzb8Pikv7H/)，[12/23](https://www.instagram.com/p/DSmqPF6EiUe/)，[26/1/9](https://www.instagram.com/p/DTSOqG4lM1y/),[3/1-和山田健人、长谷川导演一起吃饭](https://www.instagram.com/p/DVVjQmdDjse/)), 修仲team关系很好呢！
+    > 竟然是NEWS的「さくらガール」；后来三浦健人(守崎辽翔演员)还发了很多跟山田健人出去玩的ins，说他们是「健人同士」www([12/3](https://www.instagram.com/p/DRzb8Pikv7H/)，[12/23-桑拿](https://www.instagram.com/p/DSmqPF6EiUe/)，[26/1/9-桑拿](https://www.instagram.com/p/DTSOqG4lM1y/),[3/1-和山田健人、长谷川导演一起吃饭](https://www.instagram.com/p/DVVjQmdDjse/)), 修仲team关系很好呢！
 
 
 <div class="line"></div>
@@ -57,7 +57,8 @@ permalink: /tmi/
 
 ### 清水海李
 
-※ 海李转了很多官推，活人感很强
+*※ 海李转了很多官推，梗超多，活人感很强*{: .text-small}
+*※ 他在自己的X上简直是一个步汰梦男夸夸狂魔！*{: .text-small}
 
 * **260810 夏日同窗会&修仲第二季!** ⇨ [𝕏海李](https://x.com/kairi_shimizu/status/2086800555926868068)/[ins海李](https://www.instagram.com/p/Db3H0Fjkidu/)
     > 「皆様の声が確実に届きましたよ！みんなありがとう！堀田進級できたぞ！よくやった！🔥よりパワーアップした"修仲"をお届けできるよう一丸となって撮影臨んでいきます！」海李心心念念的升三年级终于做到了！双向奔赴泪目ing
@@ -110,6 +111,8 @@ permalink: /tmi/
 
 ### 福田步汰(DXTEEN)
 
+*※ 步汰没有个人的SNS，以下全都是DXTEEN账号发的*{: .text-small}
+
 * **260811 修仲男团组步汰和雅哉cha舞 - our sky** ⇨ [ins-Our Sky](https://www.instagram.com/p/Db5NJ36PJVn/)
 * **260810 DXTEEN修仲夏日同窗会&官宣第二季**{: .text-red}
     > [𝕏DXTEEN(高清官宣图)](https://x.com/official_DXTEEN/status/2086775022887301467)｜[𝕏DXTEEN(合照)](https://x.com/official_DXTEEN/status/2086780042236104805)｜[𝕏DXTEEN(步汰)](https://x.com/official_DXTEEN/status/2086798684906504679)｜[TT-步汰-同窗会花絮视频](https://www.tiktok.com/@official_dxteen/video/7672405325479185672)/[ins](https://www.instagram.com/p/Db3NEbDPeXf/)
@@ -160,7 +163,25 @@ permalink: /tmi/
 
 ### 樱木雅哉(原自分)
 
-* **260811 修仲男团组步汰和雅哉cha舞 - 火宴** ⇨ [ins-火宴](https://www.instagram.com/p/Db5N3HohDwW/)
+*※ 未标注的发自雅哉个人Ins，标注原自分的发自团号*{: .text-small}
+
+* **260811【原自分】修仲男团组步汰和雅哉cha舞 - 火宴** ⇨ [ins-火宴](https://www.instagram.com/p/Db5N3HohDwW/)
+* **260810 同窗会合照&修仲第二季** ⇨ [ins](https://www.instagram.com/p/Db3CSIHTwoy/)｜[𝕏原自分-问候视频](https://x.com/genjibu_sdr/status/2086784627147002308)
+* **251221 守崎杀青照** ⇨ [ins](https://www.instagram.com/p/DShqrUQk4b5/)
+    > 「改めて、この作品に携われて本当に良かったですし、素敵な方々に囲まれてのびのびと演技ができて本当に良かったです。また成長して、修仲メンツに会いたいです！修学旅行のグループがあの四人で本当に良かったです」
+* **251219 最终回先行上映会后台合照**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DScrcy_k1VI/)
+* **251214 第9话结束;cos w/仲里/女仆日置合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DSORcANE-eF/)｜[ins守崎仲里](https://www.instagram.com/p/DSPmT0DE0W7/) 弹钢琴中
+* **251206 本日第8话;守崎海边单人offshot** ⇨ [ins](https://www.instagram.com/p/DR6ytlvExmt/)
+* **251129 原自分再现修学旅行OP片段** ⇨ [TT](https://www.tiktok.com/@gnjb_official/video/7578074311966149906)
+* **251129 本日第7话;守崎剧照** ⇨ [ins](https://www.instagram.com/p/DRoKQmrE8A6/)
+* **251123 第6话结束;海边/烟花offshot w/守崎哥哥** ⇨ [ins](https://www.instagram.com/p/DRZban9E22Y/)
+* **251116 第5话结束;体育馆offshot w/仲里** ⇨ [ins](https://www.instagram.com/p/DRHb7uHE7h1/)
+* **251109 第4话结束;浴衣offshot w/F5每个人**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DQ1Y1yUkzQm/) みんなとの自撮り
+* **251108 旋转木马w/堀田** ⇨ [ins](https://www.instagram.com/p/DQyGjLaE1Vc/)
+* **251104 游乐园/旋转木马offshot**{: .text-green} ⇨ [ins](https://www.instagram.com/p/DQoBrTDE_wj/) 有一张和渡会的旋转木马合照
+* **251102 第3话结束;旋转木马offshot**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DQh6P7BEyFq/) 有一张和日置的旋转木马合照
+* **251026 第2话结束;守崎offshot** ⇨ [ins](https://www.instagram.com/p/DQRfpvuE4Ra/)
+* **250808 角色解禁** ⇨ [𝕏](https://x.com/genjibu_sdr/status/1953579404187381858)/[ins](https://www.instagram.com/p/DNEpbCQTXP1/)
 
 ### 岩波詩織(杏那)
 
@@ -169,46 +190,90 @@ permalink: /tmi/
 * **251222 杏那演员在X里默默追剧** ⇨ [𝕏](https://x.com/shiori_iwanami/status/2002804439019913554) 碎碎念了好几条X，很可爱的妹妹
 * **251213 和海李、女仆妹妹的offshot** ⇨ [𝕏](https://x.com/shiori_iwanami/status/1999748521642357019)
 * **251210 杏那第9话offshot** ⇨ [𝕏](https://x.com/shiori_iwanami/status/1998684579310481912)/[ins](https://www.instagram.com/p/DSE8NO3k_PZ/)
-* **251102 杏那登场剧照** ⇨ [𝕏](https://x.com/shiori_iwanami/status/1984978459937177800)/[ins有新图](https://www.instagram.com/p/DQjhPEHCUAX/) 比修仲官方ins的图要高清……杏那说自己也在看修仲「恋愛ってええね」([𝕏](https://x.com/shiori_iwanami/status/1984978935730635023))
+* **251102 杏那第4话登场剧照** ⇨ [𝕏](https://x.com/shiori_iwanami/status/1984978459937177800)/[ins有新图](https://www.instagram.com/p/DQjhPEHCUAX/) 比修仲官方ins的图要高清……杏那说自己也在看修仲「私も毎週ニヤニヤしながら視聴しております、恋愛ってええね」([𝕏](https://x.com/shiori_iwanami/status/1984978935730635023))
 * **251023 出演告知+日置杏那offshot**{: .text-blue} ⇨ [𝕏初中的杏那和日置](https://x.com/shiori_iwanami/status/1981317612752818647)/[ins](https://www.instagram.com/p/DQJkyS4iYbi/) 好美的画面…如果进藤能学学这个滤镜这个白平衡……
 
 ### 山田健人(辻谷)
 {: #yamaken}
 
-* **251008 辻谷角色情报解禁** ⇨ [ins](https://www.instagram.com/p/DPi1TzEj5Gz/)
-* **251018 和日置的合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DP84sx_j3Q5/)
-* **251025 和日置的合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DQOJ-UWj2nn/)
-* **251115 和日置/羽毛球社的合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DREo1KVD1RS/)
-* **251129 和日置合照/视频**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DRo2CFRj9DD/) 超级可爱！！蹦蹦跳跳的洸大🈶
-* **251206 杀青日拍的日置小采访&合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DR7AITHj6G_/) 可爱可爱……
-* **251214 和渡会的合照**{: .text-green} ⇨ [ins](https://www.instagram.com/p/DSNhPUJD-RY/) 并且请大家不要担心，辻谷和渡会的关系很好（笑）
 * **251220 辻谷杀青照** ⇨ [ins](https://www.instagram.com/p/DSfEFwCDzGp/)
+    > 「早い、早すぎる 本当に素敵過ぎる現場でした 辻谷楽しかったなーーー！！！絶対バド部好きなままなだから！#終わりたくねぇ ！」
+* **251214 和渡会的合照**{: .text-green} ⇨ [ins](https://www.instagram.com/p/DSNhPUJD-RY/)
+    > 山健:「请大家放心，辻谷和渡会变成好朋友了！！！！！！」
+* **251206【直播】参加了三浦健人的ins直播 w/清水海李**
+* **251206 本日第8话;杀青日拍的日置小采访&合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DR7AITHj6G_/) 
+    > 山健:「今天就要结束了的意思呢，就是今天就要结束了。」（笑死）洸大:「和辻谷相遇的那一天，感觉就像见到了一个老朋友似的。」最后两个人一起装傻可爱可爱……
+* **251129 本日第7话;和日置合照/视频**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DRo2CFRj9DD/) 超级可爱！！蹦蹦跳跳的洸大🈶
+* **251115 本日第5话;和日置/羽毛球社的合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DREo1KVD1RS/)
+* **251029【友情插播】修仲官方发的山田健人和洸大的小花絮**{: .text-blue} ⇨ [𝕏](https://x.com/dramal_abc/status/1983523717608280229)/[TT](https://www.tiktok.com/@schooltrip_abc/video/7566635762280713493)/[ins](https://www.instagram.com/p/DQZQECqk2jl/)
+    > 看了这个视频辻谷我封你为日置嫡长闺；山健:「在这个时代……不，是古往今来整个世道中(洸大:你在说啥呢？)，可以和大家一起登上巴士去修学旅行，我十分感激。你怎么想？」洸大(关西腔):「（指）我和他今天才认识，就已经这个样子了……」⬅️e人洸大都无奈了哈哈；山健:「你别说关西话，会暴露我的假关西话不正宗！」(中略)洸大:「(总之)我很期待!」山健(拍洸大):「反应太淡了再来点再来点」洸大强颜欢笑补充:「blahblahblah」结果山健一直在嗯嗯哼哼地附和，最后洸大发怒「你声音都盖过我了好吧！」
+* **251025 本日第2话;和日置的合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DQOJ-UWj2nn/)
+* **251018 本日开播!和日置的合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DP84sx_j3Q5/)
+* **251008 辻谷角色情报解禁** ⇨ [ins](https://www.instagram.com/p/DPi1TzEj5Gz/)
+
 
 ### 三浦健人(守崎辽翔)
 
-* **251229 海边小饭店杀青合照**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DSfHGyoEnu2/)
+* **260301 和山田健人、长谷川导演吃饭了** ⇨ [ins](https://www.instagram.com/p/DVVjQmdDjse/)
+* **260109 又和山田健人去桑拿了** ⇨ [ins](https://www.instagram.com/p/DTSOqG4lM1y/)
+* **251223 和山田健人第二次出去玩** 去了桑拿 ⇨ [ins](https://www.instagram.com/p/DRzb8Pikv7H/)
+* **251220 海边小饭店杀青合照**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DSfHGyoEnu2/)
+    > 「とりあえず最終話だけども 最後に何か言っておきたい事とかある？あ？笑」2333
 * **251218 分享饰演守崎辽翔时听的歌曲** ⇨ [ins](https://www.instagram.com/p/DSZ_-5iEjJl/) 详情在上方
-* **251214 守崎哥哥和日置剧照**{: .text-blue} ⇨ [ins日置和辽翔哥在走廊](https://www.instagram.com/p/DSORRd1E8LC/)
+* **251214 第9话结束;守崎哥哥和日置剧照**{: .text-blue} ⇨ [ins日置和辽翔哥在走廊](https://www.instagram.com/p/DSORRd1E8LC/)
 * **251206【直播】三浦健人ins直播 with山田健人,清水海李** ⇨ [ins直播](https://www.instagram.com/p/DR7O8kECU7i/)
-* **251130 守崎哥哥单人offshot** ⇨ [ins](https://www.instagram.com/p/DRrkaW0EoIG/)
-* **251129 和海李的海边offshot** ⇨ [ins](https://www.instagram.com/p/DRpF366EoGu/)
-* **251123 第6话剧照/花絮照**{: .text-green} ⇨ [ins渡会和守崎哥哥](https://www.instagram.com/p/DRYvNIukkja/)｜[ins守崎兄弟](https://www.instagram.com/p/DRZcHojEqT3/)
-* **251122 第6话剧照**{: .text-blue} ⇨ [ins日置和守崎哥哥](https://www.instagram.com/p/DRWjQ70Eot1/)
-* **251116 守崎哥哥角色出场剧照** ⇨ [ins](https://www.instagram.com/p/DRG1oGtEvF-/)
+* **251203 和山田健人出去玩了** 「健人同士」⇨ [ins](https://www.instagram.com/p/DRzb8Pikv7H/)
+* **251130 第7话结束;守崎哥哥offshot**{: .text-green} ⇨ [ins](https://www.instagram.com/p/DRrkaW0EoIG/)
+* **251129 本日第7话;和海李的海边offshot** ⇨ [ins](https://www.instagram.com/p/DRpF366EoGu/)
+* **251123 第6话结束;剧照/花絮照**{: .text-green} ⇨ [ins渡会和守崎哥哥](https://www.instagram.com/p/DRYvNIukkja/)｜[ins守崎兄弟](https://www.instagram.com/p/DRZcHojEqT3/)
+* **251122 本日第6话;剧照 w/日置**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DRWjQ70Eot1/)
+* **251116 第5话结束;守崎哥哥角色出场剧照** ⇨ [ins](https://www.instagram.com/p/DRG1oGtEvF-/)
+* **251113 角色解禁** ⇨ [ins](https://www.instagram.com/p/DQ_af6tkjCJ/)「今は謎の男役と言っておきます」
 
 ### 女子组
 
-* **260810 相羽星良发女子组offshot祝贺第二季** ⇨ [𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
-* **251220 相羽星良cha两片想Tiktok小视频** 桜井遥花役 ⇨ [TT](https://www.tiktok.com/@straight_angeli_official/video/7585926507143400711)
-* **251206 水戸由菜cha两片想Tiktok小视频** 葉山陽菜役 ⇨ [TT](https://www.tiktok.com/@sabuyuna_4747/video/7580695527033998613)
+*※ 相羽妹子2026年7月才开X!*{: .text-small}
+
+* **260810 相羽星良(樱井)发女子组offshot祝贺第二季** ⇨ [𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
+* **260725 相羽星良(樱井) 第3话再放送;女子组旋转木马offshot**{: .text-red} ⇨ [𝕏](https://x.com/aibaseira0819/status/2080982407478649136) 还有一张鬼屋剧照
+* **260704 相羽星良(樱井) 修仲再放送;樱井遥花第2话剧照** ⇨ [𝕏](https://x.com/aibaseira0819/status/2073384235193561228/)
+* **251221 彩香(相良)发女子组offshot** ⇨ [ins](https://www.instagram.com/p/DShsBx3DwoJ/)
+* **251221 相羽星良(樱井)发一大波修仲offshot** ⇨ [ins](https://www.instagram.com/p/DShsXxwj6hw/) 游乐园、鬼屋、女子组女仆
+    > 「きっとこれからもずっと愛されていく作品に参加できたこと、本当に光栄です☺️」
+* **251221 水戸由菜(叶山)最终回发修仲offshot**{: .text-red} 🈶分别和狐猪的合照 ⇨ [ins](https://www.instagram.com/p/DShlaj-FBCI/)
+* **251220 相羽星良(樱井)cha两片想Tiktok小视频** 桜井遥花役 ⇨ [TT](https://www.tiktok.com/@straight_angeli_official/video/7585926507143400711)
+* **251219 相羽星良(樱井) 明日最终回;女仆装女子组/杏那合照** ⇨ [ins](https://www.instagram.com/p/DScOhmYD-Bi/)
+* **251206 泉有乃(东云) 本日第8话;送信剧照** ⇨ [ins](https://www.instagram.com/p/DR6HO6lEhJZ/)
+* **251206 水戸由菜(叶山)cha两片想Tiktok小视频** 葉山陽菜役 ⇨ [TT](https://www.tiktok.com/@sabuyuna_4747/video/7580695527033998613)
+* **251201 谷口彩菜(学生役)发角色offshot** ⇨ [ins](https://www.instagram.com/p/DRtwg2hkhjo/) 不为人知(?)的修学女子组!
+* **251129 泉有乃(东云) 本日第7话;渡会递笔剧照** ⇨ [ins](https://www.instagram.com/p/DRoYGzOkiNj/)
+* **251022 谷口彩菜(学生役)杀青发和海李合照** ⇨ [𝕏](https://x.com/ayana9932/status/1981005304239362188)
+* **251019 相羽星良(樱井) 第1话结束;和剧本自拍** ⇨ [ins](https://www.instagram.com/p/DP_TrSkjwyO/)
+* **251019 彩香(相良) 第1话结束;剧本/和修学旅行小册子自拍** ⇨ [ins](https://www.instagram.com/p/DP_WQehDxOs/)
+* **251009 谷口彩菜(学生役)发和海李合照** ⇨ [𝕏](https://x.com/ayana9932/status/1976182936564347312)/[ins](https://www.instagram.com/p/DPlfxh3EqKv/)
+* **251009 谷口彩菜(学生役)角色解禁** ⇨ [𝕏](https://x.com/ayana9932/status/1976115656283259104)/[ins](https://www.instagram.com/p/DPlfxh3EqKv/)
 
 
 ### 男子组
 {: #male}
 
-* **251116/251129/251206/251220 猪野羽毛球社合照**{: .text-blue} ⇨ [𝕏(11/16)](https://x.com/araimotokidayo/status/1989880653094248696)/[ins](https://www.instagram.com/p/DRGaox6EgL6/)｜[𝕏(11/29)](https://x.com/araimotokidayo/status/1994751363784610029)/[ins图不一样](https://www.instagram.com/p/DRo-O5BES2s/)｜[𝕏(12/6)](https://x.com/araimotokidayo/status/1997254287710462214)/[ins](https://www.instagram.com/p/DR6zp56kbvC/)｜[𝕏(12/20)](https://x.com/araimotokidayo/status/2002357239009419584/)/[ins](https://www.instagram.com/p/DSfER_yET0h/) ⬅️都是没见过的图
-* **251116/251129/251207/251213 水无濑羽毛球社合照**{: .text-blue} ⇨ [ins(11/16)](https://www.instagram.com/p/DRFYraUEo2Y/)｜[ins(11/29)](https://www.instagram.com/p/DRo0BIakuvP/)｜[ins(12/7)](https://www.instagram.com/p/DR7Uw0QEvDd/)｜[ins(12/13)](https://www.instagram.com/p/DSM7fqsko4_/)
-* **251114 下村未空(水無瀬)/新井元輝(猪野)发ins第5话登场** ⇨ [ins水无濑](https://www.instagram.com/p/DRCby7dkoWb/)｜[𝕏(猪野)](https://x.com/araimotokidayo/status/1989330705265074329)/[ins](https://www.instagram.com/p/DRCg-jlEfDR/)
+* **260812 中村克晟(学生役)祝贺第二季** ⇨ [𝕏](https://x.com/ko47454_kosei/status/2087428128859885878) 他发了教室的花絮截图说当时只有他一个人看向了别的地方233
+* **260705 中村克晟(学生役)祝贺再放送+发自己的offshot** ⇨ [𝕏](https://x.com/ko47454_kosei/status/2073639838654607435) 6/29,7/4他都转发了官方再放送的推
+* **251221 下村未空(水無瀬)发杀青照;本日最终回** ⇨ [ins](https://www.instagram.com/p/DSfa6qwklwg/)
+    > 「本当にバド部、楽しかったです！！！寂しい、、。！この4人でバド部四天王を出来たことが何より嬉しいです😁🌻」
+* **251220 新井元輝(猪野) 本日最终回;羽毛球社合照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/2002357239009419584/)/[ins](https://www.instagram.com/p/DSfER_yET0h/)
+* **251213 新井元輝(猪野) 本日第9话;第8-9话羽毛球社剧照/花絮照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/1999809154547069426)
+* **251213 下村未空(水無瀬) 本日第9话;羽毛球社合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DSM7fqsko4_/)
+* **251207 下村未空(水無瀬) 本日第8话;羽毛球社合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DR7Uw0QEvDd/)
+* **251206 新井元輝(猪野) 本日第8话;羽毛球社合照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/1997254287710462214)/[ins](https://www.instagram.com/p/DR6zp56kbvC/)
+* **251129 下村未空(水無瀬) 本日第7话;羽毛球社合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DRo0BIakuvP/)
+* **251129 新井元輝(猪野) 本日第7话;羽毛球社合照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/1994751363784610029)/[ins图不一样](https://www.instagram.com/p/DRo-O5BES2s/)
+* **251116 新井元輝(猪野) 第5话结束;羽毛球社合照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/1989880653094248696)/[ins](https://www.instagram.com/p/DRGaox6EgL6/)
+* **251116 下村未空(水無瀬) 第5话结束;羽毛球社合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DRFYraUEo2Y/)
+* **251114 下村未空(水無瀬)/新井元輝(猪野)发ins第5话登场** ⇨ [ins水无濑](https://www.instagram.com/p/DRCby7dkoWb/)｜[𝕏猪野](https://x.com/araimotokidayo/status/1989330705265074329)/[ins](https://www.instagram.com/p/DRCg-jlEfDR/)
+* **251102 中村克晟(学生役) 第3话结束;自己的offshot** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1984946817377943610)
+* **251018 中村克晟(学生役) 本日开播;修仲便当照** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1979514674711507376)
+* **251015 中村克晟(学生役)角色情报解禁** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1978359337773879346)
 * **251012 新井元輝(猪野)角色情报解禁** ⇨ [𝕏](https://x.com/araimotokidayo/status/1977306800342122522)/[ins](https://www.instagram.com/p/DPtGIf7EbRF/)
 * **251008 下村未空(水無瀬)角色情报解禁** ⇨ [ins](https://www.instagram.com/p/DPi2RhgkvOH/)
 

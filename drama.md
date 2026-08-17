@@ -60,7 +60,7 @@ permalink: /drama/
 * **演员表**
     > 日置朝陽 - 藤本洸大
     > 渡会紬嵩 - 簡秀吉
-    > 守崎尚哉 - 桜木雅哉（原因は自分にある。）[Ins](https://www.instagram.com/msy_enter319/)/[Ins-原自分](https://x.com/genjibu_sdr)
+    > 守崎尚哉 - 桜木雅哉（原因は自分にある。）[Ins](https://www.instagram.com/msy_enter319/)/[X-原自分](https://x.com/genjibu_sdr)/[Ins-原自分](https://www.instagram.com/gnjb_official/)
     > 仲里晴輝 - 福田歩汰（DXTEEN）[X-DXTEEN](https://x.com/official_DXTEEN)/[Ins-DXTEEN](https://www.instagram.com/dxteen_official/)
     > 堀田颯斗 - 清水海李 [X](https://x.com/kairi_shimizu)/[Ins](https://www.instagram.com/kairi_shimizu7)
     --- 羽毛球部 ---
@@ -69,7 +69,7 @@ permalink: /drama/
     > 猪野俊祐 - 新井元輝 [X](https://x.com/araimotokidayo)/[Ins](https://www.instagram.com/motoki_arai/)
     --- 女同学 ---
     > 葉山陽菜 - 水戸由菜 [Ins](https://www.instagram.com/yuna_3047/)
-    > 桜井遥花 - 相羽星良 [X](https://x.com/aibaseira0819)/[Ins](https://www.instagram.com/seira_aiba_official/)
+    > 桜井遥花 - 相羽星良(straight angeli) [X](https://x.com/aibaseira0819)/[Ins](https://www.instagram.com/seira_aiba_official/)
     > 相良柚季 - 彩香 [Ins](https://www.instagram.com/sayaka__380/)
     > 東雲唯　 - 泉有乃 [Ins](https://www.instagram.com/yuno_izumi_official/)
     ---  其他 ---
@@ -78,7 +78,7 @@ permalink: /drama/
     > 2年5組担任（美術科）- 宮島はるか *班主任*{: .text-small}
     > 朝比奈蓮 - 渡口和志 *番外篇日置pocky game的对象；第7话说渡会坏话的男同学*{: .text-small} [X](https://x.com/kazumammostar)/[Ins](https://www.instagram.com/ooops_kazu/)
     > 真壁伊吹 - 中村克晟 [X](https://x.com/ko47454_kosei) *背景板男同学*{: .text-small}
-    > 松嶋ほのか - 谷口彩菜 [Ins](https://www.instagram.com/taniguchi_ayana/)
+    > 松嶋ほのか - 谷口彩菜 [X](https://x.com/ayana9932)/[Ins](https://www.instagram.com/taniguchi_ayana/)
 * **生日与年龄**
     > **剧中年龄(*修学旅行2025.6.25~6.27*)**
     > 日置朝陽(2008/5/22,17), 渡会紬嵩(2009/2/14, 16), 守崎尚哉(2008/11/26, 16), 仲里晴輝(2008/9/19, 16), 堀田颯斗(2008/6/30, 16)
@@ -100,11 +100,11 @@ permalink: /drama/
     > **260809 Luckyfes'26 live** ⇨ [𝕏](https://x.com/l_my_mee_mine/status/2086332279471886546)
     > **260508 DXTEEN 両片想い(Acoustic Ver.)公开** ⇨ [Youtube](https://www.youtube.com/watch?v=NNyvLNoHYfA)
     > **260109 DXTEEN ARENA LIVE 〜FULL OUT!〜 live** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2014608299694686399)
-    > **250924 DXTEEN「両片想い」发售**
+    > **250924 DXTEEN「両片想い」Release**
     > **250917 DXTEEN「両片想い」修仲主题曲情报解禁**
 * **OP:「トレモロ」原因は自分にある。** ⇨ [Youtube](https://www.youtube.com/watch?v=g4fUelgqMbU)
     > **260522「トレモロ」live** from LIVE TOUR 2026 輪廻の箱庭 at 仙台サンプラザホール ⇨ [𝕏](https://x.com/genjibu_sdr/status/2057784535761486247)
-    > **251108 发布** ⇨ [链接集](https://lnk.to/GNJB_tremolo)
+    > **251108「トレモロ」Release** ⇨ [链接集](https://lnk.to/GNJB_tremolo)
 * **260107 官方OST by 鈴木ヤスヨシ**: [Youtube](https://www.youtube.com/playlist?list=OLAK5uy_kXrUKYr46VgYG8DZ8MMWoaiPdu3SExNCo)｜[QQ音乐](https://y.qq.com/n/ryqq_v2/albumDetail/81458595?ADTAG=h5_share_album&redirecttag=mn.redirect.custom&mnst=1.69)｜[网易云音乐](https://music.163.com/#/album?app_version=9.5.30&id=355877644&dlt=0846)｜[Spotify](https://open.spotify.com/album/0HgL3I1dWOc0v9VQdqPWTo)｜[Amazon Music](https://www.amazon.com/drama%E3%80%8CSchool-Trip-Joined-%E3%80%8Doriginal-soundtrack/dp/B0GC4ZTQ58)
 > **「ドラマ「修学旅行で仲良くないグループに入りました」オリジナル・サウンドトラック」**
 > 1 4+1のPrologue

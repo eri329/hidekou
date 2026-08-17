@@ -44,8 +44,6 @@ https://x.com/oricon/status/1982015558515392793
 <!-- 11-21 TVguide 1月号
 251206 TVguide 1月号 other cut https://x.com/GEKKAN_TVGUIDE/status/1997159899542004210 -->
 
-<!-- 一些直播！！https://www.instagram.com/dxteen_official/reels/ -->
-
 <!-- https://fan.books.rakuten.co.jp/articles/7871
 https://fan.books.rakuten.co.jp/articles/8545 -->
 
@@ -55,7 +53,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO: https://www.instagram.com/dramal_abc/reposts/;简秀吉ins;洸大ins 基本上就完成大头了!!!接下来的一些计划:修仲图全记录计划 -->
 
-<!-- TODO next: 查漏补缺：WIKI/ins其他版块/几个修仲直播？/杂志官号/亲妈X/ins@topcoat_staff -->
+<!-- TODO next: 查漏补缺：WIKI/ins其他版块/进藤导演转发ins/杂志官号/亲妈X/ins@topcoat_staff -->
 
 <!-- 博主:https://weibo.com/u/2277992341?tabtype=feed -->
 
@@ -67,20 +65,20 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 小说翻译 https://www.bilibili.com/opus/1136224123504033798?plat_id=5&share_from=article&share_medium=android&share_plat=android&share_session_id=fc801731-99c5-471a-bed9-c0b02f3c0201&share_source=COPY&share_tag=s_i&timestamp=1763701069&unique_k=z1cRGVE -->
 
-<!-- TODO：整理修学的所有直播；小猪直播小简陪同情况!!! -->
-
-<!-- TODO：NEXT: DXTEEN和原自分，共演们SNS，秀洸FC -->
-
-<!-- 录音师：https://x.com/search?q=from%3Atopnotetokyo%20%E3%83%89%E3%83%A9%E3%83%9E%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
-
-<!-- https://sp.tcland.jp/contents/special -->
+<!-- 别忘了这里的物料: https://sp.tcland.jp/contents/special -->
 
 <!-- 准备开一个修学旅行TMI专栏：收录导演密话，录音师密话，拍摄小趣事，狐猪直播/采访时提到的各种趣事，然后把具体笔记内容从时间线移除；DXTEEN小视频专门拿出来 -->
 
 <!-- VIVI在国内平台发的东西，小简小红书 -->
 
+<!-- NEXT: 导演/录音师；杂志官号；亲妈推；编辑部推； -->
 
-[ 2026-08-16] 添加【直播记录】内容；补充完海李X和Ins <!-- NEXT：msy -->
+<!-- 录音师：https://x.com/search?q=from%3Atopnotetokyo%20%E3%83%89%E3%83%A9%E3%83%9E%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
+
+<!-- TODO：NEXT:秀洸FC -->
+
+
+[ 2026-08-16] 添加【直播记录】；补充完海李X和Ins；补完樱木雅哉、原自分、其他所有共演SNS！🎉
 
 [ 2026-08-15] 增加【修仲百景】页面；补档完成DXTEEN的X和Ins!
 
@@ -88,7 +86,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 [ 2026-08-12] 整理完同窗会/第二季解禁；常规更新至8/13下午
 
-[ 2026-08-11 ] 整理小简全平台发帖；依然没整理完S2官宣💦 应该只剩报道阵了；开始整理🔒FC链接
+[ 2026-08-11 ] 整理小简全平台发帖；依然没整理完S2官宣💦 应该只剩报道阵了
 
 [ 2026-08-10 ] 增加scroll-up按钮；收起第一季时间线；开始记录第二季粉丝数据；更新8/10物料
 
