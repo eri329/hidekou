@@ -8,7 +8,8 @@ permalink: /tmi/
 
 #### 索引
 * [幕后故事](#bts)
-* [修仲别景](#sidecar)
+* [修仲别景](#sidecar) - <span>[清水海李](#shimizu) ｜ [福田步汰](#ayuta) ｜ [樱木雅哉](#mayasa) ｜ [岩波詩織](#anna) ｜ [山田健人](#yamaken) ｜ [三浦健人](#morini) ｜ [女子组](#girls) ｜ [男子组](#boys)</span>{: .text-small}
+* [幕后存档](#bts-archive)
 
 <div class="line"></div>
 
@@ -17,17 +18,34 @@ permalink: /tmi/
 
 ### 狐猪
 
+* **最终回第三次亲亲是简秀吉的即兴表演**(进藤导演/251221) ⇨ [𝕏](https://x.com/shindo59512/status/2002578601410244889)｜[ins祝贺最终回](https://www.instagram.com/p/DSgN411k_5M/)
+    > X:<span>「ラストの渡会の3度目キスは完全アドリブです笑 テストではしなかったのに本番で急に軽くチュッ。その後 #藤本洸大 君の『もう、簡秀吉め〜』という表情は素でしたね笑　監督としてはあの不意打ちキスは嬉しかったです！」</span>{: .text-pink}导演直接爆料第三次亲亲是即兴!「在试演的时候还没有的，在本番却突然轻轻亲了一下。随后日置的表情好像也有点流露出本人的状态了呢，仿佛在说『真是的、简秀吉这个家伙～』。作为导演很高兴看到那个“出其不意之吻”!」⬅️小简回复<span>「狙いを定めて〜レッツ射撃🫶🏻監督有り難う御座いました🙇‍♂️」</span>{: .text-pink}(瞄准目标～让我们射击🫶🏻感谢导演🙇‍♂️) 导演再回<span>「こちらこそありがとう😂😂」</span>{: .text-pink}(我才要谢谢你😂😂)（笑死）
+    > ins: 发了和每个人的合照(说洸大和小简都照顾他身高蹲了一点233)、人最多的杀青合照以及没发过的渡日冬服公园offshot…真的感觉爱都溢出来了。进藤这条ins也写得特别真诚:<span>「スタッフ・キャストがとにかく仲良く、プロデューサーも「こんなに終わりが淋しい作品、ホントに無い」と言ってくれた」</span>{: .text-pink}(大家关系都特别好，制作人也说从来没有一部作品能让人在杀青时感到如此不舍)；<span>「最後の2人が完全に結ばれたキス、良かったですよね〜あのキスも簡君が色々と考えてくれて（はむはむするか？しないか？など）、結果素敵なキスシーンになりました。」</span>{: .text-pink}最后的吻进藤说是「2人が完全に結ばれたキス」(令两人完全结合的吻⬅️没错!)，“那个吻也是简君考量了各种细节（比如要不要咬唇/深吻等等），最终才呈现出这么精彩的吻戏。”（站长:真的能感觉到是所有人倾注了心血的作品!）
+* **进藤评价第8话洸大的演技**(进藤导演/251207) ⇨ [𝕏](https://x.com/shindo59512/status/1997540166379147706)｜[ins](https://www.instagram.com/p/DR8V3kDkrzU/)
+    > 「请一定要关注藤本洸大君在接受东云桑告白后的演技。他被那份直率真挚的情感所打动，一直在拼命忍住眼泪。多亏于此，美术室的那场戏展现出了极其逼真传神的演技呢！」
+* **第7话因为告白戏狐猪两位发挥得太好了一镜到底全放剧里了**(进藤导演/251201) ⇨ [ins](https://www.instagram.com/p/DRs9UnmD9mZ/)
+    > <span>「また海での #藤本洸大 くんと #簡秀吉 くんの演技は流石でしたね。藤本くんは本番にしっかり心を合わせてきて、溢れる感情の表現が素晴らしかったでし、簡くんは感動する気持ちから、攻め攻めへの切り替わり、凄かったですよね。本当はもっと短くカットして重ねていく予定でしたが、あまりにも芝居が良くてそのまま最後までカットかけずにいきました。」</span>{: .text-pink}“藤本君的情绪非常到位，溢于言表的情感表现力真的很棒；而简君从动情感动瞬间切换到带有进攻性的状态，真的很厉害呢。本来是准备剪短一点的，因为两个人的演技太好了，直接一镜到底放进去了。”（拍我们狐猪多省心！）
+* **第5话小简正面怼脸镜头把导演帅到了**(长谷川导演/251121) ⇨ [𝕏](https://x.com/hasetaku0227/status/1991659226658402811)
+    > 「第5集的拍摄是从和第4集衔接的场景开始的。在“告白”的那场戏里，我选择了正对着演员的正面反打镜头（Cutback），看着监视器里简君那压倒性的颜值，我不禁小声嘟囔了一句：“这也太帅了吧笑”。」🤣🤣
+* **OP写对方名字灵感来自于渡会写分组表**(进藤导演/251130) ⇨ [𝕏](https://x.com/shindo59512/status/1994943947727409450)
+    > 渡会给东云借笔和日置加入修学旅行小组都是第一天拍摄的。因为渡会在分组表上写日置的名字感觉很好，导演受到启发拍成了OP的画面。
+* **进藤导演一直在念的“恋爱喜剧女主”**(进藤导演/251116)
+    > 剧本围读的时候进藤给洸大的表演建议是让洸大想象自己是“恋爱喜剧的女主角”；夸奖洸大把这一点很好地演出来了。
+
 ### 三天王
 
 * **第6话：真实的海边赛跑结果:洸大跑得超快，海李直接跑海里去了**(清水海李/251128) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1994374185293095145)
     > 海李说跑海里没跟大家说但是悄悄跟摄影师确认了拍摄角度hhhh（为花絮都这么操心！
 * **第6话：洸大生日惊喜幕后**(清水海李/251123) ⇨ [ins](https://www.instagram.com/p/DRXT1txEiaB/)
     > 今天大家一边拍摄一边给洸大准备生日惊喜非常忙乱；生日蛋糕是中午吃的；这天晚上是满月，天空很漂亮。
-* **第6话：守崎哥哥给步汰买回来的冰淇淋是「NICO大福」**(福田步汰/251123) NICO是DXTEEN的粉丝名! 超级可爱的冰淇淋 ⇨ [ins](https://www.instagram.com/p/DRZNRniD3Vp/)
+* **第6话：守崎哥哥给步汰买回来的冰淇淋是“NICO大福”**(福田步汰/251123) NICO是DXTEEN的粉丝名! 超级可爱的冰淇淋 ⇨ [ins](https://www.instagram.com/p/DRZNRniD3Vp/)
+* **第5话: 堀田远距离起跑超过守崎的画面大大超出了导演原本的想象**(长谷川导演/251121) ⇨ [𝕏](https://x.com/hasetaku0227/status/1991828169176007132)
+    > <span>「体育シーンで「堀田がシーン頭で守崎を追い抜いて」とお願いしたら #清水海李 くんは想像をはるかに超える距離にスタート位置を決めて、「こっから行きます」と宣言（笑） いつもこちらの演出を、パワーアップして返してくれる清水くんに感謝でした」</span>{: .text-pink}海李在超乎导演想象的地方宣布“我要从这里起跑！”, 导演非常感谢他总是能把演出要求以超乎预期的效果翻倍加码呈现出来。海李回<span>「こちらこそ俳優陣に自由な動きを許してくださる監督の方々に大感謝です！」</span>{: .text-pink}([𝕏](https://x.com/kairi_shimizu/status/1991841025334374639))感谢导演给予自由发挥的空间。
 * **第5话：堀田超高活力的全力奔跑**(清水海李/251116) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1989736834071769482)
     > 海李说在操场跑步时使出了全力，因为是一早拍的，拍完之后那一天的体力就降为0了hhh
 * **第4话：步汰拿到的签里面写着很多DXTEEN的歌词**(福田步汰/251109) 步汰看到的时候都觉得「诶！！好厉害！」剧组实在太用心了 ⇨ [ins](https://www.instagram.com/p/DQ0numIj6IW/)
 * **第3话：在酒店吃晚饭时的「いただきニャン！」「ニャン！」「いやマジ見てらんないわ」全都是即兴演出**(清水海李/251102) ⇨ [𝕏](https://x.com/Ko_shin102/status/1984809496624185595) 大家相性未免太好了！
+* **第1话：仲里在科技馆给守崎拍照说了「素敵な宇宙飛行士くださーい」之后守崎的拍照pose都是即兴的**(进藤导演/251019) ⇨ [𝕏](https://x.com/shindo59512/status/1979851838552956933)
 * **第1话: 仲里拍照时究竟有几个芝士版本**(清水海李/251019) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1979895579674321344)
     > 海李说第1集在科技馆的合照仲里拍“片状芝士（Slice Cheese）”那场戏的时候，光是在彩排和正式拍摄前测试的阶段就演了大概6次，但他每次都会换不同的词233 堀田最喜欢的是“牙套（Mouthpiece）！” 这道XX芝士最后也成了修仲同窗会的题目，同窗会上步汰说在科技馆说了Slice Cheese，而文化祭说了Cheddar Cheese(www)
 
@@ -35,12 +53,18 @@ permalink: /tmi/
 
 ### 其他幕后
 
-* **修仲片头片尾都是本剧演员开唱的** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1982653598938054694) ⬅️海李感叹真不错！
 * **修仲剧组开播前的小目标是TVer收藏达到8万**(官方快拍/251011) 这个数字在25/10/11就达到啦~
-* **池谷总会是读错杏那的姓氏最后喜得汁谷外号**(录音师柴田/251223) ⇨ [𝕏柴田](https://x.com/topnotetokyo/status/2003316436752887849)｜[𝕏岩波(杏那)](https://x.com/shiori_iwanami/status/2004221747902742707)
-    > 说是辻谷老是把「池ヶ谷」说成「池谷」, 录音师威胁他下次再读错就让他改名成「汁谷」，结果还是完美地说错了，于是开始叫他汁谷君（哈哈哈哈）杏那的演员说“我也好几次谜之要喊出「辻ケ谷」来了”
+* **修仲片头片尾都是本剧演员开唱的**(清水海李/251027) ⇨ [𝕏](https://x.com/kairi_shimizu/status/1982653598938054694) ⬅️海李感叹真不错！
+* **拍摄第8话美术教室戏份的时候亲妈来探班了，还交流了第1话的感想**(进藤导演/251205) ⇨ [ins](https://www.instagram.com/p/DR4Cf9RkTz_/)
+* **旅馆的女将是制作人出演的**(进藤导演/251109) 站长:有这个角色的戏份吗🤔 ⇨ [ins](https://www.instagram.com/p/DQ0Kw7ikj6D/)
+* **第5话羽毛球部的战斗力30是导演突发奇想+演员偷偷练习呈现出来的**(长谷川导演/251121) ⇨ [𝕏](https://x.com/hasetaku0227/status/1991878505995620600)
+    > <span>「戦闘力30ポーズは、深夜のテンションで思いついたのを、当日バド部の3人にお願いしました 3人ノってくれて、日置や他スタッフバレないように猛練練習、初めてリハで披露した時に、割とウケたのが良い思い出です」</span>{: .text-pink}“战斗力30这个姿势，是我在半夜时突发奇想冒出来的，拍摄当天就拜托了羽毛球部的他们3个人。3个人很配合，为了不被日置和其他工作人员发现而猛加练习，在彩排时第一次展现就很有喜剧效果，真是段不错的回忆啊。” （好温暖的小故事……）
+* **辻谷总会是读错杏那的姓氏最后喜得汁谷外号**(录音师柴田/251223) ⇨ [𝕏柴田](https://x.com/topnotetokyo/status/2003316436752887849)｜[𝕏岩波(杏那)](https://x.com/shiori_iwanami/status/2004221747902742707)
+    > 说是辻谷老是把“池ヶ谷”说成“池谷”, 录音师威胁他下次再读错就让他改名成“汁谷”，结果还是完美地说错了，于是开始叫他汁谷君（哈哈哈哈）杏那的演员说“我也好几次谜之要喊出“辻ケ谷”来了”
+* **在圣诞派对辻谷的即兴表演可以称得上是暴走了**(进藤导演/251219) ⇨ [𝕏](https://x.com/shindo59512/status/2001880259533459869)
+    > 「在圣诞派对的戏份里，辻谷现场输出了让人摸不着头脑的即兴表演。简直已经逼近“暴走”的程度了，笑。也请大家期待其他演员面对这一状况时的反应与应对演技！」
 * **守崎哥哥演员分享饰演守崎辽翔时听的歌曲**(三浦健人/251218) ⇨ [ins](https://www.instagram.com/p/DSZ_-5iEjJl/)
-    > 竟然是NEWS的「さくらガール」；后来三浦健人(守崎辽翔演员)还发了很多跟山田健人出去玩的ins，说他们是「健人同士」www([12/3](https://www.instagram.com/p/DRzb8Pikv7H/)，[12/23-桑拿](https://www.instagram.com/p/DSmqPF6EiUe/)，[26/1/9-桑拿](https://www.instagram.com/p/DTSOqG4lM1y/),[3/1-和山田健人、长谷川导演一起吃饭](https://www.instagram.com/p/DVVjQmdDjse/)), 修仲team关系很好呢！
+    > 竟然是NEWS的《さくらガール》；后来三浦健人(守崎辽翔演员)还发了很多跟山田健人出去玩的ins，说他们是“健人同士”www([12/3](https://www.instagram.com/p/DRzb8Pikv7H/)，[12/23-桑拿](https://www.instagram.com/p/DSmqPF6EiUe/)，[26/1/9-桑拿](https://www.instagram.com/p/DTSOqG4lM1y/),[3/1-和山田健人、长谷川导演一起吃饭](https://www.instagram.com/p/DVVjQmdDjse/)), 修仲team关系很好呢！
 
 
 <div class="line"></div>
@@ -55,13 +79,17 @@ permalink: /tmi/
 *※ 修仲相关排名、repo会直接归档在首页时间线*{: .text-small}
 *※ 幕后趣事会记录在上方*{: .text-small}
 
+
 ### 清水海李
+{: #shimizu}
 
 *※ 海李转了很多官推，梗超多，活人感很强*{: .text-small}
 *※ 他在自己的X上简直是一个步汰梦男夸夸狂魔！*{: .text-small}
 
 * **260810 夏日同窗会&修仲第二季!** ⇨ [𝕏海李](https://x.com/kairi_shimizu/status/2086800555926868068)/[ins海李](https://www.instagram.com/p/Db3H0Fjkidu/)
     > 「皆様の声が確実に届きましたよ！みんなありがとう！堀田進級できたぞ！よくやった！🔥よりパワーアップした"修仲"をお届けできるよう一丸となって撮影臨んでいきます！」海李心心念念的升三年级终于做到了！双向奔赴泪目ing
+
+---
 * **260718 回应修仲官推祝贺清水生日快乐:明年不要迟到了** 海李是7/17生日 ⇨ [𝕏](https://x.com/kairi_shimizu/status/2078428507110260747)
 * **260201 和小简步汰吃饭** あゆたお疲れ様会 ⇨ [𝕏(2/2)](https://x.com/kairi_shimizu/status/2018087306209767689)｜[ins(2/6)](https://www.instagram.com/p/DUaiBV9EtqM/)
 * **260109 看了DXTEEN的FULL OUT live** ⇨ [𝕏](https://x.com/kairi_shimizu/status/2009603329559760939)
@@ -76,13 +104,13 @@ permalink: /tmi/
 * **251214 第9话结束;cos+校服堀仲** ⇨ [𝕏](https://x.com/kairi_shimizu/status/2000078061342245077)｜[ins发三天王和女仆日置(12/15)](https://www.instagram.com/p/DSRuxJBEjG_/) ⬅️又cue了“進級”
 * **251213 本日第9话;cos服三天王** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1999840956053590320)/[ins](https://www.instagram.com/p/DSNLUOoEklT/)
 * **251209 和步汰雅哉跳男团手势舞** 说这是师走dance，手忙脚乱才能跟上 ⇨ [ins舞](https://www.instagram.com/reel/DSCmo8Dky3E/)｜[𝕏](https://x.com/kairi_shimizu/status/1998357913413562780)
-* **251208 和步汰雅哉跳男团舞** ⇨ [ins舞](https://www.instagram.com/reel/DSABYxeEyzt/)｜[𝕏段子](https://x.com/kairi_shimizu/status/1998010129682464960) 自称来自「腹筋6LDK」团，粉丝名称「プロテイン」(蛋白质)，推活是锻炼肌肉2333 
+* **251208 和步汰雅哉跳男团舞** ⇨ [ins舞](https://www.instagram.com/reel/DSABYxeEyzt/)｜[𝕏段子](https://x.com/kairi_shimizu/status/1998010129682464960) 自称来自“腹筋6LDK”团，粉丝名称“プロテイン”(蛋白质)，推活是锻炼肌肉2333 
 * **251207 本日第8话;堀田监督花絮照**{: .text-blue} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1997327240561062065)/[ins](https://www.instagram.com/p/DR7SJKLEpd1/) 海李在没有堀田戏份的那天向监督借的椅子233 自称“神童監督”
 * **251130 第7话结束** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1995131094283477203) 图是发过的;海李说3班的佐藤因为身体太强壮被橄榄球部挖角了233
 * **251129 本日第7话;四天王初识剧照**{: .text-green} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1994761634334871903/)/[ins](https://www.instagram.com/p/DRpGKurEnZe/)
 * **251124【直播】参加了DXTEEN的直播**{: .text-green} ⇨ [𝕏](https://x.com/kairi_shimizu/status/1992956055610077611)
 * **251124 海李晒手机屏保是仲里** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1992837060592648420/)
-    > 前情是海李问大家「メロい」是什么意思([𝕏](https://x.com/kairi_shimizu/status/1992601164358340760))，知道了以后就发了这条推说原来这就是メロい……俩正经恋爱主角都没你会卖!!
+    > 前情是海李问大家“メロい”是什么意思([𝕏](https://x.com/kairi_shimizu/status/1992601164358340760))，知道了以后就发了这条推说原来这就是メロい……俩正经恋爱主角都没你会卖!!
 * **251123 第6话结束;海边+烟花合照**{: .text-red} ⇨ [ins洸大的生日蛋糕](https://www.instagram.com/p/DRXT1txEiaB/)｜[ins海边堀田/烟花三天王/守崎哥&堀田](https://www.instagram.com/p/DRZf0XDkjJS/)
 * **251116 第5话结束;年级大会三天王offshot** ⇨ [𝕏](https://x.com/kairi_shimizu/status/1989735085495701904)/[ins](https://www.instagram.com/p/DRFYK6ikqK_/)
     > 海李说「撮影シーン動画に収めたのでいつか解禁できる時があれば皆さんに見せたいです」，abc你什么时候把窗帘花絮放出来…………
@@ -110,12 +138,15 @@ permalink: /tmi/
     > 「リアルな仲良しグループを画面に表現できるよう撮影に臨んできます！」(希望拍出看起来真的关系很好的小组) ⬅️这一点你们真的做到了!
 
 ### 福田步汰(DXTEEN)
+{: #ayuta}
 
 *※ 步汰没有个人的SNS，以下全都是DXTEEN账号发的*{: .text-small}
 
 * **260811 修仲男团组步汰和雅哉cha舞 - our sky** ⇨ [ins-Our Sky](https://www.instagram.com/p/Db5NJ36PJVn/)
 * **260810 DXTEEN修仲夏日同窗会&官宣第二季**{: .text-red}
     > [𝕏DXTEEN(高清官宣图)](https://x.com/official_DXTEEN/status/2086775022887301467)｜[𝕏DXTEEN(合照)](https://x.com/official_DXTEEN/status/2086780042236104805)｜[𝕏DXTEEN(步汰)](https://x.com/official_DXTEEN/status/2086798684906504679)｜[TT-步汰-同窗会花絮视频](https://www.tiktok.com/@official_dxteen/video/7672405325479185672)/[ins](https://www.instagram.com/p/Db3NEbDPeXf/)
+
+---
 * **260524 DXTEEN旋转木马修仲梗抖音小视频** 真的很好笑…… ⇨ [𝕏](https://x.com/official_DXTEEN/status/2058501044607615339)/[ins](https://www.instagram.com/reel/DYuAMvTPzMB/)
 * **260330 福田步汰(DXTEEN)录小视频回应狐猪的生日祝福**{: .text-red} [𝕏](https://x.com/official_DXTEEN/status/2038626898897735909)
 * **260327 福田步汰(DXTEEN)打卡大阪朝日电视台大厅渡日立牌** [𝕏](https://x.com/official_DXTEEN/status/2037477072315224334)
@@ -162,11 +193,14 @@ permalink: /tmi/
 * **250808 DXTEEN 福田步汰角色解禁** ⇨ [𝕏](https://x.com/official_DXTEEN/status/1953576895855116775)
 
 ### 樱木雅哉(原自分)
+{: #mayasa}
 
 *※ 未标注的发自雅哉个人Ins，标注原自分的发自团号*{: .text-small}
 
 * **260811【原自分】修仲男团组步汰和雅哉cha舞 - 火宴** ⇨ [ins-火宴](https://www.instagram.com/p/Db5N3HohDwW/)
 * **260810 同窗会合照&修仲第二季** ⇨ [ins](https://www.instagram.com/p/Db3CSIHTwoy/)｜[𝕏原自分-问候视频](https://x.com/genjibu_sdr/status/2086784627147002308)
+
+---
 * **251221 守崎杀青照** ⇨ [ins](https://www.instagram.com/p/DShqrUQk4b5/)
     > 「改めて、この作品に携われて本当に良かったですし、素敵な方々に囲まれてのびのびと演技ができて本当に良かったです。また成長して、修仲メンツに会いたいです！修学旅行のグループがあの四人で本当に良かったです」
 * **251219 最终回先行上映会后台合照**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DScrcy_k1VI/)
@@ -184,6 +218,7 @@ permalink: /tmi/
 * **250808 角色解禁** ⇨ [𝕏](https://x.com/genjibu_sdr/status/1953579404187381858)/[ins](https://www.instagram.com/p/DNEpbCQTXP1/)
 
 ### 岩波詩織(杏那)
+{: #anna}
 
 * **260809 杏那新的offshot** ⇨ [𝕏](https://x.com/shiori_iwanami/status/2086458616190758957) 嗯嗯大概是知道明天是什么日子所以发了新图XD｜[𝕏](https://x.com/shiori_iwanami/status/2086459552711807416) 岩波妹子碎碎念被安见导演鼓励了第二季公开后导演还说了下次也请多关照!
 * **251228 杏那和渡会的offshot**{: .text-green} ⇨ [𝕏](https://x.com/shiori_iwanami/status/2005289131153457395)「謎の距離感」⬅️笑死
@@ -213,6 +248,7 @@ permalink: /tmi/
 
 
 ### 三浦健人(守崎辽翔)
+{: #morini}
 
 * **260301 和山田健人、长谷川导演吃饭了** ⇨ [ins](https://www.instagram.com/p/DVVjQmdDjse/)
 * **260109 又和山田健人去桑拿了** ⇨ [ins](https://www.instagram.com/p/DTSOqG4lM1y/)
@@ -231,15 +267,18 @@ permalink: /tmi/
 * **251113 角色解禁** ⇨ [ins](https://www.instagram.com/p/DQ_af6tkjCJ/)「今は謎の男役と言っておきます」
 
 ### 女子组
+{: #girls}
 
-*※ 相羽妹子2026年7月才开X!*{: .text-small}
+*※ 相羽妹子感觉是发修仲最多的*{: .text-small}
 
 * **260810 相羽星良(樱井)发女子组offshot祝贺第二季** ⇨ [𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
+
+---
 * **260725 相羽星良(樱井) 第3话再放送;女子组旋转木马offshot**{: .text-red} ⇨ [𝕏](https://x.com/aibaseira0819/status/2080982407478649136) 还有一张鬼屋剧照
 * **260704 相羽星良(樱井) 修仲再放送;樱井遥花第2话剧照** ⇨ [𝕏](https://x.com/aibaseira0819/status/2073384235193561228/)
 * **251221 彩香(相良)发女子组offshot** ⇨ [ins](https://www.instagram.com/p/DShsBx3DwoJ/)
 * **251221 相羽星良(樱井)发一大波修仲offshot** ⇨ [ins](https://www.instagram.com/p/DShsXxwj6hw/) 游乐园、鬼屋、女子组女仆
-    > 「きっとこれからもずっと愛されていく作品に参加できたこと、本当に光栄です☺️」
+    > 「きっとこれからもずっと愛されていく作品に参加できたこと、本当に光栄です☺️」妹妹好会说！！
 * **251221 水戸由菜(叶山)最终回发修仲offshot**{: .text-red} 🈶分别和狐猪的合照 ⇨ [ins](https://www.instagram.com/p/DShlaj-FBCI/)
 * **251220 相羽星良(樱井)cha两片想Tiktok小视频** 桜井遥花役 ⇨ [TT](https://www.tiktok.com/@straight_angeli_official/video/7585926507143400711)
 * **251219 相羽星良(樱井) 明日最终回;女仆装女子组/杏那合照** ⇨ [ins](https://www.instagram.com/p/DScOhmYD-Bi/)
@@ -255,9 +294,11 @@ permalink: /tmi/
 
 
 ### 男子组
-{: #male}
+{: #boys}
 
 * **260812 中村克晟(学生役)祝贺第二季** ⇨ [𝕏](https://x.com/ko47454_kosei/status/2087428128859885878) 他发了教室的花絮截图说当时只有他一个人看向了别的地方233
+
+---
 * **260705 中村克晟(学生役)祝贺再放送+发自己的offshot** ⇨ [𝕏](https://x.com/ko47454_kosei/status/2073639838654607435) 6/29,7/4他都转发了官方再放送的推
 * **251221 下村未空(水無瀬)发杀青照;本日最终回** ⇨ [ins](https://www.instagram.com/p/DSfa6qwklwg/)
     > 「本当にバド部、楽しかったです！！！寂しい、、。！この4人でバド部四天王を出来たことが何より嬉しいです😁🌻」
@@ -276,6 +317,77 @@ permalink: /tmi/
 * **251015 中村克晟(学生役)角色情报解禁** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1978359337773879346)
 * **251012 新井元輝(猪野)角色情报解禁** ⇨ [𝕏](https://x.com/araimotokidayo/status/1977306800342122522)/[ins](https://www.instagram.com/p/DPtGIf7EbRF/)
 * **251008 下村未空(水無瀬)角色情报解禁** ⇨ [ins](https://www.instagram.com/p/DPi2RhgkvOH/)
+
+
+<div class="line"></div>
+
+## 幕后存档
+{: #bts-archive}
+
+### 進藤丈広
+*※ 1、7、8、10话导演*{: .text-small}
+*※ 进藤导演是宣传最卖力的，省略了很多纯宣传+车轱辘话帖子*{: .text-small}
+*※ 进藤导演发了很多其他地方没有的花絮照!*{: .text-small}
+*※ 快拍in progress……*{: .text-small}
+
+* **260811 修仲第二季发表!** ⇨ [𝕏](https://x.com/shindo59512/status/2087020243734737195)｜[ins](https://www.instagram.com/p/Db4NGfRk6-C/)
+    > X:「昨日はイベントに行き久しぶりに５人と会って、またあの時間が始まるんだなーっとワクワクした気持ちになりました！パワーアップした５人を是非ともよろしくお願いします！」
+    > ins:「皆様から有難い続編希望の声をたくさんいただき、ついに実りました！撮影はこれからですが、また皆様に楽しんでもらえる修仲ワールド満載のドラマにしたいと思います！」「DMも全部読ませてもらってます！」导演说他会读每一条私信的！
+* **260810 快拍:再始動！** 配图修仲签名日历
+* **260803 发X和快拍表示正在为今年最后一部BL作品勘景** ⇨ [𝕏](https://x.com/shindo59512/status/2084252382540730556)
+
+---
+* **260705 再放送🧢監督メモ🧢** 感谢了韩国的活动和大家长情的支持 ⇨ [𝕏](https://x.com/shindo59512/status/2073654407821152675)
+* **260711~260712 进藤导演的映像演技ワークショップ(演技workshop)** ⇨ [𝕏告知](https://x.com/shindo59512/status/2064310418055778345)
+* **260401 祝贺修学旅行海外获奖 BoysLoveHub Award2025** ⇨ [𝕏](https://x.com/shindo59512/status/2039192297397768584)
+* **260328【直播】進藤丈広監督×オーディオ無線研究会vol.2 进藤导演Youtube直播** 13:30~ ⇨ [𝕏告知(3/20)](https://x.com/shindo59512/status/2034955247286927713)｜[🆈直播回放](https://www.youtube.com/watch?v=jS9Y9LHDXYQ)｜[𝕏活动结束](https://x.com/shindo59512/status/2037815327527235763)
+* **251221 祝贺最终回🧢監督メモ🧢**{: .text-red} ⇨ [𝕏](https://x.com/shindo59512/status/2002578601410244889)｜[ins祝贺最终回](https://www.instagram.com/p/DSgN411k_5M/)
+* **251219 第10话最终回🧢監督メモ🧢** 进藤也参加了最终上映会 ⇨ [𝕏](https://x.com/shindo59512/status/2001880259533459869)｜[ins活动感想+明日第10话](https://www.instagram.com/p/DSbLQ39kiWg/) 高二教室合照有导演版；进藤说黑板布置得很棒，感受到了美术制作人员的爱。
+* **251207 第8话🧢監督メモ🧢**{: .text-red} ⇨ [𝕏](https://x.com/shindo59512/status/1997540166379147706)｜[ins感谢观看第8话](https://www.instagram.com/p/DR8V3kDkrzU/)
+* **251205 明日第8话**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DR4Cf9RkTz_/)
+* **251201 感谢观看第7话**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DRs9UnmD9mZ/)
+* **251130 第7话🧢監督メモ🧢**{: .text-red} ⇨ [𝕏](https://x.com/shindo59512/status/1994943947727409450)
+* **251129 本日第7话**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DRn8VzXj9Uk/)
+    > 「后半段日置和渡会的感情变得更加浓厚、两人之间的气氛也变了，我觉得非常有趣！」
+* **251123 感谢观看第6话**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DRY8vTlkWQa/) 海边&大巴照
+* **251118 感谢观看第5话**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DRLcJWjks7B/) 修学旅行照片墙
+    >「是剧照师在拍摄间隙一直拍照留下的照片墙，大家的表情都很生动。」
+* **251116 第5话🧢監督メモ🧢** ⇨ [𝕏](https://x.com/shindo59512/status/1990048128951804307)
+* **251109 感谢观看第4话**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DQ0Kw7ikj6D/) 超帅的浴衣五天王和浴衣狐猪
+* **251104 🧢監督メモ🧢** 啥也没说 ⇨ [𝕏](https://x.com/shindo59512/status/1985683221804433536)
+* **251101【直播】進藤丈広監督×オーディオ無線研究会 进藤导演参加日藝祭电台直播** 13:00~ ⇨ [𝕏告知](https://x.com/FM_ARC/status/1980923250931908775)｜[🆈直播回放](https://www.youtube.com/watch?v=2hVmF4hs4E8&t=12s)｜[𝕏活动结束后](https://x.com/shindo59512/status/1984581124384047401)
+* **251019 第1话🧢監督メモ🧢** ⇨ [𝕏](https://x.com/shindo59512/status/1979851838552956933)｜[ins感谢观看第1话](https://www.instagram.com/p/DP-NGSVD4Wl/)
+    > 「以前一直想拍校园剧，这次拍了个爽！」(行)
+* **251018 本日放送!+花絮照**{: .text-green} ⇨ [𝕏](https://x.com/shindo59512/status/1979464802243351056)
+* **251008 海报解禁/洸大生日照/修仲制作人** ⇨ [ins](https://www.instagram.com/p/DPi6Qf5kSaI/)
+* **250928 第1话完成**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DPIDsz3kozI/) 在教室写名字的狐猪
+    > 「とにかく５人が可愛く、カッコよく、それだけで観ていられる感覚、、、笑」根据快拍昨天就做完了
+* **250918 第1话剧照图透+拍摄组现场照片** ⇨ [ins](https://www.instagram.com/p/DOvC1oAEXvX/)
+* **250917 宣传预告解禁**「絶賛撮影中！」⇨ [𝕏](https://x.com/shindo59512/status/1968111054485065768)
+* **250914 大巴车拍摄花絮** ⇨ [ins](https://www.instagram.com/p/DOkZro7Efbc/) 可以确定此时已经拍了大巴戏份
+* **250908 本日祈福+拍摄准备**「本日、お祓いとリハーサル。」明天开机 ⇨ [𝕏](https://x.com/shindo59512/status/1964973025520165338)
+* **250901 本日剧本围读** ⇨ [𝕏](https://x.com/shindo59512/status/1962421379313345016)
+* **250808 修仲解禁** ⇨ [𝕏](https://x.com/shindo59512/status/1953577819575095517)/[ins](https://www.instagram.com/p/DNEe1bbzTS0/)/[ins追加定妆照(8/9)](https://www.instagram.com/p/DNIA7MrSant/) 他说这个秋冬是「進藤ＢＬ祭」💦💦💦
+* **250717 修仲的工作已经开始了** ⇨ [𝕏](https://x.com/shindo59512/status/1945767060774011027)
+    > 「９月に撮影するＢＬドラマの打ち合わせ……進行しています」8月拍的是美搭2；6月的那部应该是朋克三角。
+
+## 藤澤浩和
+
+*※ 2、3、4话导演*{: .text-small}
+*※ 以下就是全部*{: .text-small}
+
+* **251025 本日第2话!** ⇨ [𝕏](https://x.com/fujisawa44/status/1981940950089007589)
+* **250808 情报解禁/导演认领** ⇨ [𝕏](https://x.com/fujisawa44/status/1953658899590263276)
+
+## ハセガワタクヤ（長谷川 卓也）
+
+*※ 5, 6话, 番外前篇导演*{: .text-small}
+⇨ [𝕏]()
+
+* **251121 第5话拍摄幕后** ⇨ [𝕏关于小简](https://x.com/hasetaku0227/status/1991659226658402811)｜[𝕏关于海李](https://x.com/hasetaku0227/status/1991828169176007132)｜[𝕏关于羽毛球部](https://x.com/hasetaku0227/status/1991878505995620600)
+* **251116 第5话TVer刷新纪录到第5位** 导演很开心！⇨ [𝕏](https://x.com/hasetaku0227/status/1990058205318365486)
+* **251115 本日第5话** ⇨ [𝕏](https://x.com/hasetaku0227/status/1989632641826693333)「修学旅行が終わっても、日置渡会のラブストーリーは止まりません！」
+* **250917 预告解禁/导演认领** ⇨ [𝕏](https://x.com/hasetaku0227/status/1968128487258198301)
 
 
 

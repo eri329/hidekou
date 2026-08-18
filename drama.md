@@ -50,11 +50,13 @@ permalink: /drama/
 
 ## 修学旅行制作组
 * **导演**
-    > 1, 7, 8, 10话: [進藤丈広](https://x.com/shindo59512)([Ins](https://www.instagram.com/takehiro_shindo/))
+    > 1, 7, 8, 10话: 進藤丈広 [X](https://x.com/shindo59512)/[Ins](https://www.instagram.com/takehiro_shindo/)
         >  《コスメティック・プレイラバー》《PUNKS△TRIANGLE》《しもべの王子様》
-    > 2, 3, 4话: [藤澤浩和](https://x.com/fujisawa44) (《低体温男子になつかれました。》)
-    > 5, 6话, 番外前篇: [ハセガワタクヤ(長谷川 卓也)](https://x.com/hasetaku0227)([Ins](https://www.instagram.com/hasegawa_takuya0227/))
-    > 9话, 疑似番外后篇: [安見悟朗](https://x.com/lennono560)([Ins](https://www.instagram.com/goroyasumi/))
+    > 2, 3, 4话: 藤澤浩和 [X](https://x.com/fujisawa44) (《低体温男子になつかれました。》)
+    > 5, 6话, 番外前篇: ハセガワタクヤ(長谷川 卓也) [X](https://x.com/hasetaku0227)/[Ins](https://www.instagram.com/hasegawa_takuya0227/)
+    > 9话, 疑似番外后篇: 安見悟朗 [X](https://x.com/lennono560)/[Ins](https://www.instagram.com/goroyasumi/)
+* **其他**
+    > 录音师: 柴田陽一郎 [X](https://x.com/topnotetokyo)
 * **拍摄地**
     > [修学旅行拍摄地](https://mzlocationblog.com/schooltrip/)
 * **演员表**

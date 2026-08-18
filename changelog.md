@@ -23,7 +23,7 @@ layout: page
 
 #### 建设中...
 
-*目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins story/转发，小简微博，直播, modelpress报道, FC, manager日记, 修仲其他演员、导演ins、相关人员、dxteen账号*{: .text-small}
+*目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins story/转发，小简微博，modelpress报道, FC, manager日记, 导演、幕后剧组人员账号*{: .text-small}
 
 <!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
@@ -69,14 +69,20 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 准备开一个修学旅行TMI专栏：收录导演密话，录音师密话，拍摄小趣事，狐猪直播/采访时提到的各种趣事，然后把具体笔记内容从时间线移除；DXTEEN小视频专门拿出来 -->
 
+<!-- 直播中字 -->
+
 <!-- VIVI在国内平台发的东西，小简小红书 -->
+
+<!-- TODO：NEXT:秀洸FC -->
+
+<!-- 公式书：https://x.com/search?q=from%3Akadokawa_ls%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
 
 <!-- NEXT: 导演/录音师；杂志官号；亲妈推；编辑部推； -->
 
 <!-- 录音师：https://x.com/search?q=from%3Atopnotetokyo%20%E3%83%89%E3%83%A9%E3%83%9E%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
 
-<!-- TODO：NEXT:秀洸FC -->
 
+[ 2026-08-17] 重新整理导演SNS；完成进藤、藤泽，长谷川导演至X-2025/11/21
 
 [ 2026-08-16] 添加【直播记录】；补充完海李X和Ins；补完樱木雅哉、原自分、其他所有共演SNS！🎉
 

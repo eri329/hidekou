@@ -440,7 +440,7 @@ permalink: /
     > [𝓲洸-鬼脸+狐猪合照有](https://www.instagram.com/p/DWd8EG-lOM0)
     > 两个人在桌前道别洸大打喷嚏的视频疑似只发了[快拍]
     > [𝕏后台退场小视频](https://x.com/dramal_abc/status/2038211119618392247)/[ins](https://www.instagram.com/p/DWd1Thjkwwk/) <span>洸->简「それ何それ」(那是个啥啊)然后对工作人员小小声点头鞠躬实在太萌了...</span>{: .text-pink}
-* **260328【修学旅行】進藤丈広監督×オーディオ無線研究会vol.2 进藤导演Youtube直播**{: .text-other} 13:30~ 提到了修仲 ⇨ [𝕏告知](https://x.com/shindo59512/status/2034955247286927713)｜[🆈直播回放](https://www.youtube.com/watch?v=jS9Y9LHDXYQ)
+* **260328【修学旅行】進藤丈広監督×オーディオ無線研究会vol.2 进藤导演Youtube直播**{: .text-other} 13:30~ 提到了修仲 ⇨ [𝕏告知(3/20)](https://x.com/shindo59512/status/2034955247286927713)｜[🆈直播回放](https://www.youtube.com/watch?v=jS9Y9LHDXYQ)
 * **260324【杂志｜双人】中国首封《Lemon》凝眸＜This Moment's Youth＞杂志发售**{: .text-red}
     > **260320 Lemon中国首封情报解禁** ⇨ 定档: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab886000000001b003a8c?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY_wMA8ddo0Hy73gP42Nmvas=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278594249265385)/[𝕏](https://x.com/lemon_mag_cn/status/2034922896926310502)/[ins](https://www.instagram.com/p/DWGdtXBiG3W/)｜预热: [📕lemon](https://www.xiaohongshu.com/discovery/item/69bab6b70000000023012550?source=webshare&xhsshare=pc_web&xsec_token=ABvLrOyiNJr3Nf5HiI6SxHY7Bob8RJM2UbEmMgJKbNa0w=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278532347364342)/[ins](https://www.instagram.com/p/DWGBuoXiC0B/)
     > **260321 中日双语宣传视频** ⇨ 中文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1ac7000000001a0298dc?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqBb2iJpIj3EByI5l8xIN_hU=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278894718455769)/[𝕏](https://x.com/lemon_mag_cn/status/2035223376311009408)/[ins](https://www.instagram.com/p/DWInuNXoMwr/) | 日文: [📕lemon高清](https://www.xiaohongshu.com/discovery/item/69bd1f33000000001a032598?source=webshare&xhsshare=pc_web&xsec_token=AB5KJuxQdRznR6QkwgE8nQqO1jkY0BvS-m50u8ZqgWjMc=&xsec_source=pc_share)/[微博](https://weibo.com/7176134584/5278906296044419)/[𝕏](https://x.com/lemon_mag_cn/status/2035234956515954831)/[ins](https://www.instagram.com/p/DWIt7TwBh6m/) <span>小简这个中文太烫嘴了哈哈哈</span>{: .text-pink}
@@ -610,7 +610,7 @@ permalink: /
 * **251221【修学旅行｜直播｜简秀吉】小简的ins直播+洸大连线**{: .text-red} 21:00~ 洸大来连线啦~~
     > #### 小简名言「因为那个射击，连白水都变得好喝了」人数直接飙到2.1w，修仲狐猪你是真的火了。小简问洸大没有他的片场会不会寂寞，洸大傲娇中：不会!然后雅哉和海李也来了，人数最高到了2.4w
 * **251221【修学旅行】最终回第10话冲到TVer实时榜第2!**{: .text-red} ⇨ [𝕏](https://x.com/dramal_abc/status/2002652742138106314)
-* **251221【修学旅行】下村未空(水無瀬)/新井元輝(猪野)SNS修学旅行相关** 羽毛球社合照 ⇨ [【男子组合集】]({{ site.baseurl }}/tmi#male)
+* **251221【修学旅行】下村未空(水無瀬)/新井元輝(猪野)SNS修学旅行相关** 羽毛球社合照 ⇨ [【男子组合集】]({{ site.baseurl }}/tmi#boys)
 * **251220【修学旅行】山田健人(辻谷)SNS修学旅行相关** 有超多和日置的合照！⇨ [【山健合集】]({{ site.baseurl }}/tmi#yamaken)
 * **251220【修学旅行｜SNS｜简秀吉】小简发快拍女仆日置+渡会**{: .text-red}
     > #### 配文「いよいよ最終回かぁ、終わってほしくないな。日置は僕のも〜ん　今日もがんばろうね🫶」⬅️「日置是我～的～」行行行，日置是渡会的，也是简秀吉你的好吧！
@@ -633,7 +633,7 @@ permalink: /
     > **251221 进藤导演的🧢監督メモ🧢祝贺最终回** 直接披露了第三次亲亲是即兴!随后日置的表情好像也有点本人上号了呢。作为导演很高兴看到那个“意外之吻”!还放了一张新的教室合照 ⇨ [𝕏](https://x.com/shindo59512/status/2002578601410244889)
     > #### 小简回复：「狙いを定めて〜レッツ射撃🫶🏻」（让我们瞄准目标～开始射击!🫶🏻）
     > **251221 进藤导演的ins总结** ⇨ [ins祝贺最终回](https://www.instagram.com/p/DSgN411k_5M/)
-    > #### 发了和每个人的合照(说洸大和小简都照顾他身高蹲了一点233)、人最多的杀青合照以及没发过的渡日冬服公园offshot…真的感觉爱都溢出来了。进藤这条ins也写得特别真诚:“スタッフ・キャストがとにかく仲良く、プロデューサーも「こんなに終わりが淋しい作品、ホントに無い」と言ってくれた”(从来没有一部作品能让人在杀青时感到如此不舍)；最后的吻进藤说是“2人が完全に結ばれたキス”(说得好!)，那个吻也是小简考量了各种细节（比如要不要咬唇/深吻等等），最终才呈现出这么精彩的吻戏。⬅️真的能感觉到是所有人倾注了心血的作品!
+    > #### 发了和每个人的合照(说洸大和小简都照顾他身高蹲了一点233)、人最多的杀青合照以及没发过的渡日冬服公园offshot…真的感觉爱都溢出来了。进藤这条ins也写得特别真诚:“スタッフ・キャストがとにかく仲良く、プロデューサーも「こんなに終わりが淋しい作品、ホントに無い」と言ってくれた”(制作人说从来没有一部作品能让人在杀青时感到如此不舍)；最后的吻进藤说是“2人が完全に結ばれたキス”(说得好!)，那个吻也是小简考量了各种细节（比如要不要咬唇/深吻等等），最终才呈现出这么精彩的吻戏。⬅️真的能感觉到是所有人倾注了心血的作品!
     > **251229 TVguide repo** ⇨ [「恋人になってってことだよ」日置が渡会に思いを告げた「修学旅行」最終回](https://www.tvguide.or.jp/feature/feature-4248910/)/[𝕏剧照4张](https://x.com/TVGweb/status/2005603669920841788)
 * **251219【修学旅行】番外篇放送决定** 12/28前篇, 1/4后篇
 * **251219【修学旅行｜双人】最终回先行上映会**{: .text-red}
@@ -810,7 +810,7 @@ permalink: /
 * **251102【修学旅行｜双人】狐猪的一问一答小视频** 角色/电视剧介绍+个人小问答 ⇨ [𝕏](https://x.com/TVer_official/status/1984908347754307952)/[ins](https://www.instagram.com/p/DQjFtvrERAu/)
     > #### 小简说话的时候努力探出头来的洸大太可爱了！说起自己的修学旅行会去逗别的小情侣的地方的洸大也特别男高🤣最后两个人一起笑场好甜的
 * **251102【修学旅行｜直播｜藤本洸大】洸大的第3话同时视听大会(Reaction直播)**{: .text-red} 从3话开始洸大做修学Re了! ⇨ [𝓲洸](https://www.instagram.com/p/DQjlME_gUBu/)
-* **251101【修学旅行】进藤导演参加日藝祭电台直播**{: .text-other} 13:00~ 提到了修仲 ⇨ [𝕏](https://x.com/FM_ARC/status/1980923250931908775)｜[🆈直播回放](https://www.youtube.com/watch?v=2hVmF4hs4E8&t=12s)
+* **251101【修学旅行】进藤导演参加日藝祭电台直播**{: .text-other} 13:00~ 提到了修仲 ⇨ [𝕏告知(10/22)](https://x.com/FM_ARC/status/1980923250931908775)｜[🆈直播回放](https://www.youtube.com/watch?v=2hVmF4hs4E8&t=12s)
 * **251101【修学旅行｜正片】25:00～ 第3话「同じベッドで過ごす夜」播出**{: .text-red}
     > [𝕏简-本日第3话](https://x.com/kan_hideyoshi/status/1984576746205954220)/[𝓲简❤️](https://www.instagram.com/p/DQgu8_bAcyj/) <span>渡会卖萌美颜炫耀老婆中</span>{: .text-pink}｜[𝕏简-第3话感谢帖-旋转木马渡日](https://x.com/kan_hideyoshi/status/1984935983121666258)/[𝓲简❤️](https://www.instagram.com/p/DQjSOV_AdH4/) <span>「写真は俺目線の日置🫨」传说中的俺目線，天秀了！ins多一张超绝经意显摆拍立得的自拍!</span>{: .text-pink}
     > [𝓲洸-第3话怎么样?](https://www.instagram.com/p/DQjbAU9gZdS/) <span>超多花絮照豪华大放送</span>{: .text-pink}
