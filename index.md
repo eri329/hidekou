@@ -49,15 +49,14 @@ permalink: /
 ### 2026.8
 {: #aug2026}
 
+<div class="line"></div>
+
 * **260820【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
     > **260729 双人封底登场解禁+特典情报** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2限定店铺双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
     > **260731 双人特典图解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2083100775400747169)
     > **260814 封底解禁** ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)｜[ins](https://www.instagram.com/p/DcA2spEEjYg/) <span>太好看了吧!!贴得好近好暧昧</span>{: .text-pink}
 * **260819【修学旅行｜原作】原作小说新特典开始发布** 13:00~
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
-
-<div class="line"></div>
-
 * **260812【FC｜直播｜简秀吉】21:00~ 小简FC直播** *提到第二季大概从2、3月开始就有信儿了, 不过最近才正式确定的*{: .text-small}
 * **=================== 260810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
 * **260810【修学旅行S2】㊗重大発表㊗第二季放送决定!26年10月17日开播!🎥**{: .text-red #anchor-260810-housou}
@@ -532,7 +531,9 @@ permalink: /
     > **260313 狐猪宣传公式书双人小视频** ⇨ [𝕏](https://x.com/kadokawa_ls/status/2032383177436873121) <span>洸大:这里面有很多显然是简洸的部分；两人推荐了P61和最后一页的比心~</span>{: .text-pink}
 * **260224【修学旅行】真人纪念版小说封面开售** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2026254009410195721)｜[𝕏](https://x.com/dramal_abc/status/2027224674740981957)｜[特别网页](https://novema.jp/article/beluck/shunaka#dekaobi)
     > **260220 封面解禁** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2024800051768512670)
-* **260220【修学旅行】ModelPress修仲最喜爱场景排行榜公布** ⇨ [𝕏](https://x.com/modelpress/status/2024756184604168642)
+* **260220【修学旅行】ModelPress修仲最喜欢的场景读者调查排行榜公布** ⇨ [𝕏](https://x.com/modelpress/status/2024756184604168642)
+    > **260122 读者调查** 1/22～2/9 ⇨ [𝕏](https://x.com/modelpress/status/2014246949088870836)
+    > **260327 长谷川导演感想** ⇨ [𝕏](https://x.com/hasetaku0227/status/2037193015547289839)
 * **260218【修学旅行】登上雅虎新闻** ⇨ [関西ローカルから放送終了後も続く余波。『修学旅行で仲良くないグループに入りました』が人気を呼んだ理由](https://news.yahoo.co.jp/expert/articles/0839a7d093cd7b7cd61c02643d5920b5b26531f3)
 * **260214【采访｜藤本洸大】web采访 推し楽:** ⇨ [采访](https://fan.books.rakuten.co.jp/articles/5677)｜[𝕏宣传](https://x.com/oshiraku/status/2022506115410596253)
     > #### 讲了很多修仲，值得一读!!
@@ -566,7 +567,6 @@ permalink: /
     >  ⇨ <span>讲了一些进入演艺圈的契机和展望</span>{: .text-pink}
     > 特別cut集 [あどけなさと艶やかさが共存する唯一無二の色気](https://storyweb.jp/lifestyle/680307/) ⇨ <span>这个标题起得很好!!“天真烂漫与妩媚艳丽共存的独一无二的色气” Yes站长已被这套造型迷晕</span>{: .text-pink}
     > **260124 摄影师发图** ⇨ [𝕏](https://x.com/_shuntosato/status/2014860913720099281) 有一张新图
-* **260122【修学旅行】ModelPress修仲最喜欢的场景读者调查** 1/22～2/9 ⇨ [𝕏](https://x.com/modelpress/status/2014246949088870836)
 * **260119【修学旅行】thetv报道** ⇨ [藤本洸大“日置”×簡秀吉“渡会”によるキュンが大渋滞「修学旅行で仲良くないグループに入りました」アフターストーリーが尊い](https://thetv.jp/news/detail/1320817/)
 * **260112【SNS｜简秀吉】小简快拍祝贺大家成人式快乐** <span>「洸大もおめでとう あ、弟もおめでとう笑」⬅️笑死弟弟排在洸大后面</span>{: .text-pink}
 * **260110【修学旅行】官方X最后一条常规投稿**{: .text-red} ⇨ [𝕏修仲拍摄花絮](https://x.com/dramal_abc/status/2009928588632764733)/[ins](https://www.instagram.com/p/DTU3UMkE7b8/)/[TT](https://www.tiktok.com/@schooltrip_abc/video/7593671470006521108)

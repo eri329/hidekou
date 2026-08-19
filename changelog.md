@@ -77,10 +77,11 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 公式书：https://x.com/search?q=from%3Akadokawa_ls%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
 
-<!-- NEXT: 导演/录音师；杂志官号；亲妈推；编辑部推； -->
+<!-- NEXT: 杂志官号；亲妈推；编辑部推； -->
 
-<!-- 录音师：https://x.com/search?q=from%3Atopnotetokyo%20%E3%83%89%E3%83%A9%E3%83%9E%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
+<!-- 鈴木ヤスヨシ [X](https://x.com/Yasu_coda) -->
 
+[ 2026-08-18] 补完长谷川导演SNS、安见导演SNS、柴田录音师SNS
 
 [ 2026-08-17] 重新整理导演SNS；完成进藤、藤泽，长谷川导演至X-2025/11/21
 

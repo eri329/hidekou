@@ -57,6 +57,7 @@ permalink: /drama/
     > 9话, 疑似番外后篇: 安見悟朗 [X](https://x.com/lennono560)/[Ins](https://www.instagram.com/goroyasumi/)
 * **其他**
     > 录音师: 柴田陽一郎 [X](https://x.com/topnotetokyo)
+    > 音乐/OST: 鈴木ヤスヨシ [X](https://x.com/Yasu_coda)
 * **拍摄地**
     > [修学旅行拍摄地](https://mzlocationblog.com/schooltrip/)
 * **演员表**
@@ -145,16 +146,17 @@ permalink: /drama/
 > 10话: 最高2位(12/21)
 * **Ins粉丝数**
 > **简秀吉:** <span>10.6万(25/8/8)</span>{: .text-blue}→11万(10/18)→11.4万(10/23)→12.5万(11/1)→13.1万(11/5)→13.3万(11/7)→14万(11/12)→17.8万(11/26)→18.6万(11/29)→<span>20万(12/6)</span>{: .text-red}→25万(12/25)→27万(26/1/4)→27.3万(1/5)→28.4万(1/11)→<span>30万(2/6)</span>{: .text-red}→33万(8/1)
-> <span>[第二季宣布]</span>{: .text-red}→<span>33.3万(8/11)</span>{: .text-blue}
+> <span>[第二季宣布]</span>{: .text-red}→<span>33.3万(8/11)</span>{: .text-blue}→33.8万(8/18)
 
 > **藤本洸大:** <span>1.37万(25/8/8)</span>{: .text-blue}→1.71万(10/18)→2万(10/23)→3万(11/2)→3.5万(11/5)→3.76万(11/7)→3.8万(11/9)→4.1万(11/10)→4.3万(11/11)→4.5万(11/12)→4.6万(11/13)→4.8万(11/15)→5万(11/16)→5.7万(11/17)→6.3万(11/19)→6.8万(11/21)→7.1万(11/22)→7.7万(11/24)→8万(11/24)→8.2万(11/25)→8.3万(11/26)→9万(11/29)→<span>10万(12/3)</span>{: .text-red}→15.6万(12/25)→17.8万(26/1/4)→18.1万(1/5)→19.2万(1/11)→<span>20万(1/21)</span>{: .text-red}→23.2万(8/1)
-> <span>[第二季宣布]</span>{: .text-red}→<span>23.4万(8/11)</span>{: .text-blue}
+> <span>[第二季宣布]</span>{: .text-red}→<span>23.4万(8/11)</span>{: .text-blue}→23.7万(8/18)
 
 > **官号(X):** <span>2.53万(25/8/8)</span>{: .text-blue}→4万(11/10)→7万(26/1/5)→<span>[第二季宣布]</span>{: .text-red}→<span>7.86万(8/11)</span>{: .text-blue}
 > **官号(ins):** <span>2.87万(25/8/8)</span>{: .text-blue}→5万(11/9)→6.5万(11/21)→8万(12/2)→8.9万(12/10)→<span>11.1万(12/28)</span>{: .text-red}→11.8万(26/1/4)→11.9万(1/5)→12万(1/6)→13万(2/14)→<span>[第二季宣布]</span>{: .text-red}→<span>13.7万(8/11)</span>{: .text-blue}
 > **官号(抖音):** <span>0(25/9/22)</span>{: .text-blue}→14.3万(26/1/5)→15.1万(1/18)→16万(2/20)→16.2万(3/20)→<span>[第二季宣布]</span>{: .text-red}→<span>15.7万(8/11)</span>{: .text-blue}
 
 ## 修学旅行榜单排行&受赏
+* 260810 Oricon电视剧Box周榜8位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-08-10/) 竟然又冲上来了(据说卖了68)
 * 260714 TVguide Web 2025.7～2026.7期间BL投票 修仲6位 => [!X](https://x.com/tvg_research/status/2076939875178500198)
 * 260706 Oricon电视剧Box周榜10位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-07-06/) 竟然还在榜
 * 260630 ModelPress日腐「雨中场景」排行榜修仲雨中牵手第3位 ⇨ [𝕏](https://x.com/modelpress/status/2071866340025995365)
@@ -162,16 +164,18 @@ permalink: /drama/
 * 260629 Oricon电视剧Box周榜8位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-06-29/) 不知为何突然冲了上来
 * 260608 Oricon电视剧Box周榜10位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-06-08/)
     > *5/14～6/8之间站长没有追踪所以数据缺失*{: .text-small}
-* 260529 ModelPress日腐「最想当同学的角色」排行榜日置2位，渡会8位 ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
+* **260529 ModelPress日腐「最想当同学的角色」排行榜日置2位，渡会8位** ⇨ [𝕏](https://x.com/modelpress/status/2060269936786935925)
 * 260514 Oricon蓝光Box周榜2位(5/18付) ⇨ [𝕏](https://x.com/dramal_abc/status/2054853508369969153)
 * 260430 ModelPress日腐「相遇名场面」排行榜修仲5位(第7话) ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
 * 260406～250412 FOD Premium周榜9位 ⇨ [𝕏](https://x.com/fujitvplus/status/2043985112199541224)
-* 260401 HUB Award 2025: Best Japanese BL & Japan Highlight of the Year ⇨ [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)｜[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/)
+* **260401 HUB Award 2025: Best Japanese BL & Japan Highlight of the Year** ⇨ [𝕏最佳日腐](https://x.com/hubboyslove/status/2039136424646058214)/[ins](https://www.instagram.com/p/DWkbA3gCVNw)｜[𝕏年度高光](https://x.com/hubboyslove/status/2039123298924069334)/[ins](https://www.instagram.com/p/DWkVFQACSbX/)
 * 260330～250405 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2041108724975325445) 小修学又冲上来了!
 * 260316～260322 FOD Premium周榜10位 ⇨ [𝕏](https://x.com/fujitvplus/status/2036374967533842463)
 * 260302～260308 FOD Premium周榜10位 ⇨ [𝕏](https://x.com/fujitvplus/status/2030964937494061515)
 * 260223～260301 公式书 纪伊国屋书店周榜best seller ⇨ [𝕏](https://x.com/Kinokuniya/status/2028363528592400861)
 * 260223～260301 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2028759582580027761)
+* **260220 修仲最喜欢的场景读者调查排行榜** ⇨ [mdpr](https://mdpr.jp/drama/detail/4729082)
+    > 调查期间:2026年1月22日～2月9日;票池:3,828件;学生回答: 1,607件
 * 260216～260222 FOD Premium周榜7位 ⇨ [𝕏](https://x.com/fujitvplus/status/2026220559374356672)
 * 260202～260208 FOD Premium周榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/2020794997780668552)
 * 260129～260205 番外前篇 GagaOOLala BL周榜2位 (豆瓣)
@@ -183,11 +187,11 @@ permalink: /drama/
 * 251231 Emomiu interview 2025 简洸采访 阅读量年榜3位 ⇨ [𝕏](https://x.com/Emo_miu/status/2006336297238208561)｜[采访](https://emomiu.jp/news/244577/)
 * 251223～251230 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2007648233401499810)
 * 251221 最终回 TVer综合日榜5位 ⇨ [𝕏](https://x.com/gagaoolala/status/2002982438235230291)
-* 251221 最终回 TVer实时电视剧榜2位 ⇨ [𝕏](https://x.com/gagaoolala/status/2002652742138106314)
+* **251221 最终回 TVer实时电视剧榜2位** ⇨ [𝕏](https://x.com/gagaoolala/status/2002652742138106314)
 * 251219～251223 第10回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2004387064041951245)
-* 251214 第9话 TVer实时电视剧3位 ⇨ [𝕏](https://x.com/dramal_abc/status/2000196672324878671)
+* **251214 第9话 TVer实时电视剧3位** ⇨ [𝕏](https://x.com/dramal_abc/status/2000196672324878671)
 * 251212～251218 第9回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/2004386687732896209)
-* 251208 第8回 TVer实时电视剧榜3位 ⇨ [𝕏](https://x.com/gagaoolala/status/1997693183921418368)
+* **251208 第8回 TVer实时电视剧榜3位** ⇨ [𝕏](https://x.com/gagaoolala/status/1997693183921418368)
 * 251204～251211 第8回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1999313262538621397)
 * 251201 第7回 TVer实时电视剧榜4位 ⇨ [𝕏](https://x.com/gagaoolala/status/1995148106917392397)
 * 251127～251204 第7回 GagaOOLala BL周榜1位 ⇨ [𝕏](https://x.com/gagaoolala/status/1996776559370248368)
