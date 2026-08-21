@@ -45,6 +45,11 @@ permalink: /
 
 * **260919【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划  ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
     > **260810 情报解禁** 8/10~8/23 先行抽选；9/12~ 一般开票 ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)｜[𝕏推し楽](https://x.com/oshiraku/status/2086784630821446027)
+    > **260820 现场特典影像是修仲第二季拍摄花絮!** ⇨ [𝕏](https://x.com/LVJ_culture/status/2090363218048774425)
+* **【修学旅行S2】拍摄日志**{: .text-red}
+    > **260803 进藤导演快拍:正在堪景，是年内最后一部BL**
+    > **260810 进藤导演快拍:再始動！**
+    > **260819 进藤导演快拍:今日堪景@坂道**
 
 ### 2026.8
 {: #aug2026}
@@ -55,8 +60,12 @@ permalink: /
     > **260729 双人封底登场解禁+特典情报** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2限定店铺双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
     > **260731 双人特典图解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2083100775400747169)
     > **260814 封底解禁** ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)｜[ins](https://www.instagram.com/p/DcA2spEEjYg/) <span>太好看了吧!!贴得好近好暧昧</span>{: .text-pink}
-* **260819【修学旅行｜原作】原作小说新特典开始发布** 13:00~
+    > **260818 线下照片展&线下特典公布** 8/20(木)～9/2(水) @HMV&BOOKS SHIBUYA 线下特典生写1枚+抽选1张赠送狐猪亲签色纸 ⇨ [𝕏](https://x.com/TVguidePERSON/status/2089624301658091664)
+    > **260819 杂志标题页图透** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2090012364389380245)
+* **260819【修学旅行S2】官方Tiktok小视频:修仲回来了!** F5再次cha两片想！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7675665175441050900)/[𝕏](https://x.com/dramal_abc/status/2090001597464297512)
+* **260819【修学旅行S2｜原作】原作小说新特典开始发布** 13:00~
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
+    > **260819 狐猪证件照开始发布** 13:00~ 书腰也更新为第二季情报了! ⇨ [𝕏详情与店铺清单](https://x.com/BeLuckbunko/status/2089931807320088929)｜[活动详情](https://novema.jp/article/beluck/media-fair/1720) 另外还会抽选2名赠送洸大亲签修仲礼品券｜[活动期间](https://x.com/novema_edit/status/2089927041802187119) 大概会进行到10月中旬｜[推し楽](https://fan.books.rakuten.co.jp/articles/10089)｜书店展示:[𝕏1](https://x.com/sanyodohanda/status/2089921880572727634),[𝕏2](https://x.com/Kino_Izumo/status/2089894562261291337),[𝕏3](https://x.com/Orion_Lumine/status/2089910004119961899),[𝕏4](https://x.com/kbc_dekki/status/2089921995404448081)｜亲妈开心:换成第二季的书腰了~([𝕏](https://x.com/RcNfe37/status/2090077411794878797))
 * **260812【FC｜直播｜简秀吉】21:00~ 小简FC直播** *提到第二季大概从2、3月开始就有信儿了, 不过最近才正式确定的*{: .text-small}
 * **=================== 260810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
 * **260810【修学旅行S2】㊗重大発表㊗第二季放送决定!26年10月17日开播!🎥**{: .text-red #anchor-260810-housou}
@@ -77,6 +86,7 @@ permalink: /
     > **260811 进藤导演/安见导演/长谷川导演发推** [𝕏进藤](https://x.com/shindo59512/status/2087020243734737195)｜[ins进藤](https://www.instagram.com/p/Db4NGfRk6-C/) <span>疑似还有修仲新图!?</span>{: .text-pink}｜安见导演将继续执导S2 ⇨ [𝕏](https://x.com/lennono560/status/2086842055901454387)/[ins图更大](https://www.instagram.com/p/Db3c2_3oGT1/) <span>「写真は夏休み同窓会にこっそり参戦した写真です」⬅️こっそり参戦(偷偷猫猫参加同窗会)也太好笑了</span>{: .text-pink}｜长谷川导演也将继续执导S2 ⇨ [𝕏](https://x.com/hasetaku0227/status/2087065975892156879)/[ins](https://www.instagram.com/p/Db4-YVujxoG/) <span>「皆さんが本当に喜んでくださっている姿を見て、なぜだか思わず涙が込み上がりました。」导演也很爱修学😭</span>{: .text-pink}
     > **260811 其他贺电** ⇨ [📕海李](http://xhslink.com/o/2ITKn7wpIyU)｜[𝕏BeLuck](https://x.com/BeLuckbunko/status/2087084768223789270)｜[𝕏Gaga](https://x.com/gagaoolala/status/2087098964265099443)/[𝕏Gaga-Thai](https://x.com/Gagaoolala_Thai/status/2087124555001410027)
     > **260812 官网更新新闻** ⇨ [シーズン2放送決定](https://www.asahi.co.jp/schooltrip/news/260812.html)
+    > **260820 推し楽第二季新闻** [藤本洸大＆簡秀吉がW主演続投！「修学旅行で仲良くないグループに入りました2」放送決定](https://fan.books.rakuten.co.jp/articles/10084)
 * **260810【修学旅行｜双人】修仲夏日同窗会**{: .text-red} ⇨ [活动详情](https://www.mahocast.com/ce/c/124) 两部15:30/19:00，五人出演
     > **260523 情报解禁+抽选开票** 虽然很开心但是等着宣第二季的大家又被溜了…… ⇨ [𝕏](https://x.com/dramal_abc/status/2058020089727947241)/[ins](https://www.instagram.com/p/DYqlGASk3PD/)/[TT](https://www.tiktok.com/@schooltrip_abc/photo/7642954649145707783)
     > **260528 活动说明** 本确+检查行李，祝花不允许使用演员肖像 ⇨ [𝕏](https://x.com/mahocast_jp/status/2059922629214232949)
@@ -104,7 +114,7 @@ permalink: /
     > **260811 媒体报道** ⇨ [𝕏mdpr-追加洸大饭撒照片](https://x.com/modelpress/status/2086840801506783327)｜[𝕏TVguide repo-19p](https://x.com/TVGweb/status/2086841768507789782) <span>写得很详细；图多但都很小</span>{: .text-pink}｜[𝕏theTV-海李步汰](https://x.com/thetvjp/status/2087074225551204382)｜[𝕏preppy发yt视频](https://x.com/preppy_magazine/status/2086950722965512515) 和oricon的视频一样｜以下都没有新图 [𝕏awesome](https://x.com/BP25th_awesome/status/2087044280217206821)/[𝕏crank_in](https://x.com/crank_in_net/status/2086994774268256485)/[𝕏PASH!PLUS](https://x.com/magazine_pash/status/2087054513073221790)
     > **260811 简秀吉FC限定同窗会vlog** ⇨ [🔒【FC限定】Setlog ～夏休み同窓会編～🎥🌻](https://kan-hideyoshi.com/movies/131205)
     > **260814 洸大FC限定同窗会vlog** ⇨ [𝕏30s切片](https://x.com/topcoat_staff/status/2088099558060421589)/[🔒TC限定-3min完整版](https://sp.tcland.jp/contents/1101097)
-
+    > **260820 配信特典发布**{: .text-red} 8/20 18:00～9/1 23:59 可以视听下载；<span>两个幕后特典视频都是狐猪直拍！8/10以来第一次看到狐猪同框这么久……；；</span>{: .text-pink}
 
 <details markdown="1">
 <summary><strong>=================== 修学旅行第一季时间线(点击此行展开/收起)===================</strong></summary>

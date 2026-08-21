@@ -79,7 +79,11 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- NEXT: 杂志官号；亲妈推；编辑部推； -->
 
-<!-- 鈴木ヤスヨシ [X](https://x.com/Yasu_coda) -->
+<!-- 修仲 排名补充 https://x.com/houkon_jp/status/2015598699813212248 -->
+
+[ 2026-08-19 ~ ] 常规更新WIP
+
+[ 2026-08-19] 补完OST作者铃木SNS
 
 [ 2026-08-18] 补完长谷川导演SNS、安见导演SNS、柴田录音师SNS
 

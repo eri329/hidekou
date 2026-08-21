@@ -148,8 +148,10 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **BLAZE 8月号**
 * **260826 PERCE NEIGE**「おちたらおわり」剧宣｜8p ⇨ 
 * **260824 月刊TVガイド 10月号**「おちたらおわり」剧宣 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2087835966308549097)
+* **260821 CanCam 10月号** ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)
 * **260820 TVガイドdan vol.61**{: .text-red} ⇨ 
 * **260812 Emo!miu采访(web)** ⇨ [簡秀吉×清水海李インタビュー](https://emomiu.jp/news/270288/)
 * **260803 TV LIFE首都圏版 8/21号**「おちたらおわり」剧宣｜Time to Talk ⇨ [📕内页(偏差值)](http://xhslink.com/o/1X4BAT8Uggl)
@@ -221,6 +223,7 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **260821 JUNON 10月号** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)
 * **260820 TVガイドdan vol.61**{: .text-red}
 * **260722 JUNON 9月号** 喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)｜[📕内页中嵌(bala)](http://xhslink.com/o/3kar4kQF9uz)
 * **260723 ViVi 9月号** PICK UPイケメン｜0.5p ⇨ [𝕏封面](https://x.com/vivi_magazine/status/2077180231019114802)｜[📕内页(喵)](http://xhslink.com/o/70h4n1PzgRs)

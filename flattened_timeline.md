@@ -21,11 +21,20 @@ permalink: /flattened_timeline/
 
 <div class="timeline-content" markdown='1'>
 
+* **270110**
+    > **【个人活动｜简秀吉】简秀吉写真集1st Photobook线上签售会**{: .text-solo}
+
 ## 2026
 {: #year2026}
 
+* **261219**
+    > **【个人活动｜简秀吉】简秀吉写真集1st Photobook京都签售会**{: .text-solo}
+* **261213**
+    > **【个人活动｜简秀吉】简秀吉写真集1st Photobook东京签售会**{: .text-solo}
+* **261212**
+    > **【个人活动｜简秀吉】简秀吉写真集1st Photobook东京签售会**{: .text-solo}
 * **261211**
-    > **【个人活动｜简秀吉】简秀吉写真集发售**{: .text-solo}
+    > **【个人活动｜简秀吉】简秀吉写真集1st Photobook发售**{: .text-solo}
 * **261103**
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大阪生日会**{: .text-solo} 14:00/17:30📍大阪エル・シアター
 * **261031**
@@ -57,34 +66,68 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】修学旅行TV再放送 第8话**
 * **260905**
     > **【修学旅行｜正片】修学旅行TV再放送 第7话**
+* **260902**
+    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集纪念活动申请截止日⏰**{: .text-solo}
 
 ### 2026.8
 {: #aug2026}
 
+* **260830**
+    > **【个人活动｜藤本洸大】BLANK AND SEA服装联名 预约截止日⏰**{: .text-solo-k} ~23:59
 * **260827**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
 * **260826**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 7/13, 8/26 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
-* **260822**
-    > **【修学旅行｜正片】修学旅行TV再放送 第6话**
-* **260821**
-    > **【直播｜藤本洸大】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k}
-    > **【个人活动｜藤本洸大】电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」洸大第8话初登场**{: .text-solo-k}
+* **260823**
+    > **【个人活动｜藤本洸大】洸大1st写真集预约截止日⏰**{: .text-solo-k}
 
 <div class="line"></div>
 
+* **260822**
+    > **【修学旅行｜正片】修学旅行TV再放送 第6话**
+    > **【直播｜简秀吉】简秀吉ins直播**{: .text-solo} 19:00~
+* **260821**
+    > **【杂志｜简秀吉】《CanCam》10月号(8/21) 杂志发售**{: .text-solo}
+    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集 纪念活动先着开票**{: .text-solo} 19:00~ ⇨ [𝕏]()
+    > **【杂志｜藤本洸大】《JUNON》10月号(8/21) 杂志发售**{: .text-solo-k}
+    > **【个人活动｜藤本洸大】BLANK AND SEA服装联名 预约开售**{: .text-solo-k} 20:00~
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「カップル扱いOKなの？」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2090637453002748074) ⚠️BG注意
+    > **【直播｜藤本洸大】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-solo-k}
+    > **【个人活动｜藤本洸大】电视剧「ストレンジ -伊藤潤二の夜も眠れぬ奇妙な話-」洸大第8话初登场**{: .text-solo-k} 24:12~
 * **260820**
+    > **【修学旅行｜双人】修仲夏日同窗会 配信特典发布**{: .text-red} 8/20 18:00～9/1 23:59 可以视听下载；两个幕后特典视频都是狐猪直拍！8/10以来第一次看到狐猪同框这么久……；；
+    > **【修学旅行】全話イッキ見祭(9/19) 现场特典影像是修仲第二季拍摄花絮!** ⇨ [𝕏](https://x.com/LVJ_culture/status/2090363218048774425)
     > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
+    > **【个人活动｜藤本洸大】BLANK AND SEA服装设计联名 商品图**{: .text-solo-k} ⇨ [𝕏](https://x.com/blankandsea/status/2090393409496527349)
 * **260819**
-    > **【修学旅行｜原作】原作小说新特典开始发布** 13:00~
+    > **【修学旅行S2】官方Tiktok小视频:修仲回来了!** F5再次cha两片想！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7675665175441050900)/[𝕏](https://x.com/dramal_abc/status/2090001597464297512)
+    > **【修学旅行S2｜原作】原作小说新特典狐猪证件照开始发布** 13:00~ 书腰也更新为第二季情报了! ⇨ [𝕏详情与店铺清单](https://x.com/BeLuckbunko/status/2089931807320088929)｜[活动详情](https://novema.jp/article/beluck/media-fair/1720) 另外还会抽选2名赠送洸大亲签修仲礼品券｜[活动期间](https://x.com/novema_edit/status/2089927041802187119) 大概会进行到10月中旬｜[推し楽](https://fan.books.rakuten.co.jp/articles/10089)｜书店展示:[𝕏1](https://x.com/sanyodohanda/status/2089921880572727634),[𝕏2](https://x.com/Kino_Izumo/status/2089894562261291337),[𝕏3](https://x.com/Orion_Lumine/status/2089910004119961899),[𝕏4](https://x.com/kbc_dekki/status/2089921995404448081)｜亲妈开心:换成第二季的书腰了~([𝕏](https://x.com/RcNfe37/status/2090077411794878797))
+    > **【修学旅行S2】进藤导演快拍:今日堪景@坂道**
+    > **【杂志｜简秀吉】《BLAZE》8月号登场预告**{: .text-solo} ⇨ [𝕏视频](https://x.com/blazeprojectmag/status/2089744747917349306)｜[𝕏照片](https://x.com/blazeprojectmag/status/2090030804114227540)
+    > **【杂志｜简秀吉】《CanCam》10月号(8/21) 登场情报解禁**{: .text-solo} ⚠️BG企划 ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)
+    > **【FC｜直播｜简秀吉】21:05~ 电台直播**{: .text-solo}
+    > **【个人活动｜藤本洸大】洸大1st写真集 特典图公开**{: .text-solo-k} ⇨ [𝕏TC特典-小卡三随一](https://x.com/topcoat_staff/status/2089910224480338078/)｜[𝕏四家书店特典-贴纸](https://x.com/JUNON_jp/status/2089910358605721819)｜[𝕏活动特典-印签留言明信片](https://x.com/JUNON_jp/status/2089910623576719536)
+    > **【个人活动｜藤本洸大】ViVi国宝级帅哥榜周边Kuji 洸大宣传视频:第4周最后一天**{: .text-solo-k} ⇨ [𝕏](https://x.com/vivi_magazine/status/2090053352214389148)
+    > **【杂志｜藤本洸大】《JUNON》10月号(8/21) 封面/情报解禁**{: .text-solo-k} ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)
+    > **【个人活动｜藤本洸大】BLANK AND SEA服装设计联名 各种宣传**{: .text-solo-k} ⇨ [𝕏](https://x.com/blankandsea/status/2090031035702530270)｜[𝕏推し楽](https://x.com/oshiraku/status/2089969891462000828)｜[prtimes](https://prtimes.jp/main/html/rd/p/000000041.000061751.html) 设计理念:“抜け感”と“芯の強さ”（松弛感与内在的坚韧）
+* **260818**
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 线下照片展&线下特典公布** 8/20(木)～9/2(水) @HMV&BOOKS SHIBUYA 线下特典生写1枚+抽选1张赠送狐猪亲签色纸 ⇨ [𝕏](https://x.com/TVguidePERSON/status/2089624301658091664)
+    > **【个人活动｜藤本洸大】BLANK AND SEA服装设计联名 情报解禁**{: .text-solo-k} ⇨ [𝕏](https://x.com/blankandsea/status/2089547839643037984) 洸大设计的连帽衫、裤子、包包、帽子一共四样，8/21开放预约生产
+* **260817**
+    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集+线下活动情报解禁**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2089133218616541508)｜[购买链接汇总](https://lit.link/en/hidesyoshikpb)｜[𝕏简](https://x.com/kan_hideyoshi/status/2089282840714440980)
+        > 26/12/11 正式发售；8/21 19:00~9/2纪念活动预售
+        > 纪念签售活动: 📍12/12,12/13 東京;📍12/19 京都;📍27/1/10 线上
+        > 更多特典详情请看 ⇨ [【单人物料-261211】]({{ site.baseurl }}/solo/#kan-1stphotobook)
+    > **【个人活动｜藤本洸大】blankandsea: coming soon!**{: .text-solo-k} ⇨ [𝕏](https://x.com/blankandsea/status/2089185451244409125)
 * **260816**
+    > **【修学旅行】修仲OST作者铃木宣布将继续担任修仲2的OST制作** ⇨ [𝕏](https://x.com/Yasu_coda/status/2088857165826322775)
     > **【SNS｜简秀吉】小简发推说明天有通知**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2088966779825733912)
     > **【个人活动｜藤本洸大】blankandsea: coming soon!**{: .text-solo-k} 洸大设计的衣服要和windandsea的新品牌联名啦 ⇨ [𝕏](https://x.com/blankandsea/status/2088952540893462774)/[ins](https://www.instagram.com/p/DcGTlQUGM0j/)
 * **260815**
     > **【个人活动｜藤本洸大】ViVi国宝级帅哥榜周边Kuji 洸大介绍周边**{: .text-solo-k} ⇨ [𝕏](https://x.com/vivi_magazine/status/2088551873490104724)/[ins](https://www.instagram.com/p/DcDiW4qyNWt/)
     > **【个人活动｜藤本洸大】blankandsea: coming soon!**{: .text-solo-k} designed by Kodai Fujimoto ⇨ [ins](https://www.instagram.com/p/DcDu0sZmBcB/)
 * **260814**
-    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 狐猪封底解禁** ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)｜[ins](https://www.instagram.com/p/DcA2spEEjYg/) 太好看了!!
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 狐猪封底解禁**{: .text-red} ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)｜[ins](https://www.instagram.com/p/DcA2spEEjYg/) 太好看了!!
     > **【FC｜藤本洸大】FC限定同窗会vlog**{: .text-solo-k} ⇨ [𝕏30s切片](https://x.com/topcoat_staff/status/2088099558060421589)/[🔒TC限定-3min完整版](https://sp.tcland.jp/contents/1101097)
 * **260812**
     > **【修学旅行S2】官网更新新闻** ⇨ [シーズン2放送決定](https://www.asahi.co.jp/schooltrip/news/260812.html)
@@ -589,6 +632,7 @@ permalink: /flattened_timeline/
         > 狐猪双人宣传: 本日发售！特典时间小quiz 174分钟 ⇨ [𝕏](https://x.com/dramal_abc/status/2052584281831297175)/[ins](https://www.instagram.com/reel/DYD9LR6hy6h/)
         > Oricon当日1位 ⇨ [𝕏](https://x.com/oricon/status/2052690025721299295)
         > 亲妈发推祝贺 ⇨ [𝕏](https://x.com/RcNfe37/status/2053461049375105455)
+        > 修仲OST作者收到box并分享了修仲取景地 ⇨ [𝕏](https://x.com/Yasu_coda/status/2052314988233077062) ⬅️是作者从小长大的地方
     > **【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)｜[🆈Official Audio](https://www.youtube.com/watch?v=NNyvLNoHYfA)
     > **【个人活动｜藤本洸大】电影「未来」上映**{: .text-solo-k} 布施晃 役 ⇨ [官网](https://mirai-movie.jp/)
     > **【杂志｜藤本洸大】《S Cawaii!特別編集 マブ ～永遠の絆～》(6/4) 特典卡解禁全3种**{: .text-solo-k} ⇨ [𝕏](https://x.com/mag_scawaii/status/2052629572084961715)
