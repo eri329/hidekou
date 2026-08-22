@@ -24,7 +24,7 @@ permalink: /solo/
     > **260803 小简写真集账号:Coming soon.** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2084197646202515924)/[ins](https://www.instagram.com/p/DbklI0xyLn8/)
     > **260811 小简写真集账号:Dec.2026** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2087087527715053913)/[ins](https://www.instagram.com/p/Db5G8C5y-7_/)/[微博](https://weibo.com/7984735683/RcUd1BHZl)
     > **260816 明天有通知** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2088966779825733912)
-    > **260817 写真集+纪念活动情报解禁** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2089133218616541508)/[ins](https://www.instagram.com/p/DcHntpIk-lk/)｜[购买链接汇总](https://lit.link/en/hidesyoshikpb)｜[𝕏简](https://x.com/kan_hideyoshi/status/2089282840714440980) 🗓️12/11正式发售；全本都在韩国拍摄；造型师金田健志([𝕏](https://x.com/kanedakenshi/status/2089188568610845118))
+    > **260817 写真集+纪念活动情报解禁** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2089133218616541508)/[ins](https://www.instagram.com/p/DcHntpIk-lk/)｜[购买链接汇总](https://lit.link/en/hidesyoshikpb)｜[𝕏简](https://x.com/kan_hideyoshi/status/2089282840714440980)｜[𝓲简](https://www.instagram.com/p/DcItpSOG-2T/) ⬅️怼脸小视频超可爱 🗓️12/11正式发售；全本都在韩国拍摄；造型师金田健志([𝕏](https://x.com/kanedakenshi/status/2089188568610845118))
     > 媒体: [𝕏推し楽](https://x.com/oshiraku/status/2089219611678163107) 宣图里最高清的/[mezamashi](https://mezamashi.media/articles/-/334717) 有一张新图/[prtimes](https://prtimes.jp/main/html/rd/p/000019946.000007006.html) 有小简的留言
     > 有一本特典版送30p未收录cut迷你小册子
     > 纪念签售活动: 📍12/12,12/13 東京;📍12/19 京都;📍27/1/10 线上
@@ -32,8 +32,8 @@ permalink: /solo/
     > 活动特典：1️⃣先着:1册:普通书&手渡；3册:提前签名书当场写名字&手渡+握手+余下2本书&生写1枚三随一；5册:提前签名书手渡+手机合影+击掌+余下4本书&明信片1张三随一 2️⃣抽选:1册:普通书&生写1枚三随一&手渡；3册:提前签名书&印签小卡1枚三随一(当场写名字+留言N选一)&手渡+握手+余下2本书；5册:提前签名书&特别封面书皮现场签名&手渡+合影拍立得+余下4本书 3️⃣线上特典2册:提前签名书+余下1本书+30秒视频通话+生写1张或线上合影 4️⃣如果落选:1册:普通书+生写1枚三随一；3册:签名书1本+普通书2本+印签小卡三随一亲笔留言三随一；5册:签名书1本+普通书4本+特别封面书皮带签名
     > 不同点:只有3册券可以写名字；3册先着可以握手，3册抽选生写改为印签小卡+现场写留言；5册先着击掌+手机合影，5册抽选特别签名封皮+拍立得合影
     > [📕特典整理(nano)](http://xhslink.com/o/9uxYbKr7QYu)
-    > **260820 小简X:明日开始预约** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2090401232414466329) 西装帅！！
-    > **260821 纪念活动开售/宣传视频** 19:00~ ⇨ [𝕏宣传视频](https://x.com/kanhideyoshi1st/status/2090725606103355789)
+    > **260820 小简X:明日开始预约**{: .text-red} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2090401232414466329)/[𝓲简](https://www.instagram.com/p/DcQoQlbgaAt/) 西装帅！！
+    > **260821 纪念活动开售/宣传视频** 19:00~ ⇨ [𝕏宣传视频](https://x.com/kanhideyoshi1st/status/2090725606103355789)/[ins](https://www.instagram.com/p/DcS934KB-67/)
 * **261103 简秀吉24岁生日会&见面会 大阪生日会**{: .text-red} 14:00/17:30📍大阪エル・シアター
 
 ---
@@ -56,16 +56,17 @@ permalink: /solo/
 ---
 * **260826《PERCE NEIGE》(8/26) 杂志发售**
     > **260726 情报解禁** ⇨ [𝕏](https://x.com/perceneige_mp/status/2081333721639297136)
-    > **260822 图透** ⇨ [𝕏](https://x.com/perceneige_mp/status/2090986662650433839) 好清爽好帅！
+    > **260822 图透**{: .text-red} ⇨ [𝕏](https://x.com/perceneige_mp/status/2090986662650433839) 好清爽好帅！
 * **260824《BLAZE》8月号(8/24) 杂志发售**
-    > **260819 情报解禁/图透预告:红** 红色眼镜小简 ⇨ [𝕏视频](https://x.com/blazeprojectmag/status/2089744747917349306)/[ins](https://www.instagram.com/p/DcL_1THTuWc/)｜[𝕏照片](https://x.com/blazeprojectmag/status/2090030804114227540)/[ins](https://www.instagram.com/p/DcOCBCCE4JD/)
-    > **260820/260821 图透预告:蓝/黑** ⇨ [𝕏蓝](https://x.com/blazeprojectmag/status/2090393820127211783)/[ins](https://www.instagram.com/p/DcQmxXxBVEO/)｜[𝕏黑](https://x.com/blazeprojectmag/status/2090756015138754855)
+    > **260819 情报解禁/图透预告:红** 红色眼镜小简 ⇨ [𝕏视频](https://x.com/blazeprojectmag/status/2089744747917349306)/[ins](https://www.instagram.com/p/DcL_1THTuWc/)｜[𝕏照片](https://x.com/blazeprojectmag/status/2090030804114227540)/[ins图更大](https://www.instagram.com/p/DcOCBCCE4JD/)
+    > **260820/260821 图透预告:蓝/黑** ⇨ [𝕏蓝](https://x.com/blazeprojectmag/status/2090393820127211783)/[ins图更大](https://www.instagram.com/p/DcQm4PyE3Es/)｜[𝕏黑](https://x.com/blazeprojectmag/status/2090756015138754855)/[ins图更大](https://www.instagram.com/p/DcTL9ick0yk/)
+    > **260822 登场预告:黑/视频**{: .text-red} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2091118524920173033)/[ins](https://www.instagram.com/p/DcVwjs3TgrV/) 很有变态风味……🤤
 * **260824《月刊TVガイド》10月号(8/24) 杂志发售**《跌落就完了》剧宣杂
     > **260731 情报解禁** ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[ins](https://www.instagram.com/p/Dbe5TDigYXv/)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393) 生写特典三随一/全套
 * **260822【直播】简秀吉ins直播** 21:00~
     > **260821 明天21点ins直播通知** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2090781222670889116)
 * **260821《CanCam》10月号(8/21) 杂志发售** 生見愛瑠×簡秀吉 ⚠️BG企划:约会穿搭
-    > **260819 情报解禁** ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)
+    > **260819 情报解禁** ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)/[ins](https://www.instagram.com/p/DcN7K62gfLj/)
 * **260812 Emo!miu采访 with清水海李** ⇨ [𝕏](https://x.com/Emo_miu/status/2087466879992700982)｜[𝕏应募拍立得](https://x.com/Emo_miu/status/2087467877230420457)｜[ins海李](https://www.instagram.com/p/Db8TjgnkvZu)/[📕海李](http://xhslink.com/o/4nFFmUM4z1e)｜[ins1](https://www.instagram.com/p/Db73n0WH_Zo/)/[ins2](https://www.instagram.com/p/Db73XHqiEDK/)/[ins3](https://www.instagram.com/p/Db712iHCT8A/) 电视剧「跌落就完了」剧宣
 * **260812【FC｜直播】21:00~ 小简FC直播**{: .text-red}
 * **260806【FC｜直播】小简FC电台直播**{: .text-red} 对4天后就是同窗会大感震惊233
@@ -108,7 +109,7 @@ permalink: /solo/
     > **260804 小简社会人offshot** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2084642332293624228)/[ins](https://www.instagram.com/p/Dbnusp8mV6k/) 拿着公文包的上班族，帅！！
     > **260806 小简和女主剧情切片** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2085333915863245164)/[ins](https://www.instagram.com/p/DbsoqmFPZUN/)
     > **260815 Tiktok小简单人小视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2088607436500505038)/[TT](https://www.tiktok.com/@dramaism_mbs/video/7674236843562388743)
-    > **260819 最终回预告/剧照** ⇨ [𝕏预告](https://x.com/dramaism_mbs/status/2090003470749417495)｜[𝕏剧照](https://x.com/dramaism_mbs/status/2090004155679363384)
+    > **260819 最终回预告/剧照** ⇨ [𝕏预告](https://x.com/dramaism_mbs/status/2090003470749417495)/[ins](https://www.instagram.com/p/DcN0uSyvyqW/)｜[𝕏剧照](https://x.com/dramaism_mbs/status/2090004155679363384)/[ins](https://www.instagram.com/p/DcN1mqOo1_a/)
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260702 DAZN世界杯节目出演** 收费节目
     > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
@@ -149,6 +150,7 @@ permalink: /solo/
     > **260719 BG向特别视频** ⇨ [ins](https://www.instagram.com/p/Da91X4tzkBZ/)
     > **260725 网络特辑** ⇨ [𝕏](https://x.com/SeventeenJP_mag/status/2080971796350631952)｜[直链](https://seventeen-web.jp/lifestyle/l-news/26143/) 图特别多但是BG特辑⚠️
     > **260805 和女模特的offshot** ⇨ [ins](https://www.instagram.com/p/DbpqRlXE3yX/)
+    > **260820 杂志网络版** ⇨ [ins](https://www.instagram.com/p/DcQf3_hlEPH/)
 * **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的新连载, 每期一张自拍+3张其他照片
     > **260527 新连载情报解禁+宣传视频1** ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
@@ -491,29 +493,34 @@ permalink: /solo/
     > **260805 发售纪念照片展情报解禁** TowerRecord涉谷店；10/6~10/19；抽选赠送照片板 ⇨ [𝕏](https://x.com/TOWER_Shibuya/status/2084936066025631853)
     > **260807 黑豆封面拍摄花絮** ⇨ [𝕏](https://x.com/JUNON_jp/status/2085697911770185762)/[ins](https://www.instagram.com/p/DbvPpwdi5nC/) 黑豆封面；太可爱了BGM特别搭!
     > **260819 特典图公开** ⇨ [𝕏TC特典-小卡三随一](https://x.com/topcoat_staff/status/2089910224480338078/)｜[𝕏四家书店特典-贴纸](https://x.com/JUNON_jp/status/2089910358605721819)｜[𝕏活动特典-印签留言明信片](https://x.com/JUNON_jp/status/2089910623576719536)
+    > **260819 洸大ins发offshot三张** ⇨ [𝓲洸](https://www.instagram.com/p/DcOPI8BlLQ3/) 可爱！
+    > **260821 拍摄花絮视频** ⇨ [ins](https://www.instagram.com/p/DcTKXmICuD_/)
+    > **260822 写真集宣传短片**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DcV7nq4pqoz/) 内容超级丰富，剪辑配乐也很棒，质量很高的一个短片;所有人都会说第10秒的藤本洸大完全是一个omega……💕｜[ins拍摄花絮](https://www.instagram.com/p/DcV4NyhCwJb/) ⬅️喝酒装大人的小孩
 * **261001《Preppy》11月号(10/1) 杂志发售**
     > **摘要** 金发/黑发两种封面；20p；5家店铺共6种特典(B5照片卡)
     > **260821 情报解禁(无图)** ⇨ [𝕏1-heritage](https://x.com/preppy_magazine/status/2090635007127924769)/[𝕏2-日亚HMV](https://x.com/preppy_magazine/status/2090685856650867006)/[𝕏3-塔711](https://x.com/preppy_magazine/status/2090686239792070860)
 
 ---
-* **260905 电视剧「デス青春ゲーム」开播** 24:40~ 村瀬ソウスケ役；像是校园悬疑大逃杀题材，洸大饰演被女主暗恋的男生
-    > **260822 情报解禁** ⇨ [𝕏主卡司解禁](https://x.com/dramadaisakusen/status/2090997385925361938)/[ins](https://www.instagram.com/p/DcU5byUE9mk/)｜[𝕏主视觉解禁](https://x.com/dramadaisakusen/status/2090997389356040610)/[ins](https://www.instagram.com/p/DcU5rvik8z0/)｜[𝕏第1话预告](https://x.com/dramadaisakusen/status/2090997637541765244)/[ins](https://www.instagram.com/p/DcU5ZuSkQlY/)
+* **260905 电视剧「デス青春ゲーム」开播** 24:40~ 村瀬ソウスケ役；像是校园悬疑大逃杀题材，洸大饰演被女主暗恋的男生。
+    > **260822 情报解禁** ⇨ [𝕏主卡司解禁](https://x.com/dramadaisakusen/status/2090997385925361938)/[ins](https://www.instagram.com/p/DcU5byUE9mk/)｜[𝕏主视觉解禁](https://x.com/dramadaisakusen/status/2090997389356040610)/[ins](https://www.instagram.com/p/DcU5rvik8z0/)｜[𝕏第1话预告](https://x.com/dramadaisakusen/status/2090997637541765244)/[ins](https://www.instagram.com/p/DcU5ZuSkQlY/)｜[全卡司&出演感想](https://www.tvlife.jp/drama/811469) 洸大:「我饰演的ソウスケ是一个既有些好强逞能、又常常感情用事的学生。他有时会做错事，有时也会顾前不顾后、看不清周围的情况。」
 
 ---
-* **260821【直播】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red}
+* **260821【直播】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} 「太陽に何を足す？」⇨ [𝓲洸](https://www.instagram.com/p/DcTfCBdFMw2/)
 * **260821《JUNON》10月号(8/21) 杂志发售**
-    > **260819 封面/登场情报解禁** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)
+    > **260819 封面/登场情报解禁** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)/[ins](https://www.instagram.com/p/DcNjUfhiyS8/)｜[ins目录](https://www.instagram.com/p/DcNj2hKi-am/)｜[ins特辑图透](https://www.instagram.com/p/DcNjqWpiF0Z/)
     > **260820 拍摄花絮视频** ⇨ [𝕏](https://x.com/JUNON_jp/status/2090393412583530759)/[ins](https://www.instagram.com/p/DcQmxXxBVEO/) 孩子很适合雪纺衬衫☺️
     > **260821 便利店相卡打印** ⇨ [𝕏](https://x.com/eprintservice/status/2090604798643257776)｜[𝕏相卡目录](https://x.com/eriko_mp100/status/2090981433116676293)
-* **260821 BLANK AND SEA服装设计联名** 洸大设计的衣服要和windandsea的新品牌联名啦
+* **260821 BLANK AND SEA服装设计联名**{: .text-red} 洸大设计的衣服要和windandsea的新品牌联名啦
     > **260815 coming soon!** ⇨ [ins](https://www.instagram.com/p/DcDu0sZmBcB/)
     > **260816 coming soon!** ⇨ [𝕏](https://x.com/blankandsea/status/2088952540893462774)/[ins](https://www.instagram.com/p/DcGTlQUGM0j/)
-    > **260817 coming soon!** ⇨ [𝕏](https://x.com/blankandsea/status/2089185451244409125)
-    > **260818 情报解禁** ⇨ [𝕏](https://x.com/blankandsea/status/2089547839643037984) 洸大设计的连帽衫、裤子、包包、帽子；8/21 20:00～8/30 23:59;贩售店铺: [zozotown](https://zozo.jp/shop/windandsea/)
-    > **260819 各种宣传** ⇨ [𝕏](https://x.com/blankandsea/status/2090031035702530270)｜[𝕏推し楽](https://x.com/oshiraku/status/2089969891462000828)
+    > **260817 coming soon!** ⇨ [𝕏](https://x.com/blankandsea/status/2089185451244409125)｜[𝓲洸](https://www.instagram.com/p/DcJBd8UlPmV/) ⬅️特别日置的几张!(因为里面穿的是日置的制服)
+    > **260818 正式情报解禁** ⇨ [𝕏](https://x.com/blankandsea/status/2089547839643037984)/[ins有新图](https://www.instagram.com/p/DcKmRjmmJOp/)/[𝓲洸](https://www.instagram.com/p/DcLnQPelHaz/)/[ins发型师-没有新图](https://www.instagram.com/p/DcLiVuKGXbR/)/[ins发型师2](https://www.instagram.com/p/DcLisxJGcw9/)/[发型师3](https://www.instagram.com/p/DcLih7Smd7W/) 洸大设计的连帽衫、裤子、包包、帽子；8/21 20:00～8/30 23:59;贩售店铺: [zozotown](https://zozo.jp/shop/windandsea/)（站长:这套真的拍了一百张图）
+    > 洸大说进入演艺圈的第一个工作就WINDANDSEA的模特，没想到三年后能合作设计自己的衣服!log也是自己画的。⇨ [WIND AND SEA 2023 Spring-Summer Collection](https://www.instagram.com/p/CqjnPCXv5Ug/)
+    > **260819 各种宣传** ⇨ [𝕏](https://x.com/blankandsea/status/2090031035702530270)/[ins](https://www.instagram.com/p/DcOB8cZmJHU/)｜[𝕏推し楽](https://x.com/oshiraku/status/2089969891462000828)
     > 设计理念:「肩の力は抜いていい。でも、生き方まで緩くはなりたくない。歳を重ねるほど、社会のことを知って、うまく力を抜くことや、適当に流す術を覚えていく。だからこそ、無理に飾らなくていいと思った。背伸びもしない。強がりもしない。けれど、自分の人生くらいは、ちゃんと自分で背負っていたい。誰かのせいにするのは、格好悪いから。ラフに生きる。でも、人としてはかっこよく在りたい。そんな“抜け感”と“芯の強さ”を、このデザインに落とし込みました。」
-    > **260820 商品图** ⇨ [𝕏](https://x.com/blankandsea/status/2090393409496527349)
+    > **260820 商品图** ⇨ [𝕏](https://x.com/blankandsea/status/2090393409496527349)/[ins](https://www.instagram.com/p/DcQmxHiGMDu/)
     > **260821 预售开始** 20:00~ @ZOZOTOWN ⇨ [𝕏洸大模特图](https://x.com/blankandsea/status/2090755797592756449)
+    > **260822 洸大宣传短片** ⇨ [𝕏](https://x.com/blankandsea/status/2091118189035900942)/[ins](https://www.instagram.com/p/DcVwX85vGke/)
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
 * **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)/[b站中字(发扬洸大)](https://www.bilibili.com/video/BV1wRgw66ESF/)
@@ -589,6 +596,7 @@ permalink: /solo/
     > **260821 洸大初登场** 24:12~ ⇨ [𝕏剧照](https://x.com/tx_strange/status/2090804112770109683)/[ins](https://www.instagram.com/p/DcThmZ3E5lo/)
     > **260822 洸大的角色是导演指名出演的；还特意为他加了一句台词** 就是手岛的最后一句台词 ⇨ [𝕏](https://x.com/ryotakondofilm/status/2090838059038515475)
     > 「自分がこの回を監督すると決まった時に真っ先に藤本くんに手島役を、と提案しました」「ちなみに手島くんの最後の一言は僕がどうしてもこう言わせたいと伝えて脚本の稲本さんに書いていただきました」
+    > **260822 洸大宣传口播 w/細田佳央太**⇨ [𝕏](https://x.com/tx_strange/status/2091087990630367351)/[ins](https://www.instagram.com/p/DcVio8ihL2L/)
 * **260703/260708 TVガイドWeb 采访**
     > **260703 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
     > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
@@ -937,6 +945,7 @@ permalink: /solo/
 * **230819 直播活动「TopCoat夏祭り2023 〜いい夏にしようぜ！〜」TCバスケ部夏祭りスペシャル** 18:30~ TC若手演员的篮球对决 ⇨ [活动官网](https://sp.tcland.jp/contents/lp/summer_festival2023)｜[🆈活动花絮](https://www.youtube.com/playlist?list=PLX6jFepxdIp5kVTTx0QyGCIFMz7Pnvwhx)
 * **230722 杂志登场「JUNON 9月号」发售**
 * **230105 杂志登场「週刊女性 1/17・24号」发售** ⇨ [web采访](https://www.jprime.jp/articles/-/26361)
+* **230403 WIND AND SEA 2023 Spring-Summer Collection** 洸大的第一个工作 ⇨ [ins](https://www.instagram.com/p/CqjnPCXv5Ug/)
 * **230403 所属发表 洸大加入TopCoat事务所** ⇨ [ins](https://www.instagram.com/p/CqkVLOzLp1u/)
 
 ---
