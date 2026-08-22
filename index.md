@@ -39,6 +39,9 @@ permalink: /
 {: #oct2026}
 
 * **261017【修学旅行S2】修学旅行第二季开播!**{: .text-red}
+* **261005【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**
+    > **特典摘要**: 特别版狐猪封底+infosquare特典六随一(单人2枚x2套+双人2枚)
+    > **260820 情报解禁** ⇨ [𝕏购买链接(无图)](https://x.com/mag_scawaii_men/status/2090350665138937870)｜[𝕏文字介绍/特典详情(无图)](https://x.com/mag_scawaii_men/status/2090351304719950208)
 
 ### 2026.9
 {: #sep2026}
@@ -46,6 +49,9 @@ permalink: /
 * **260919【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划  ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
     > **260810 情报解禁** 8/10~8/23 先行抽选；9/12~ 一般开票 ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)｜[𝕏推し楽](https://x.com/oshiraku/status/2086784630821446027)
     > **260820 现场特典影像是修仲第二季拍摄花絮!** ⇨ [𝕏](https://x.com/LVJ_culture/status/2090363218048774425)
+* **260911【杂志｜双人】《CYAN MAN》10月号 SPECIAL EDITION(9/11) 杂志发售**{: .text-red} 双人封面封底
+    > 22p, 主题ANOTHER AFTER HOURS「ドラマの世界線とは違う、別の世界での2人が親友として出会ったら……」「最近の美容事情、お互いの好きなパーツ、修仲メンバーと旅行に行くなら……!?」当然还有修仲2的话题。（站长:这杂志也太良心了没有割特典…）
+    > **情报/封面解禁/双人宣传**{: .text-red} ⇨ [𝕏封面封底/内容情报](https://x.com/CYANMANMAGAZINE/status/2090363217587408952)/[ins](https://www.instagram.com/p/DcQZEOPBOa6/)｜[𝕏双人宣传](https://x.com/CYANMANMAGAZINE/status/2090363207508709863)/[ins](https://www.instagram.com/p/DcQZAVQBr-r/) 小简又看不到正脸了(但还是感觉情绪不太高的样子)
 * **【修学旅行S2】拍摄日志**{: .text-red}
     > **260803 进藤导演快拍:正在堪景，是年内最后一部BL**
     > **260810 进藤导演快拍:再始動！**
@@ -56,13 +62,16 @@ permalink: /
 
 <div class="line"></div>
 
+* **260822【修学旅行｜周边】马来西亚快闪店开设** 8/22~9/6 ⇨ [𝕏](https://x.com/ORBcafe_my/status/2090982288217796961)｜[𝕏告知(8/21)](https://x.com/ORBcafe_my/status/2090725601695203753)
 * **260820【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
-    > **260729 双人封底登场解禁+特典情报** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2限定店铺双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
+    > **特典摘要**:随书赠海报(藤本洸大×簡秀吉 超ワイド両面ピンナップ)；限定版封面无特典；乐天books特典三随一；线下特典一
+    > **260729 双人封底登场解禁+特典情报** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2乐天books双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
     > **260731 双人特典图解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2083100775400747169)
     > **260814 封底解禁** ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)｜[ins](https://www.instagram.com/p/DcA2spEEjYg/) <span>太好看了吧!!贴得好近好暧昧</span>{: .text-pink}
-    > **260818 线下照片展&线下特典公布** 8/20(木)～9/2(水) @HMV&BOOKS SHIBUYA 线下特典生写1枚+抽选1张赠送狐猪亲签色纸 ⇨ [𝕏](https://x.com/TVguidePERSON/status/2089624301658091664)
+    > **260818 线下照片展&线下特典公布** 8/20(木)～9/2(水) @HMV&BOOKS SHIBUYA 5F 线下特典生写1枚+抽选1张赠送狐猪亲签色纸 ⇨ [𝕏特典3线下生写特典](https://x.com/TVguidePERSON/status/2089624301658091664)｜[𝕏照片展(8/21)](https://x.com/HmvBooksShibuya/status/2090700214873260111)
     > **260819 杂志标题页图透** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2090012364389380245)
-* **260819【修学旅行S2】官方Tiktok小视频:修仲回来了!** F5再次cha两片想！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7675665175441050900)/[𝕏](https://x.com/dramal_abc/status/2090001597464297512)
+    > **260820 杂志发售** ⇨ [𝕏](https://x.com/tokyonews_pr/status/2090242558790394072)｜[𝕏推し楽](https://x.com/oshiraku/status/2090329462114259444)｜[🆈TVdan拍摄花絮](https://www.youtube.com/watch?v=zu2hytbg_qA)
+* **260819【修学旅行S2】官方Tiktok小视频:修仲回来了!** F5再次cha两片想！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7675665175441050900)/[𝕏](https://x.com/dramal_abc/status/2090001597464297512)/[ins](https://www.instagram.com/p/DcQvZ4CT2jt/)
 * **260819【修学旅行S2｜原作】原作小说新特典开始发布** 13:00~
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
     > **260819 狐猪证件照开始发布** 13:00~ 书腰也更新为第二季情报了! ⇨ [𝕏详情与店铺清单](https://x.com/BeLuckbunko/status/2089931807320088929)｜[活动详情](https://novema.jp/article/beluck/media-fair/1720) 另外还会抽选2名赠送洸大亲签修仲礼品券｜[活动期间](https://x.com/novema_edit/status/2089927041802187119) 大概会进行到10月中旬｜[推し楽](https://fan.books.rakuten.co.jp/articles/10089)｜书店展示:[𝕏1](https://x.com/sanyodohanda/status/2089921880572727634),[𝕏2](https://x.com/Kino_Izumo/status/2089894562261291337),[𝕏3](https://x.com/Orion_Lumine/status/2089910004119961899),[𝕏4](https://x.com/kbc_dekki/status/2089921995404448081)｜亲妈开心:换成第二季的书腰了~([𝕏](https://x.com/RcNfe37/status/2090077411794878797))
@@ -114,7 +123,11 @@ permalink: /
     > **260811 媒体报道** ⇨ [𝕏mdpr-追加洸大饭撒照片](https://x.com/modelpress/status/2086840801506783327)｜[𝕏TVguide repo-19p](https://x.com/TVGweb/status/2086841768507789782) <span>写得很详细；图多但都很小</span>{: .text-pink}｜[𝕏theTV-海李步汰](https://x.com/thetvjp/status/2087074225551204382)｜[𝕏preppy发yt视频](https://x.com/preppy_magazine/status/2086950722965512515) 和oricon的视频一样｜以下都没有新图 [𝕏awesome](https://x.com/BP25th_awesome/status/2087044280217206821)/[𝕏crank_in](https://x.com/crank_in_net/status/2086994774268256485)/[𝕏PASH!PLUS](https://x.com/magazine_pash/status/2087054513073221790)
     > **260811 简秀吉FC限定同窗会vlog** ⇨ [🔒【FC限定】Setlog ～夏休み同窓会編～🎥🌻](https://kan-hideyoshi.com/movies/131205)
     > **260814 洸大FC限定同窗会vlog** ⇨ [𝕏30s切片](https://x.com/topcoat_staff/status/2088099558060421589)/[🔒TC限定-3min完整版](https://sp.tcland.jp/contents/1101097)
-    > **260820 配信特典发布**{: .text-red} 8/20 18:00～9/1 23:59 可以视听下载；<span>两个幕后特典视频都是狐猪直拍！8/10以来第一次看到狐猪同框这么久……；；</span>{: .text-pink}
+    > **260820 配信特典发布**{: .text-red} 8/20 18:00～9/1 23:59 可以视听下载；
+    > #### 两个幕后特典视频都是狐猪直拍！8/10以来第一次看到狐猪同框这么久……；；击掌后反握住的手🈶(感觉S2洸大的距离感突然消失了!狐猪风味似乎有点倒转🤔)
+    > **260820 活动结束后五天王留言** ⇨ [𝕏](https://x.com/dramal_abc/status/2090363595163124100)/[ins](https://www.instagram.com/p/DcQZRpFz0bm/) <span>小简:「たのしかったこんぶ」洸大连连摆手:到底在说什么呢</span>{: .text-pink}
+    > **260820 活动幕后PR担当自述** ⇨ [abc-magazine(大图)](https://abc-magazine.asahi.co.jp/post-86653/) 幕后工作人员也很紧张啊！
+    > **260821 官方Tiktok小视频vlog** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7676439592920206612)/[ins](https://www.instagram.com/p/DcTMZl9zAgt/) <span>活动结束后装作要击掌实则要抱抱的小简www（同窗会的狐猪片段也藏得太久了吧!）</span>{: .text-pink}
 
 <details markdown="1">
 <summary><strong>=================== 修学旅行第一季时间线(点击此行展开/收起)===================</strong></summary>

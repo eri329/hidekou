@@ -16,7 +16,7 @@ permalink: /drama_repo/
 * [ドラマ『修学旅行で仲良くないグループに入りました』-安見監督回の感想編-](https://note.com/syunaka_1018/n/nb473d76f9a90) by 木の子(note)
     > 9集，最会拍日置的一位导演。但是番外后篇可能也是他拍的，谜……
 * [私的注目ポイント:第1话](https://x.com/yt_ty12/status/2073305433469751727) by ゆっちゃん(𝕏) ｜ 樱花妹的图文repo, 观察的点都很细
-    > * [第2话](https://x.com/yt_ty12/status/2075757981103485326)
+    > * [第2话](https://x.com/yt_ty12/status/2075757981103485326), [3](https://x.com/yt_ty12/status/2080861239241248772), [4](https://x.com/yt_ty12/status/2083378887912984580), [5](https://x.com/yt_ty12/status/2085931865790459939), [6](https://x.com/yt_ty12/status/2090972721148723233)
 * [藤本洸大＆簡秀吉がハマリ役の王道ラブストーリー ときめきと繊細な感情描写が光る「修学旅行で仲良くないグループに入りました」](https://thetv.jp/news/detail/1423703/) by WEB The TV(thetv.jp) ｜ the tv的通稿，还挺中肯的。
 
 ## 视频

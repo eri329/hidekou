@@ -117,6 +117,8 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261005 S Cawaii! ME 2026 AUTUMN（双人封底）** ⇨ []()
+* **260911 CYAN MAN 10月号 SPECIAL EDITION（双人封面封底）** ANOTHER AFTER HOURS｜22p ⇨ [封面封底](https://x.com/CYANMANMAGAZINE/status/2090363217587408952)
 * **260820 TVガイドdan vol.61（双人封底）** 两版封底 ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)
 * **260607 Emo!miu采访（web）** Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)
 * **260501 Preppy 6月号（双人封面）** The Rising Star｜3 look｜20p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2038919236148396458)｜[📕内页(偏差值)](http://xhslink.com/o/8x23da3XYsM)｜[联动采访](https://preppyweb.com/article/26576)
@@ -148,7 +150,9 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
-* **BLAZE 8月号**
+* **261005 S Cawaii! ME 2026 AUTUMN（封底）**{: .text-red}
+* **260911 CYAN MAN 10月号 SPECIAL EDITION（封面封底）**{: .text-red}
+* **260824 BLAZE 8月号**
 * **260826 PERCE NEIGE**「おちたらおわり」剧宣｜8p ⇨ 
 * **260824 月刊TVガイド 10月号**「おちたらおわり」剧宣 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2087835966308549097)
 * **260821 CanCam 10月号** ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)
@@ -223,6 +227,9 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261005 S Cawaii! ME 2026 AUTUMN（封底）**{: .text-red}
+* **261001 Preppy 11月号（封面）** 20p
+* **260911 CYAN MAN 10月号 SPECIAL EDITION（封面封底）**{: .text-red}
 * **260821 JUNON 10月号** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)
 * **260820 TVガイドdan vol.61**{: .text-red}
 * **260722 JUNON 9月号** 喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)｜[📕内页中嵌(bala)](http://xhslink.com/o/3kar4kQF9uz)
