@@ -51,7 +51,7 @@ permalink: /
     > **260820 现场特典影像是修仲第二季拍摄花絮!** ⇨ [𝕏](https://x.com/LVJ_culture/status/2090363218048774425)
 * **260911【杂志｜双人】《CYAN MAN》10月号 SPECIAL EDITION(9/11) 杂志发售**{: .text-red} 双人封面封底
     > 22p, 主题ANOTHER AFTER HOURS「ドラマの世界線とは違う、別の世界での2人が親友として出会ったら……」「最近の美容事情、お互いの好きなパーツ、修仲メンバーと旅行に行くなら……!?」当然还有修仲2的话题。（站长:这杂志也太良心了没有割特典…）
-    > **情报/封面解禁/双人宣传**{: .text-red} ⇨ [𝕏封面封底/内容情报](https://x.com/CYANMANMAGAZINE/status/2090363217587408952)/[ins](https://www.instagram.com/p/DcQZEOPBOa6/)｜[𝕏双人宣传](https://x.com/CYANMANMAGAZINE/status/2090363207508709863)/[ins](https://www.instagram.com/p/DcQZAVQBr-r/) 小简又看不到正脸了☺️(但还是感觉情绪不太高的样子)
+    > **260820 情报/封面解禁/双人宣传**{: .text-red} ⇨ [𝕏封面封底/内容情报](https://x.com/CYANMANMAGAZINE/status/2090363217587408952)/[ins](https://www.instagram.com/p/DcQZEOPBOa6/)｜[𝕏双人宣传](https://x.com/CYANMANMAGAZINE/status/2090363207508709863)/[ins](https://www.instagram.com/p/DcQZAVQBr-r/) 小简又看不到正脸了☺️(但还是感觉情绪不太高的样子)
 * **【修学旅行S2】拍摄日志**{: .text-red}
     > **260803 进藤导演快拍:正在堪景，是年内最后一部BL**
     > **260810 进藤导演快拍:再始動！**
@@ -71,7 +71,7 @@ permalink: /
     > **260814 封底解禁** ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)｜[ins](https://www.instagram.com/p/DcA2spEEjYg/) <span>太好看了吧!!贴得好近好暧昧</span>{: .text-pink}
     > **260818 线下照片展&线下特典公布** 8/20(木)～9/2(水) @HMV&BOOKS SHIBUYA 5F 线下特典生写1枚+抽选1张赠送狐猪亲签色纸 ⇨ [𝕏特典3线下生写特典](https://x.com/TVguidePERSON/status/2089624301658091664)｜[𝕏照片展(8/21)](https://x.com/HmvBooksShibuya/status/2090700214873260111)
     > **260819 杂志标题页图透** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2090012364389380245)
-    > **260820 杂志发售** ⇨ [𝕏](https://x.com/tokyonews_pr/status/2090242558790394072)｜[𝕏推し楽](https://x.com/oshiraku/status/2090329462114259444)｜[🆈TVdan拍摄花絮](https://www.youtube.com/watch?v=zu2hytbg_qA)
+    > **260820 杂志发售** ⇨ [𝕏](https://x.com/tokyonews_pr/status/2090242558790394072)｜[𝕏推し楽](https://x.com/oshiraku/status/2090329462114259444)/[TVG](https://www.tvguide.or.jp/feature/feature-5186346/)｜[🆈TVdan拍摄花絮](https://www.youtube.com/watch?v=zu2hytbg_qA) <span>小简看起来没什么精神的样子😢但是洸大枕在小简大腿上扭来扭去还是有点把我甜到。洸大的安全距离已经全无了……</span>{: .text-pink}
 * **260819【修学旅行S2】官方Tiktok小视频:修仲回来了!** F5再次cha两片想！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7675665175441050900)/[𝕏](https://x.com/dramal_abc/status/2090001597464297512)/[ins](https://www.instagram.com/p/DcQvZ4CT2jt/)
 * **260819【修学旅行S2｜原作】原作小说新特典开始发布** 13:00~
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
@@ -581,16 +581,20 @@ permalink: /
     > #### 小简也来了~说辻谷好吵，但是因为大家没注意到他“一气之下”闹别扭走了😢后来又把自己哄好回来了说“洸大好瑞典风好可爱”，结果洸大以为他在说山田健人，还说“应该是我比较像瑞典吧？”233 一提到小简的舞台剧洸大脱口而出剧名嗯…👀
     <!-- 洸大：“明明简先生和三浦先生都在的，结果我居然漏掉了！啊——！真的假的！难道说要是4人直播的话评论区会卡住吗？我明明都发出去了…抱歉啊…简先生闹别扭退出去了！真的吗？真的假的？对不起啦…” -->
 * **260125【修学旅行｜双人】GagaOOLala上线修仲番外+狐猪宣传视频** ⇨ [𝕏](https://x.com/gagaoolala/status/2015243225624142260)
-* **260123【采访｜藤本洸大】STORY Web采访+应募拍立得** ⇨ [𝕏](https://x.com/story_web/status/2014646920023802170)
+* **260123【采访｜藤本洸大】STORY Web采访** ⇨ [𝕏](https://x.com/story_web/status/2014646920023802170)
     > **前篇** [話題の俳優・藤本洸大さん簡秀吉さんとの関係「ドラマと素は全く逆!？」](https://storyweb.jp/lifestyle/680244/)
     >  ⇨ 「イケメンに愛される役のちょっとした特別感、ドラマ内での立ち位置や、徐々に膨らんでいく恋心まで、绝妙な塩梅感を出すことは难しかったように思います。」<span>洸大表演日置时思考的东西真的都特别好…</span>{: .text-pink}
     >  ⇨ 「簡さんはギャップが魅力的な方だと思います。」<span>说不上来小简帅气的瞬间但是提到他有趣的地方可以说一大堆www</span>{: .text-pink}
-    >  ⇨ 提到喜欢第6话日置在海边拉住渡会的场景。那场戏没怎么和小简交流，但是导演也没有喊cut于是一口气拍下来了(一种超绝默契);冰淇淋那场戏十好几人全神贯注地等冰淇淋融化www
+    >  ⇨ 提到喜欢第6话日置在海边拉住渡会的场景。那场戏没怎么和小简交流，但是导演也没有喊cut于是一口气拍f下来了(一种超绝默契);冰淇淋那场戏十好几人全神贯注地等冰淇淋融化www
     >  ⇨ 采访结束有应募特典图
     > **后篇** [母への超絶反抗期を後悔「絵に描いたような反抗少年でした（笑）」](https://storyweb.jp/lifestyle/680232/)
     >  ⇨ <span>讲了一些进入演艺圈的契机和展望</span>{: .text-pink}
     > 特別cut集 [あどけなさと艶やかさが共存する唯一無二の色気](https://storyweb.jp/lifestyle/680307/) ⇨ <span>这个标题起得很好!!“天真烂漫与妩媚艳丽共存的独一无二的色气” Yes站长已被这套造型迷晕</span>{: .text-pink}
+    > **260113 推测取材日**{: .text-off} *由采访提及成人式的隔天推测*
+    > **260123 拍摄花絮视频**{: .text-red} ⇨ [ins](https://www.instagram.com/p/DT2crQ4EUGZ/) 太好看太社会人日置了。站长最喜欢的洸大造型Nooooo.1
+    > **260123 应募拍立得** ⇨ [𝕏](https://x.com/story_web/status/2014646796123840515) 晴耕雨读的拍立得！
     > **260124 摄影师发图** ⇨ [𝕏](https://x.com/_shuntosato/status/2014860913720099281) 有一张新图
+    > **260205 成年的抱负视频采访** ⇨ [ins](https://www.instagram.com/p/DUXp1ZEkSMz/) 想做一个坏一点的小孩出演“bitter”的角色
 * **260119【修学旅行】thetv报道** ⇨ [藤本洸大“日置”×簡秀吉“渡会”によるキュンが大渋滞「修学旅行で仲良くないグループに入りました」アフターストーリーが尊い](https://thetv.jp/news/detail/1320817/)
 * **260112【SNS｜简秀吉】小简快拍祝贺大家成人式快乐** <span>「洸大もおめでとう あ、弟もおめでとう笑」⬅️笑死弟弟排在洸大后面</span>{: .text-pink}
 * **260110【修学旅行】官方X最后一条常规投稿**{: .text-red} ⇨ [𝕏修仲拍摄花絮](https://x.com/dramal_abc/status/2009928588632764733)/[ins](https://www.instagram.com/p/DTU3UMkE7b8/)/[TT](https://www.tiktok.com/@schooltrip_abc/video/7593671470006521108)
@@ -785,6 +789,8 @@ permalink: /
     > **251121 便利店打印相纸** ⇨ [𝕏](https://x.com/eprintservice/status/1991672912844321195)
 * **251121【杂志｜双人】《月刊TVガイド》1月号(11/21) 杂志发售**{: .text-red}
     > **251118 封面解禁+简洸登场** ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)
+    > **251206 狐猪other cut3张** ⇨ [𝕏](https://x.com/GEKKAN_TVGUIDE/status/1997159899542004210)
+    > #### 互相都觉得对方是犬系。洸->简:备受宠爱的杜宾犬；简->洸:小吉娃娃(并被洸大吐槽小狗和吉娃娃意义重叠了啦)
 * **251120【修学旅行｜双人】狐猪互发对方单人照为ins首图!&推测修学旅行公式书拍摄日**{: .text-red} ⇨ [𝓲简-Today's Hioki](https://www.instagram.com/p/DRRw99mgQu_/)｜[𝓲洸-Today's Watarai❤️](https://www.instagram.com/p/DRRwnz6gQYQ/)
     > #### 好甜蜜……甜到不能呼吸……快拍里还各自发了新图!
 * **251119/251120/251122【修学旅行】官方Tiktok小视频**{: .text-other} 三天王的恋风 ⇨ [TT守崎](https://www.tiktok.com/@schooltrip_abc/video/7574358468056911124)/[ins](https://www.instagram.com/p/DRO3TVVk3yq/)｜[TT仲里](https://www.tiktok.com/@schooltrip_abc/video/7574729744701345045)/[ins](https://www.instagram.com/p/DRRcKWrk7lV/)｜[TT堀田](https://www.tiktok.com/@schooltrip_abc/video/7575357201049570580)/[ins](https://www.instagram.com/p/DRVy5hkk2g9/)｜[TT堀田美颜小视频](https://www.tiktok.com/@schooltrip_abc/video/7575099148483988757)/[ins](https://www.instagram.com/p/DRUAgijE3yl/)
@@ -918,6 +924,8 @@ permalink: /
     > #### 真的是修仲含量拉满的一个生日呢，修仲粉也感到非常幸福……不知道大家送了什么礼物呢🤔
 * **251023【修学旅行】渡会角色宣传视频 by小简** ⇨ [𝕏](https://x.com/TVer_official/status/1981014240812269931)
 * **251023【杂志｜双人】《月刊TVnavi》12月号(10/23) 杂志发售**{: .text-red} ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)
+    > **251106 采访预览** ⇨ [开头三分之一](https://tvnavi.info/2025110604p/)
+    > #### 老生常谈的捏他们。比较新鲜的是古着店约会是临时约的。小简在摄影休息日早起，联络了洸大后正好洸大打算去古着店，就邀请了小简“要不要一起？”；对之后的拍摄有什么期待的部分小简回答日置的女装，洸大说自己不抵抗女装，但是工作人员说会把自己打扮得特别可爱，其实自己想走优雅美女路线。（笑死）
 * **251021【修学旅行】官方Tiktok发第1话切片+官方吐槽小视频** <span>有点太好笑了这个官方吐槽:お約束♡</span>{: .text-pink} ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7563632763279133973)/[ins](https://www.instagram.com/p/DQEbg9ck4Qw/)
 * **251020【修学旅行｜原作】《修学旅行で仲良くないグループに入りました》第2卷小说发售**{: .text-red} ⇨ [𝕏](https://x.com/BeLuckbunko/status/1980080473570517290)｜[𝕏小说画手510老师贺图](https://x.com/BeLuckbunko/status/1980206278560641095)
     > **251006 发售决定** 10/20发售；有狐猪的书腰！ ⇨ [𝕏书腰公开](https://x.com/BeLuckbunko/status/1975048558568214648)｜[特典一览](https://novema.jp/article/starts/beluck/202510/1441) <span>有很好看的纸片人渡日特典图！</span>{: .text-pink}
@@ -955,8 +963,9 @@ permalink: /
 * **251017【修学旅行】播放直前小说封面插图作者510老师贺图** ⇨ [𝕏](https://x.com/BeLuckbunko/status/1979155472826483155)
 * **251017【采访｜双人】Novema双人网络采访** ⇨ [藤本洸大さん×簡秀吉さんインタビュー](https://novema.jp/article/beluck/shunaka/drama/interview)｜[𝕏](https://x.com/novema_edit/status/1979039459896107230)
 * **251016【杂志｜双人】《TVガイドdan》vol.57(10/16) 杂志发售**{: .text-red} ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)
-    > **250922 情报解禁** #藤本洸大×#簡秀吉 ⇨ [𝕏(纯文字)](https://x.com/TVguidePERSON/status/1969960029249032400)
-    > **250929 特典生写解禁** 7net特典生写真3张随机1张 ⇨ [𝕏](https://x.com/TVguidePERSON/status/1972617542553530581)
+    > **250922 情报解禁** ⇨ [𝕏(纯文字)](https://x.com/TVguidePERSON/status/1969960029249032400)
+    > **250929 特典生写解禁** 7net特典生写真三随一 ⇨ [𝕏](https://x.com/TVguidePERSON/status/1972617542553530581)
+    > **251015 标题图透** ⇨ [𝕏](https://x.com/TVguidePERSON/status/1978383828000309541)
     > **251017 拍摄花絮**{: .text-red} ⇨ [🆈【TVガイドdan vol.57】藤本洸大×簡秀吉メイキング動画](https://www.youtube.com/watch?v=CJcderU4kLE)
     > #### 这个花絮里的洸大也太娇了吧……简秀吉摸猪🈶 靠得那么近拍照是要我的命吗！因为太有性张力甚至想冲上去拉开他俩!（不是）
 * **251016【杂志｜双人】《別冊+act.》42号(10/16) 杂志发售**{: .text-red}

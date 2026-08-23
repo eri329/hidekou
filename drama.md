@@ -4,6 +4,8 @@ layout: page
 permalink: /drama/
 ---
 
+* [正片](#self) / [制作组](#staff) / [Reaction & Repo](#re) / [周边](#goods) / [音乐](#music) / [销量&数据](#stats) / [排行&获奖](#rank) / [公式书](#book)
+
 <div class="drama-quote"  markdown='1'>
 
 ## ドラマ『修学旅行で仲良くないグループに入りました』
@@ -31,6 +33,7 @@ permalink: /drama/
 <div class="sublist" markdown="1">
 
 ## 修学旅行正片
+{: #self}
 * **正片播放平台** [FOD](https://fod.fujitv.co.jp/title/10dk/)｜[GagaOOLala](https://www.gagaoolala.com/en/videos/5925/school-trip-joined-a-group-im-not-close-to-2025-e01)｜[TVer(播放期间)](https://tver.jp/series/sr1es6void)｜[Ameba(播放期间)](https://abema.tv/video/title/871-627)
 * **播出时间/标题**
     > 251018 25:00~ 第1话「平凡な高校生、一軍男子に捕まる」
@@ -49,6 +52,7 @@ permalink: /drama/
     > 1:
 
 ## 修学旅行制作组
+{: #staff}
 * **导演**
     > 1, 7, 8, 10话: 進藤丈広 [X](https://x.com/shindo59512)/[Ins](https://www.instagram.com/takehiro_shindo/)
         >  《コスメティック・プレイラバー》《PUNKS△TRIANGLE》《しもべの王子様》
@@ -89,10 +93,12 @@ permalink: /drama/
     > 藤本洸大(2005/10/6, 19->20), 简秀吉(2002/10/23, 22->23), 桜木雅哉(2006/3/19, 19), 福田歩汰(2003/3/30, 22), 清水海李(1999/7/17, 26)
 
 ## 修学旅行 Reaction & Repo
+{: #re}
 * [【Repo】]({{ site.baseurl }}/drama_repo/)
 * [Reaction]()
 
 ## 修学旅行周边
+{: #goods}
 * [漫画展周边](https://x.com/manga10_torico/status/2054125880772018276)
 * [朝日store](https://shop.asahi.co.jp/category/ABC_SCHOOLTRIP/)
 
@@ -117,6 +123,7 @@ permalink: /drama/
 > 5 困らせたよな
 
 ## 修学旅行销量&数据
+{: #stats}
 * **260508 蓝光box**: 初动6101，次周累计6400，累计6563(至2026/6/15); 2025年日腐box销量2位, Oricon2026上半年日剧box销量3位 ⇨ [豆瓣box销量帖](https://www.douban.com/group/topic/337712004/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **260227 公式书**: 初动7639，次周7896，两周累计15535 ⇨ [豆瓣公式书销量帖](https://www.douban.com/group/topic/472547058/?_spm_id=NjE5ODI3NzA&dt_dapp=1)
 * **TVer收藏数** 最高28.3万收藏
@@ -158,6 +165,7 @@ permalink: /drama/
 > **官号(抖音):** <span>0(25/9/22)</span>{: .text-blue}→14.3万(26/1/5)→15.1万(1/18)→16万(2/20)→16.2万(3/20)→<span>[第二季宣布]</span>{: .text-red}→<span>15.7万(8/11)</span>{: .text-blue}→16.27万(8/21)
 
 ## 修学旅行榜单排行&受赏
+{: #rank}
 * 260824 Oricon电视剧Box周榜16位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-08-24/p/2/)
 * 260810 Oricon电视剧Box周榜8位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-08-10/) 竟然又冲上来了(据说卖了68)
 * 260714 TVguide Web 2025.7～2026.7期间BL投票 修仲6位 => [!X](https://x.com/tvg_research/status/2076939875178500198)
@@ -214,5 +222,8 @@ permalink: /drama/
 * 251016～251023 第1回 GagaOOLala BL周榜1位 (豆瓣)
 * 251001～251031 FOD Premium月榜8位 ⇨ [𝕏](https://x.com/fujitvplus/status/1985676600218959924)
 * 251010 DXTEEN「両片想い」获得日本唱片协会2025年9月金曲认证(10万枚) ⇨ [𝕏](https://x.com/riaj_prinfo/status/1976454125216010424)
+
+## 修学旅行公式书
+{: #book}
 
 </div>

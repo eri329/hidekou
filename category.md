@@ -137,7 +137,7 @@ permalink: /category/
 * **251020 Seventeen采访(web)** 应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)
 * **251018 TVguide Web采访(web)** 应募拍立得｜全用的截图 ⇨ [「修学旅行で仲良くないグループに入りました」藤本洸大＆簡秀吉が“青春”な撮影裏話を告白](https://www.tvguide.or.jp/feature/feature-4071895/)
 * **251017 Novema采访(web)** ⇨ [藤本洸大さん×簡秀吉さんインタビュー](https://novema.jp/article/beluck/shunaka/drama/interview)
-* **251016 TVガイドdan vol.57** ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/1978657598208688148)
+* **251016 TVガイドdan vol.57** ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/2005929918417260753)
 * **251016 別冊+act. 42号** 修仲校服｜黑白｜6p ⇨ [📕内页(不要盗图)](http://xhslink.com/o/3R1Gh8jhBim)
 
 </div>
@@ -150,6 +150,7 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261211【書籍】写真集「简秀吉1st Photobook」**
 * **261005 S Cawaii! ME 2026 AUTUMN（封底）**{: .text-red}
 * **260911 CYAN MAN 10月号 特別版（封面封底）**{: .text-red}
 * **260824 BLAZE 8月号** 中杂特刊
@@ -180,6 +181,7 @@ permalink: /category/
 * **260330 GIANNA BOYFRIEND #11（BACK COVER）**{: .text-red}
 * **260324 Lemon凝眸 3月号（表紙）**{: .text-red}
 * **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-separate}风衣小简 ⇨ [𝕏封面(简)](https://x.com/CYANMANMAGAZINE/status/2023306422604476833)
+* **260227【書籍】「修学旅行で仲良くないグループに入りました　ドラマ公式ビジュアルブック」**{: .text-red}
 * **260130 Men’s PREPPY 3月号** Special Interview｜黑粗呢西装｜4p ⇨ [𝕏封面](https://x.com/MensPREPPY/status/2012004381089284252)｜[📕内页(陈二娜)](http://xhslink.com/o/6BO0dNwDeYK)｜[联动采访](https://preppyweb.com/article/13642)
 * **260127 awesome! Plus Vol.45** 簡秀吉×Kyleスペシャル対談｜条纹白西装 ⇨ [𝕏封面](https://x.com/BP25th_awesome/status/2014947061503029580)
 
@@ -199,20 +201,26 @@ permalink: /category/
 * **251015 月刊わんこ vol.23（BACK COVER）** ⇨ [𝕏封底](https://x.com/kan_hideyoshi/status/1975865522408632474)｜[𝕏封面](https://x.com/eiga_natalie/status/1975863785341768017)
 * **251008 TVstation22号** セルフィー ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)
 * **250922 JUNON 11月号** 全网找不到相关资料，怀疑官网写错了 ⇨ [封面目录](https://www.junon-tv.jp/articles/3941)
-* **241030 書籍「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）**  ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)
+* **241109【書籍】「簡秀吉2025年カレンダー」**
+* **241030【書籍】「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）**  ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)
 * **241029 GIANNA BOYFRIEND #06**
 * **240401 宇宙船 vol.184** *特摄杂志*{: .text-small}
+* **240124 月刊TVガイド 3月号** *簡秀吉×西山潤*{: .text-small} ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1750098092312105313)
 * **231228 宇宙船 vol.183** *特摄杂志*{: .text-small}
-* **230421 TVガイドdan vol.47**  *极狐*{: .text-small}
+* **231218【書籍】「簡秀吉2024カレンダー 2024.04-2025.03」**
+* **230421 TVガイドdan vol.47** *极狐*{: .text-small} ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1740617530434273627)
+* **230403【書籍】「仮面ライダーギーツ キャラクターブック」** *极狐*{: .text-small}
 * **230301 S Cawaii!MEN特別編集** ニッポンのイケメン
-* **221228 宇宙船 vol.179** *特摄杂志*{: .text-small}
-* **230114 FQKids 2023年冬号**
+* **230831【書籍】简秀吉1st写真集「IKKAN」**
 * **230329 TV LIFE 4/14号**
+* **230328 TVガイドAStars vol.02** ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1639099783993516033)
+* **230114 FQKids 2023年冬号**
+* **221228 宇宙船 vol.179** *特摄杂志*{: .text-small}
 * **221031 別冊カドカワScene 12**
-* **221014 TVガイドdan vol.45**
+* **221014 TVガイドdan vol.45** ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1609016974616694785)
 * **221003 宇宙船 vol.178** *特摄杂志*{: .text-small}
 * **220928 ACTIMAGE Vol.1**
-* **220921 JUNON 11月号** 俳優人生の“ハイライト”始まる。 ⇨ [封面目录](https://www.junon-tv.jp/articles/1149)
+* **220921 JUNON 11月号** 俳優人生の“ハイライト”始まる。⇨ [封面目录](https://www.junon-tv.jp/articles/1149)
 * **220909 アニメージュ 10月号**
 * **220909 宝島社MonoMax 10月号**
 * **220824 月刊TVガイド 10月号**
@@ -227,6 +235,7 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261006【書籍】写真集「藤本洸大ファースト写真集 ジンジャーハイ」**
 * **261005 S Cawaii! ME 2026 AUTUMN（封底）**{: .text-red}
 * **261001 Preppy 11月号（封面）** 20p
 * **260911 CYAN MAN 10月号 特別版（封面封底）**{: .text-red}
@@ -267,6 +276,7 @@ permalink: /category/
 * **260317 S Cawaii! 5月号** ⇨ [𝕏封面](https://x.com/mag_scawaii/status/2033732826391318891)
 * **260309 FINEBOYS 4月号** これからの男子メイク｜格子衬衫毛毛外套｜2p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2029157408627429421)｜[📕内页(摸鱼)](http://xhslink.com/o/4HP109KOd2)
 * **260228 Men's Preppy 4月号** 6p ⇨ [𝕏封面](https://x.com/MensPREPPY/status/1758325338055331891)
+* **260227 書籍「修学旅行で仲良くないグループに入りました　ドラマ公式ビジュアルブック」**{: .text-red}
 * **260220 JUNON4月5月合併号** 藤本洸大 × あざと顔｜粉毛衣甜甜圈｜4p ⇨ [封面目录](https://www.junon-tv.jp/articles/4215)｜[📕内页(摸鱼)](http://xhslink.com/o/4Wu9B5bwr3B)
 * **260216 TRENDiCON No.14（表紙）** ⇨ [𝕏封面](https://x.com/trendicon_info/status/2023321459142058133)
 * **260216 RETRO2月号（表紙）** ⇨ 

@@ -23,7 +23,7 @@ layout: page
 
 #### 建设中...
 
-*目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins story/转发，小简微博，modelpress报道, FC, manager日记, 导演、幕后剧组人员账号*{: .text-small}
+*目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins story/转发，小简微博，modelpress报道, FC, manager日记*{: .text-small}
 
 <!-- abc-magazine https://abc-magazine.asahi.co.jp/?s=%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C
 tvguideweb https://www.tvguide.or.jp/news/news-4065417/
@@ -41,15 +41,8 @@ https://x.com/oricon/status/1982015558515392793
 <!-- 1～9话推特投票最喜欢的场景** 文化祭最后的天台场景 => [!X](https://x.com/BeLuckbunko/status/2000863152951714215) -->
 <!-- 第8话台词投票 https://x.com/BeLuckbunko/status/1998323884555178275 -->
 
-<!-- 11-21 TVguide 1月号
-251206 TVguide 1月号 other cut https://x.com/GEKKAN_TVGUIDE/status/1997159899542004210 -->
-
 <!-- https://fan.books.rakuten.co.jp/articles/7871
 https://fan.books.rakuten.co.jp/articles/8545 -->
-
-<!-- 找到这个出处！！！https://x.com/DONGGEUL_DEGUL/status/2076132023287284031 -->
-
-<!-- 251106 双人采访 https://tvnavi.info/2025110604p/ -->
 
 <!-- TODO: https://www.instagram.com/dramal_abc/reposts/;简秀吉ins;洸大ins 基本上就完成大头了!!!接下来的一些计划:修仲图全记录计划 -->
 
@@ -67,8 +60,6 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 别忘了这里的物料: https://sp.tcland.jp/contents/special -->
 
-<!-- 准备开一个修学旅行TMI专栏：收录导演密话，录音师密话，拍摄小趣事，狐猪直播/采访时提到的各种趣事，然后把具体笔记内容从时间线移除；DXTEEN小视频专门拿出来 -->
-
 <!-- 直播中字 -->
 
 <!-- VIVI在国内平台发的东西，小简小红书 -->
@@ -83,7 +74,9 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!--  -->
 
-[ 2026-08-19 ~ ] 常规更新WIP；之后会给每个杂志加一个特典摘要，优先第二季杂志，往期的慢慢补。
+[ 2026-08-22 ] 杂志号查漏补缺: STORY ins@story_love40, 月刊TVguide@GEKKAN_TVGUIDE
+
+[ 2026-08-19 ~ 2026-08-22 ] 常规更新至8/22；之后会给每个杂志加一个特典摘要，优先第二季杂志，往期的慢慢补。
 
 [ 2026-08-19] 补完OST作者铃木SNS
 
