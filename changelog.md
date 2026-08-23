@@ -74,7 +74,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!--  -->
 
-[ 2026-08-22 ] 杂志号查漏补缺: STORY ins@story_love40, 月刊TVguide@GEKKAN_TVGUIDE
+[ 2026-08-22 ] 杂志号查漏补缺: STORY ins@story_love40, 月刊TVguide@GEKKAN_TVGUIDE, TVgiude dan@TVguidePERSON
 
 [ 2026-08-19 ~ 2026-08-22 ] 常规更新至8/22；之后会给每个杂志加一个特典摘要，优先第二季杂志，往期的慢慢补。
 
