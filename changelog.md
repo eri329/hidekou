@@ -7,21 +7,24 @@ layout: page
 * 没找到推しに出会えるABC 修仲VTR原档(有b站中字档)
 
 #### 资讯来源(站长自用)
-* 修仲官方X，修仲官方ins，简秀吉X，简秀吉ins，MR8官网, 藤本洸大ins，TC(schedule-刊载情报,出演情报)
+* 修仲官方X，修仲官方ins，修仲官方Tiktok, 简秀吉X，简秀吉ins，MR8官网, 藤本洸大ins，TC-schedule
     > 搜索X语句 `from:dramal_abc since:2025-10-18 until:2025-10-19` + 切换到Latest tab
     > 搜索DXTEEN X `from:official_DXTEEN 修学旅行 since:2025-07-01 until:2025-12-31`
 * 简秀吉小红书，简秀吉微博
-* 简洸ins其他部分: reels, repost
-* 简洸快拍: story, highlight
+* 秀洸ins其他部分: reels, repost
+* 秀洸快拍: story, highlight
+* 修仲官方ins快拍/转发
 * 各家杂志/电视剧官号
+    > X: [TVlife](https://x.com/tv_life), [TVguide dan](https://x.com/TVguidePERSON), [月刊TVガイド](https://x.com/GEKKAN_TVGUIDE), [TVnavi](https://x.com/TVnavi_PR), [Gianna BF](https://x.com/GIANNABOYFRIEND), [Cyanman](https://x.com/CYANMANMAGAZINE), [JUNON](https://x.com/JUNON_jp), [Preppy](https://x.com/preppy_magazine), [SCawaii](https://x.com/mag_scawaii), [SCawaii ME](https://x.com/mag_scawaii_men), [Fineboys](https://x.com/FINEBOYS_JP), [Fineboys-hinode](https://x.com/hinode_pub), [Men's Preppy](https://x.com/MensPREPPY), [andBoy](https://x.com/andBOY_jp), [awesome](https://x.com/BP25th_awesome), [duet](https://x.com/duet_home), [cinema square](https://x.com/CINEMASQUARE)
+    > Ins: [*TVlife](https://www.instagram.com/tv_life_official/), [TVguide dan](https://www.instagram.com/tvgperson/), [月刊TVガイド](https://www.instagram.com/gekkan_tvguide/), [Gianna BF](https://www.instagram.com/gianna_boyfriend/), [Cyanman](https://www.instagram.com/cyanmanmagazine/), [JUNON](https://www.instagram.com/junon_jp/), [Preppy](https://www.instagram.com/preppymagazine_official/), [SCawaii](https://www.instagram.com/scawaii.magazine/), [SCawaii ME](https://www.instagram.com/mag_scawaii_me/), [Fineboys](https://www.instagram.com/fineboys_jp/), [fineboys-hinode](https://www.instagram.com/hinode_publishing/), [Men's Preppy](https://www.instagram.com/mens.preppy/), [andBoy](https://www.instagram.com/andboy_jp/), [awesome](https://www.instagram.com/awesomemagazine_2010/)
+    > TV LIFE全年份目录: [首都圈版](https://www.fujisan.co.jp/product/1747/b/list/)/[关西版](https://www.fujisan.co.jp/product/1746/b/list/)
 * 工作人员账号(化妆摄影师etc)
-* 修仲官方Tiktok, 修仲官方ins快拍/转发
-* 简秀吉FC，洸大FC(日记&经纪人日记)
 * 相关人员账号(其他演员/导演/DXTEEN)
+* 简秀吉FC，洸大FC(日记&经纪人日记)
 * 豆瓣日腐小组追剧楼
-* 小红书资讯博主
+* 其他博主
 
-#### 建设中...
+#### 更新记录
 
 *目前时间线暂时没有整理的部分包括: 简洸ins的story/highlight/转发, 官方ins story/转发，小简微博，modelpress报道, FC, manager日记*{: .text-small}
 
@@ -46,7 +49,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- TODO: https://www.instagram.com/dramal_abc/reposts/;简秀吉ins;洸大ins 基本上就完成大头了!!!接下来的一些计划:修仲图全记录计划 -->
 
-<!-- TODO next: 查漏补缺：WIKI/ins其他版块/进藤导演转发ins/杂志官号/亲妈X/ins@topcoat_staff -->
+<!-- TODO next: 查漏补缺：WIKI/ins其他版块/进藤导演转发ins/亲妈X/ins@topcoat_staff -->
 
 <!-- 博主:https://weibo.com/u/2277992341?tabtype=feed -->
 
@@ -68,17 +71,17 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 公式书：https://x.com/search?q=from%3Akadokawa_ls%20%E4%BF%AE%E5%AD%A6%E6%97%85%E8%A1%8C&src=typed_query -->
 
-<!-- NEXT: 杂志官号；亲妈推；编辑部推； -->
+<!-- NEXT: 亲妈推；编辑部推； -->
 
 <!-- 修仲 排名补充 https://x.com/houkon_jp/status/2015598699813212248 -->
 
-<!--  -->
+<!-- 下载高清：https://www.youtube.com/watch?v=zu2hytbg_qA，https://www.youtube.com/watch?v=KDjeadX4BzM, https://www.youtube.com/watch?v=kI0B9i80wHI, https://www.youtube.com/watch?v=zbT0FF8kmEk(没找到日期)，https://www.youtube.com/watch?v=wTkctQ9a7po，  -->
 
-[ 2026-08-22 ] 杂志号查漏补缺: STORY ins@story_love40, 月刊TVguide@GEKKAN_TVGUIDE, TVgiude dan@TVguidePERSON
+[ 2026-08-22 ~ ] **杂志号X查漏补缺**: STORY@story_web, 月刊TVguide, TVgiude dan, TVnavi, TVlife, SCawaii, Gianna, Duet, Fineboys@hinode_pub, JUNON, CYANMAN, Preppy; **杂志号ins查漏补缺**: STORY ins@story_love40, TVdan, SCawaii, Gianna, 月刊TVguide
 
-[ 2026-08-19 ~ 2026-08-22 ] 常规更新至8/22；之后会给每个杂志加一个特典摘要，优先第二季杂志，往期的慢慢补。
+<!-- TODO：JUNON；men's preppy both；Preppy；cyan; fineboys;awesome -->
 
-[ 2026-08-19] 补完OST作者铃木SNS
+[ 2026-08-19 ~ 2026-08-22 ] 补完OST作者铃木SNS；常规更新至8/22
 
 [ 2026-08-18] 补完长谷川导演SNS、安见导演SNS、柴田录音师SNS
 

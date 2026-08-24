@@ -131,7 +131,7 @@ permalink: /category/
 * **251117 Duet LUXE vol.4** ⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)
 * **251104 CINEMA SQUARE vol.156** 秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)
 * **251031 GIANNA PLUS 06（双人封面封底）** Threads of Connection｜白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271) <span>狐猪个人/双人均首次登上杂志封面</span>{: .text-red}
-* **251030 S Cawaii!特別編集　Pair 尊い二人。** 関西弁の二人の自然な会話。｜格子衬衫/套头衫｜7p ⇨ [𝕏封面](https://x.com/mag_scawaii/status/1978400528234389517)｜[📕内页(雨夜)](http://xhslink.com/o/50XpcAIDbSO)
+* **251030 S Cawaii!特別編集　Pair 尊い二人。** 関西弁の二人の自然な会話。｜格子衬衫/套头衫｜7p ⇨ [𝕏封面](https://x.com/mag_scawaii/status/1983730582115832181)｜[📕内页(雨夜)](http://xhslink.com/o/50XpcAIDbSO)
 * **251025 Emo!miu采访（web）** 应募拍立得｜修仲校服｜21p ⇨[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)
 * **251023 月刊 TV navi 12月号** 修仲校服｜2p ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)｜[📕内页(雨夜)](http://xhslink.com/o/4TTPsTEDoYE)
 * **251020 Seventeen采访(web)** 应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)
@@ -155,11 +155,11 @@ permalink: /category/
 * **260911 CYAN MAN 10月号 特別版（封面封底）**{: .text-red}
 * **260824 BLAZE 8月号** 中杂特刊
 * **260826 PERCE NEIGE**「おちたらおわり」剧宣｜8p ⇨ 
-* **260824 月刊TVガイド 10月号**「おちたらおわり」剧宣 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2087835966308549097)
+* **260824 月刊TVガイド 10月号**「おちたらおわり」剧宣 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2091732199590519050)
 * **260821 CanCam 10月号** 恋する“白っぽ、ワントー｜生見愛瑠×簡秀吉｜5p ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)｜[📕内页(kimlin)](http://xhslink.com/o/5ljVcjG6yQD)
 * **260820 TVガイドdan vol.61**{: .text-red}
 * **260812 Emo!miu采访(web)** ⇨ [簡秀吉×清水海李インタビュー](https://emomiu.jp/news/270288/)
-* **260803 TV LIFE首都圏版 8/21号**「おちたらおわり」剧宣｜Time to Talk｜闪片毛衣｜4p ⇨ [📕内页(偏差值)](http://xhslink.com/o/1X4BAT8Uggl)
+* **260803 TV LIFE 8/21号**「おちたらおわり」剧宣｜Time to Talk｜闪片毛衣｜4p ⇨ [𝕏封面目录](https://x.com/tv_life/status/2084113657953415358)｜[📕内页(偏差值)](http://xhslink.com/o/1X4BAT8Uggl)
 * **260731 PREPPY 9月号** 連載 簡秀吉の「MY 4CUT」vol.2 ⇨ [封面目录](https://heritage-onlineshop.com/products/preppy-202609-1)｜[联动采访](https://preppyweb.com/article/33370)
 * **260722 TV guide采访(web)** 「おちたらおわり」剧宣 ⇨ [簡秀吉×清水海李【前編】](https://www.tvguide.or.jp/feature/feature-5053177/)｜[簡秀吉×清水海李【後編】](https://www.tvguide.or.jp/feature/feature-5053319/)
 * **260722 推し楽采访(web)**「おちたらおわり」剧宣 ⇨ [清水海李＆簡秀吉、裏話と互いの素顔](https://fan.books.rakuten.co.jp/articles/9237)
@@ -202,28 +202,34 @@ permalink: /category/
 * **251008 TVstation22号** セルフィー ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)
 * **250922 JUNON 11月号** 全网找不到相关资料，怀疑官网写错了 ⇨ [封面目录](https://www.junon-tv.jp/articles/3941)
 * **241109【書籍】「簡秀吉2025年カレンダー」**
-* **241030【書籍】「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）**  ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)
-* **241029 GIANNA BOYFRIEND #06**
+* **241030【書籍】「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）** ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)
+* **241029 GIANNA BOYFRIEND #06** ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1851100428928475645)｜[拍摄花絮](https://www.instagram.com/p/DBr3sQvq6Ww/)
 * **240401 宇宙船 vol.184** *特摄杂志*{: .text-small}
-* **240124 月刊TVガイド 3月号** *簡秀吉×西山潤*{: .text-small} ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1750098092312105313)
+* **240124 月刊TVガイド 3月号** w/西山潤 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1750098092312105313)
+* **240117 TV LIFE 2/2号** 今旬コレクション ⇨ [𝕏封面目录](https://x.com/tv_life/status/1747451573239005600)｜[联动采访+7s挑战](https://www.tvlife.jp/pickup/661667)
 * **231228 宇宙船 vol.183** *特摄杂志*{: .text-small}
+* **231213 TV LIFE 12/29号** *极狐*{: .text-small} w/本島純政 ⇨ [𝕏封面目录](https://x.com/tv_life/status/1734679689879605280)
 * **231218【書籍】「簡秀吉2024カレンダー 2024.04-2025.03」**
+* **230719 TV LIFE 8/4号** *极狐*{: .text-small} w/崎山つばさ ⇨ [𝕏封面](https://x.com/tv_life/status/1679794480692736000)
 * **230421 TVガイドdan vol.47** *极狐*{: .text-small} ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1740617530434273627)
 * **230403【書籍】「仮面ライダーギーツ キャラクターブック」** *极狐*{: .text-small}
-* **230301 S Cawaii!MEN特別編集** ニッポンのイケメン
+* **230301 S Cawaii!特別編集 ニッポンのイケメン** ⇨ [封面&介绍](https://prtimes.jp/main/html/rd/p/000001038.000007785.html)
 * **230831【書籍】简秀吉1st写真集「IKKAN」**
-* **230329 TV LIFE 4/14号**
-* **230328 TVガイドAStars vol.02** ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1639099783993516033)
+* **230524 TV LIFE 6/9号** *极狐*{: .text-small} ⇨ [封面目录](https://www.fujisan.co.jp/product/1747/b/2393123/)
+* **230329 TV LIFE 4/14号** *极狐*{: .text-small} w/杢代和人 ⇨ [封面目录](https://www.tvlife.jp/latest/557655)
+* **230328 TVガイドAStars vol.02** *极狐*{: .text-small} ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1639099783993516033)｜[𝕏图透](https://x.com/TVguidePERSON/status/1641000958812635137)
+* **230117 TV LIFE Premium Vol.33 3/2号** w/前田拳太郎 ⇨ [封面目录](https://one-publishing.co.jp/books/tv-life-premium-vol-33/)
 * **230114 FQKids 2023年冬号**
 * **221228 宇宙船 vol.179** *特摄杂志*{: .text-small}
+* **221207 TV LIFE 12/23号** w/前田拳太郎 ⇨ [封面目录](https://www.tvlife.jp/latest/524169)
 * **221031 別冊カドカワScene 12**
-* **221014 TVガイドdan vol.45** ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1609016974616694785)
+* **221014 TVガイドdan vol.45** ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/1609016974616694785)｜[𝕏图透](https://x.com/TVguidePERSON/status/1580499349057851392)
 * **221003 宇宙船 vol.178** *特摄杂志*{: .text-small}
 * **220928 ACTIMAGE Vol.1**
 * **220921 JUNON 11月号** 俳優人生の“ハイライト”始まる。⇨ [封面目录](https://www.junon-tv.jp/articles/1149)
 * **220909 アニメージュ 10月号**
 * **220909 宝島社MonoMax 10月号**
-* **220824 月刊TVガイド 10月号**
+* **220824 月刊TVガイド 10月号 別冊付録** w/佐藤瑠雅, 杢代和人 ⇨ [封面目录](https://www.amazon.co.jp/%E6%9C%88%E5%88%8ATV%E3%82%AC%E3%82%A4%E3%83%89%E9%96%A2%E6%9D%B1%E7%89%88-2022%E5%B9%B410%E6%9C%88%E5%8F%B7/dp/B0B8BPKHVH)
 
 </div>
 
@@ -245,14 +251,14 @@ permalink: /category/
 * **260723 ViVi 9月号** PICK UPイケメン｜0.5p ⇨ [𝕏封面](https://x.com/vivi_magazine/status/2077180231019114802)｜[📕内页(喵)](http://xhslink.com/o/70h4n1PzgRs)
 * **260710 Emo!miu采访(web)** 17p ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)
 * **260709 JJ(web)** ⇨ [【藤本洸大】ドラマ「クロスロード ～救命救急の約束～」出演記念インタビュー！「自分の中に眠っていた熱を思い出させてもらった作品です」](https://jj-jj.net/lifestyle/182409/)｜[【藤本洸大】「とにかく満足しない俳優になっていきたい」今最注目！実力派若手俳優の素顔に迫る](https://jj-jj.net/lifestyle/182410/)
-* **260709 FINEBOYS 8月号** 藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2074093505064956099)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)
+* **260709 FINEBOYS 8月号** 藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2075004504345579751)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)
 * **260708 TVガイドWeb(web) 後編** ⇨ [藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/)
 * **260707 Astage(web)** ⇨ [藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)
 * **260707 andBOY vol.6**{: .text-separate} 2人で楽しむ毎日ビューティ♡｜短发黄蓝衬衫毛衣｜5p ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕内页(bala)](http://xhslink.com/o/7pQxWl8CzpH)
 * **260705 MantanWeb(web)** ⇨ [藤本洸大：今田美桜主演「クロスロード ～救命救急の約束～」第1話で“火をつける”？“ジュノンボーイ”が「新しい自分」に出会った瞬間](https://mantan-web.jp/article/20260627dog00m200017000a.html)
 * **260703 TVガイドWeb(web) 前編** ⇨ [「クロスロード」で挑んだ新たなステージ 藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)
 * **260630 FINEBOYS+plus FACE**{: .text-separate} ⇨ 
-* **260624 TV LIFE 13号** Time to Talk ⇨ [封面目录](https://www.tvlife.jp/latest/793045)｜[📕内页(bala)](http://xhslink.com/o/1gXRgRW1yyg)
+* **260624 TV LIFE 7/10号** Time to Talk ⇨ [封面目录](https://www.tvlife.jp/latest/793045)｜[📕内页(bala)](http://xhslink.com/o/1gXRgRW1yyg)
 * **260622 JUNON 8月号** NEW LOOK｜短发白衬衫｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2067880070925201671)｜[𝕏相卡](https://x.com/eprintservice/status/2068861528162369542)/[𝕏相卡目录](https://x.com/segadayo_nm/status/2068839954575438221)｜[📕中嵌内页(bala)](http://xhslink.com/o/3NDLhKlahYH)
 * **260610 推し楽！(web)** ⇨ [藤本洸大が「クロスロード」で向き合う“決断”――正解のない芝居を模索する日々](https://fan.books.rakuten.co.jp/articles/8014)
 * **260607 Emo!miu（web）**{: .text-red}
@@ -263,7 +269,7 @@ permalink: /category/
 * **260509 FINEBOYS 6月号**{: .text-separate} 今日の現場｜白T｜2p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2050175903460954559)｜[📕内页(偏差值)](http://xhslink.com/o/35YQVLlEHO)
 * **260502 日経エンタテインメント！6月号** 今、求められる俳優とは？｜蓝色T｜2p ⇨ [𝕏封面](https://x.com/nikkei_ent/status/2050379787701751860)｜[📕内页(摸鱼)](http://xhslink.com/o/3TpgNNsRXmY)
 * **260501 PREPPY 6月号（表紙）**{: .text-red}
-* **260428 TV LIFE 9号** #今旬コレクション｜绿格子衬衫+深色毛衣｜1p⇨ [𝕏封面](https://x.com/tv_life/status/2047504917938753643)｜[📕内页(偏差值)](http://xhslink.com/o/AO6Sy9TA0oN)｜[📕内页中嵌(bala)](http://xhslink.com/o/7wGPQLGg4JJ)｜[联动采访](https://www.tvlife.jp/pickup/788667)
+* **260428 TV LIFE 5/15号** #今旬コレクション｜绿格子衬衫+深色毛衣｜1p⇨ [𝕏封面](https://x.com/tv_life/status/2047504917938753643)｜[📕内页(偏差值)](http://xhslink.com/o/AO6Sy9TA0oN)｜[📕内页中嵌(bala)](http://xhslink.com/o/7wGPQLGg4JJ)｜[联动采访](https://www.tvlife.jp/pickup/788667)
 * **260427 DIGVII 4月号** 靴とミライ STORY2｜黑毛衣｜10p ⇨ [𝕏封面](https://x.com/digvii_magazine/status/2042075024883056749)｜[📕内页(摸鱼)](http://xhslink.com/o/1c8L7LYuRTr)
 * **260422 JUNON 6月号**{: .text-separate} 藤本洸大に、間違いはない？｜大熊娃娃｜3p ⇨ [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[📕内页(摸鱼)](http://xhslink.com/o/5FiRNESrS7o)｜[📕内页中嵌(bala)](http://xhslink.com/o/2hDDNg1rGYv)
 * **260421 NAILON Vol.3（W表紙）** 红白T/全身黑/白衬衫｜16p ⇨ [𝕏封面封底](https://x.com/nailonmagazine/status/2046429214421786730)｜[📕内页(摸鱼)](http://xhslink.com/o/6t9lB6LXDm5)
@@ -307,20 +313,28 @@ permalink: /category/
 * FAST(web)（6月中旬配信）
 
 ---
-* **241011 コミックBe vol.129**
+
 * **241031 awesome! Vol.69**
 * **241028 TVガイドAlpha EPISODE.FFFF VOL.84** <!-- [📕内页(bala)](http://xhslink.com/o/AttYAwibla) -->
 * **241022 JUNON 12月号**
-* **241015 TVガイドdan vol.53** *清新气息*{: .text-small}
-* **241002 TV LIFE**
+* **241015 TVガイドdan vol.53** *清新气息*{: .text-small} ⇨ [🆈making](https://www.youtube.com/watch?v=Ys2HPImpCgE)
+* **241011 コミックBe vol.129**
+* **241002 TV LIFE** 来自官网但找不到相关资料
 * WEBザテレビジョン(web)
 * Astage(web)
 * TVfan Web(web)
 * TVガイド web(web)
 * ちょいミー(動画配信)
-* **240722 JUNON**
+* **240722 JUNON 9月号** 真夏のジュノンボーイ祭 ⇨ [封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2024%E5%B9%B49%E6%9C%88%E5%8F%B7/)
+* **240222 JUNON 4月号** 俳優デビューと、見据える未来。⇨ [封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2024%E5%B9%B44%E6%9C%88%E5%8F%B7/)
+
+---
 * **231205 週刊女性 12/19号** ⇨ 
 * **230722 JUNON 9月号** ただ今自己分析中！⇨ [封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2023%E5%B9%B49%E6%9C%88%E5%8F%B7/)
 * **230105 週刊女性 1/17・24号** 勉強もスポーツもバッチリな完璧男子／第35回ジュノン・スーパーボーイ ⇨ [封面目录](https://www.shufu.co.jp/magazine/jprime/backnumber/%E9%80%B1%E5%88%8A%E5%A5%B3%E6%80%A7-2023%E5%B9%B4-1-24%E5%8F%B7/)
+* **230120 JUNON 3月号** 史上35人目のグランプリは、全人類のど真ん中。⇨ [封面目录](https://www.junon-tv.jp/articles/1529)｜[采访节选](https://www.junon-tv.jp/articles/1589)
+
+---
+* **221118 JUNON TV采访(web)** ⇨ [【藤本洸大】35代ジュノンボーイを徹底分析！お題は何だ！？マル秘サイコロトーク♡](https://www.junon-tv.jp/articles/1308)
 
 </div>
