@@ -283,7 +283,7 @@ permalink: /
     > **260515** [𝕏小简登场介绍](https://x.com/FINEBOYS_JP/status/2055105889401762003)｜[𝕏洸大登场介绍](https://x.com/FINEBOYS_JP/status/2055151185766526989)｜[𝕏双人介绍](https://x.com/FINEBOYS_JP/status/2055196484241437041) 有点茶的官博……都分别上杂志了还在蹭小修学……有没有本事让他们双人一起上来我看看
     > **260529** [𝓲简-世界杯应援](https://www.instagram.com/p/DY64b7-AX4s/)｜[𝓲洸](https://www.instagram.com/p/DZFR2xqlDaS)｜[𝓲-小简宣传视频](https://www.instagram.com/p/DY6WcsGBMFD/)｜[𝓲-洸大宣传视频](https://www.instagram.com/p/DY6rFbHh3TY/)
     > **260623 洸大宣传视频** ⇨ [ins](https://www.instagram.com/reel/DZ7J296BQMT/) 特别烧的宝宝……
-    > **260624 简洸应募拍立得** ⇨ [𝕏-洸大拍立得](https://x.com/FINEBOYS_JP/status/2069691999792308605)｜[𝕏-小简拍立得](https://x.com/FINEBOYS_JP/status/2069692000345972796)
+    > **260624 简洸应募拍立得** ⇨ [𝕏(洸)](https://x.com/FINEBOYS_JP/status/2069691999792308605)｜[𝕏(简)](https://x.com/FINEBOYS_JP/status/2069692000345972796)
     > **260625 小简拍摄花絮** ⇨ [ins](https://www.instagram.com/reel/DaATbkdhFCe/)
     > **260711 小简应募拍立得** ⇨ [ins](https://www.instagram.com/p/DapSXvgEiUh)
     > **260712 洸大应募拍立得** ⇨ [ins](https://www.instagram.com/p/Dar3Oxykp38/)
@@ -291,16 +291,17 @@ permalink: /
     > #### 简洸都在快拍祝贺了日置生日快乐~特别是小简凌晨1点就发了(好有心)，洸大晚上才发2333官方是中午12点发的XD
 * **260512【修学旅行】蓝光box销量初动6101**{: .text-red}
 * **260509【杂志｜简秀吉｜藤本洸大】《FINEBOYS》6月号(5/9) 杂志发售** 简洸分别登场
+    > **260423 小简初登场告知** ⇨ [𝕏(文字)](https://x.com/fineboys_jp/status/2047262744865587387)
     > **260501 封面公开** ⇨ [𝕏](https://x.com/hinode_pub/status/2050175903460954559)/[ins](https://www.instagram.com/p/DXy19O3jTa-/)
     > **260509 杂志发售+小简宣传&宣传视频** 撮影中のヒデヨシくん, 7P ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2052950666172346742)｜[𝓲简(图更多)](https://www.instagram.com/p/DYGjkPigagJ/)｜[𝓲小简宣传视频](https://www.instagram.com/p/DYHLN6Xh2so/)
     > **260511 洸大宣传视频** お気に入りシューズ ⇨ [𝓲-洸大宣传](https://www.instagram.com/p/DYLd3qmBJVF/)
     > **260512 小简拍摄花絮视频1** ⇨ [𝓲简](https://www.instagram.com/reel/DYO9fozhbil/)
     > **260525 小简拍摄花絮视频2** ⇨ [ins](https://www.instagram.com/p/DYvxrJhynqc/) 帅的！！
-    > **260528 小简应募拍立得** ⇨ [ins](https://www.instagram.com/p/DY4bKKTktPM/)
-    > **260603 洸大应募拍立得** ⇨ [ins](https://www.instagram.com/p/DZH5lQOkqvM/)
-    > **260605 小简应募拍立得** 和ins上的版本不一样 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2062851948999573859)
+    > **260528 小简ins应募拍立得** ⇨ [ins](https://www.instagram.com/p/DY4bKKTktPM/)
+    > **260603 洸大ins应募拍立得** ⇨ [ins](https://www.instagram.com/p/DZH5lQOkqvM/)
+    > **260605 秀洸X应募拍立得** 和ins上的不一样 ⇨ [𝕏(简)](https://x.com/FINEBOYS_JP/status/2062851948999573859)｜[𝕏(洸)](https://x.com/FINEBOYS_JP/status/2062851940334411839)
     > **260626 简秀吉图透**「ヒデヨシくん、撮影入りまーす！」 ⇨ [ins](https://www.instagram.com/p/DaCO82zkp1n/)
-    > **260722 小简网络版特辑** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2079853967413272713)｜[fineboys online](https://fineboys-online.jp/fashion/detail.php?id=6194&p=1)
+    > **260722 小简网络版特辑** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2079853967413272713)｜[fineboys online](https://fineboys-online.jp/fashion/detail.php?id=6194)
 * **260508【修学旅行】DXTEEN 両片想い(Acoustic Ver.)发售** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2048356421943926950)｜[🆈Official Audio](https://www.youtube.com/watch?v=NNyvLNoHYfA)
 * **260508【修学旅行｜双人】蓝光box发售**{: .text-red} ⇨ 初动6101
     > [官网](https://www.asahi.co.jp/schooltrip/goods/)｜[𝕏Amazon乐天特典](https://www.instagram.com/p/DScIVk9E3Vz/)｜[𝕏乐天特典](https://x.com/rakutenbooks/status/2003688028259385648)｜[𝕏TC特典](https://x.com/topcoat_staff/status/2003390122872725832)｜[𝕏包装大图](https://x.com/tce_now/status/2052584276881998075/)
@@ -347,8 +348,9 @@ permalink: /
 
 * **260430【修学旅行】ModelPress日腐「相遇名场面」排行榜修仲5位(第7话)**{: .text-other} ⇨ [𝕏](https://x.com/modelpress/status/2049775788631920866)
 * **260422【杂志｜简秀吉｜藤本洸大】《JUNON》6月号(4/22) 杂志发售** 简洸分别登场
-    > [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)｜[详情](https://www.junon-tv.jp/articles/4315)
+    > [详情](https://www.junon-tv.jp/articles/4315)
     > [𝕏洸大拍摄花絮](https://x.com/junon_jp/status/2046795030250336358)/[ins](https://www.instagram.com/reels/DXawg7nTjMC/)｜[𝕏小简拍摄花絮](https://x.com/JUNON_jp/status/2047963826440544267)/[ins](https://www.instagram.com/reels/DXjIB1HTYqr/)
+    > **260420 封面情报解禁** ⇨ [𝕏封面](https://x.com/junon_jp/status/2046136806685708565)/[ins](https://www.instagram.com/p/DXWJLrhE7Dn/)｜[ins目录](https://www.instagram.com/p/DXWJNgtE3T2/)
     > **260422~260520** 洸大便利店相卡 ⇨ [𝕏](https://x.com/eprintservice/status/2046755873972957308)｜[𝕏相卡目录](https://x.com/eriko_mp100/status/2047910501959729161)
     > **260513~260520** 小简便利店相卡 ⇨ [𝕏](https://x.com/eprintservice/status/2054366012796010934)
 * **260420【杂志｜双人】《Retro》双人封面(4/20) 杂志发售**{: .text-red}
@@ -520,17 +522,18 @@ permalink: /
     > **260216 封面解禁+宣传视频**
     > ⇨ [𝕏双封面(简)](https://x.com/CYANMANMAGAZINE/status/2023306422604476833)/[ins](https://www.instagram.com/reel/DUz7qN8k55J/), [𝕏双封面(洸)](https://x.com/CYANMANMAGAZINE/status/2023306428979847311)/[ins](https://www.instagram.com/reel/DUz8UElkxEs/)
     > ⇨ [𝕏宣传视频(简)](https://x.com/CYANMANMAGAZINE/status/2023344761428750541)/[ins](https://www.instagram.com/reel/DU0Cmlck45h/), [𝕏宣传视频(洸)](https://x.com/CYANMANMAGAZINE/status/2023344981830963306)/[ins](https://www.instagram.com/reel/DU0DIdok34o/)
-    > ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2023306544390234237)｜[𝓲简](https://www.instagram.com/p/DUz7EttgYfX/?)
+    > ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2023306544390234237)｜[𝓲简](https://www.instagram.com/p/DUz7EttgYfX/)
+    > **260302 简洸特别版线下活动告知** ⇨ [𝕏](https://x.com/CYANMANMAGAZINE/status/2028410109609832634),[𝕏(简)](https://x.com/CYANMANMAGAZINE/status/2028417549122347396), [𝕏(洸)](https://x.com/CYANMANMAGAZINE/status/2028417763421921652)/[ins](https://www.instagram.com/reel/DVYL-eXEyPN/)
     > **260311** [𝓲简-封面图](https://www.instagram.com/p/DVvQ4x3mijM/?img_index=1), [𝓲洸-封面图](https://www.instagram.com/p/DVvRZ-KmvzA/?img_index=1)
-    > **260302/260312~260314 简洸特别版线下活动** 3/12~3/14@VIANDNYL BOOKS;送迷你特典小卡 ⇨ [𝕏](https://x.com/CYANMANMAGAZINE/status/2028410109609832634),[𝕏(简)](https://x.com/CYANMANMAGAZINE/status/2028417549122347396), [𝕏(洸)](https://x.com/CYANMANMAGAZINE/status/2028417763421921652), [ins](https://www.instagram.com/reel/DVYL-eXEyPN/)
+    > **260312~260314 简洸特别版线下活动** 3/12~3/14@VIANDNYL BOOKS;送迷你特典小卡
     > **260312 杂志发售**
-    > CYAN MAN照片N连发: 洸大: [𝕏1-黄蓝](https://x.com/CYANMANMAGAZINE/status/2031747145708286255), [𝕏2-粉](https://x.com/CYANMANMAGAZINE/status/2031747154801517025), [𝕏3-白](https://x.com/CYANMANMAGAZINE/status/2031747162615472264)｜小简: [𝕏-1](https://x.com/CYANMANMAGAZINE/status/2031747204998943139), [𝕏2](https://x.com/CYANMANMAGAZINE/status/2031747209545584908), [𝕏3](https://x.com/CYANMANMAGAZINE/status/2031747214767542545), [𝕏4](https://x.com/CYANMANMAGAZINE/status/2031747227484627428)
+    > CYAN MAN照片N连发: 洸大: [𝕏1-蓝黄](https://x.com/CYANMANMAGAZINE/status/2031747145708286255), [𝕏2-粉](https://x.com/CYANMANMAGAZINE/status/2031747154801517025), [𝕏3-白](https://x.com/CYANMANMAGAZINE/status/2031747162615472264)｜小简: [𝕏-1](https://x.com/CYANMANMAGAZINE/status/2031747204998943139), [𝕏2](https://x.com/CYANMANMAGAZINE/status/2031747209545584908), [𝕏3](https://x.com/CYANMANMAGAZINE/status/2031747214767542545), [𝕏4](https://x.com/CYANMANMAGAZINE/status/2031747227484627428)
     > [𝕏简](https://x.com/kan_hideyoshi/status/2032038875829584196)|[𝓲简](https://www.instagram.com/p/DVx-HeQgb26/)｜[𝓲洸](https://www.instagram.com/p/DVyITpTFAbX)
-    > **260318~260326 CYAN MAN 小简9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWBR5OfGt3I/?img_index=1)
+    > **260318~260326 CYAN MAN 小简9宫格N连发** ⇨ [1](https://www.instagram.com/p/DWBR5OfGt3I/), [2](https://www.instagram.com/p/DWD2qHjmoNz/), [3](https://www.instagram.com/p/DWGbYKOGllr/), [4](https://www.instagram.com/p/DWLlAurGlvv/), [5](https://www.instagram.com/p/DWOJx58Gj-9/), [6](https://www.instagram.com/p/DWQumVyGjYj/), [7](https://www.instagram.com/p/DWTTZXXGkXw/), [8](https://www.instagram.com/p/DWV4QR1mrRt/), [9](https://www.instagram.com/p/DWYdC1dGqow/)
     > #### 和小简自己发的图有重叠，小简自己发的比较高清hhh
-    > **260318~260325 小简拍摄花絮** ⇨ [𝓲(3/18)](https://www.instagram.com/reel/DWBSY58Tbcs/)｜[𝓲(3/22)](https://www.instagram.com/reel/DWLlpbdT08S/) | [𝓲(3/2(3/25)](https://www.instagram.com/reel/DWV40H8z5t1/)
+    > **260318~260325 小简拍摄花絮** ⇨ [𝓲(3/18)](https://www.instagram.com/reel/DWBSY58Tbcs/)｜[𝓲(3/22)](https://www.instagram.com/reel/DWLlpbdT08S/)|[𝓲(3/24)](https://www.instagram.com/reel/DWQvKWkT1fk/)｜[𝓲(3/25)](https://www.instagram.com/reel/DWV40H8z5t1/)
     > #### 超大一只狐狸犬(什)又帅又可爱>//<
-    > **260327~260404 CYAN MAN 洸大9宫格N连发** 因为太多了所以只链第一帖 ⇨ [ins](https://www.instagram.com/p/DWYdGqoml8T/?img_index=1)
+    > **260327~260404 CYAN MAN 洸大9宫格N连发** ⇨ ins:[1-白](https://www.instagram.com/p/DWYdGqoml8T/), [2-白](https://www.instagram.com/p/DWbB1pvEzzw/), [3-白](https://www.instagram.com/p/DWdmiOIk5wz/), [4-粉](https://www.instagram.com/p/DWgLbiCExZ7/), [5-粉](https://www.instagram.com/p/DWiwKDWkyXB/), [6-粉](https://www.instagram.com/p/DWlU8qFE3r6/), [7-蓝黄](https://www.instagram.com/p/DWn5taTky6w/), [8-蓝黄](https://www.instagram.com/p/DWqeiRbk-kr/), [9-蓝黄](https://www.instagram.com/p/DWtDYrckyLx/)
     > **260328~260402 洸大拍摄花絮** ⇨ [𝓲-白(3/28)](https://www.instagram.com/reel/DWbCY7GTXYa/)｜[𝓲-粉(3/31)](https://www.instagram.com/reel/DWiwulJTDII/) | [𝓲-黄蓝(4/2)](https://www.instagram.com/reel/DWn6XZOTA-M/)
     > #### 被第3条的笑容击倒!!为什么洸大的花絮全是躺倒的hhh他真的随地大小躺☺️
 * **260309【修学旅行】渡会日置立绘展示中** 平日9:00〜18:00, @大阪朝日放送电视台大厅，展示到5月末 ⇨ [𝕏](https://x.com/dramal_abc/status/2030941180524159315)｜[𝕏步汰打卡](https://x.com/official_DXTEEN/status/2037477072315224334)
@@ -784,8 +787,8 @@ permalink: /
     > **PR** ⇨ [𝕏30sPR](https://x.com/dramal_abc/status/1989740178315911585)/[ins](https://www.instagram.com/p/DRFbDRBk_rJ/)｜[𝕏15sPR](https://x.com/dramal_abc/status/1991997550799245321)｜[ins官号宣传TVer](https://www.instagram.com/p/DRXZHvVk2Pf/)
 * **251121【SNS｜藤本洸大】洸大ins头像换成了和小简一起拍的JUNON的图**
 * **251121【杂志｜双人】《JUNON》1月号(11/21) 杂志发售**{: .text-red} 藤本洸大×簡 秀吉 愛とときめき、届きました。
-    > **251118 封面解禁+简洸登场** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)
-    > **251128 拍摄花絮视频** ⇨ [𝕏](https://x.com/JUNON_jp/status/1994239834421121510)/[TT](https://www.tiktok.com/@junon_official/video/7577312893801123090)
+    > **251118 封面解禁+简洸登场** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[ins](https://www.instagram.com/p/DRMLmDCE8N1/)｜[ins目录](https://www.instagram.com/p/DRMLhudE7nw/)｜[封面&目录](https://www.junon-tv.jp/articles/4057)
+    > **251128 拍摄花絮视频** ⇨ [𝕏](https://x.com/JUNON_jp/status/1994239834421121510)/[TT](https://www.tiktok.com/@junon_official/video/7577312893801123090)/[ins](https://www.instagram.com/p/DRlZPnBk97Z/)
     > **251121 便利店打印相纸** ⇨ [𝕏](https://x.com/eprintservice/status/1991672912844321195)
 * **251121【杂志｜双人】《月刊TVガイド》1月号(11/21) 杂志发售**{: .text-red}
     > **251118 封面解禁+简洸登场** ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)

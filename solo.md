@@ -57,7 +57,7 @@ permalink: /solo/
 * **260826《PERCE NEIGE》(8/26) 杂志发售**
     > **260726 情报解禁** ⇨ [𝕏](https://x.com/perceneige_mp/status/2081333721639297136)
     > **260822 图透**{: .text-red} ⇨ [𝕏](https://x.com/perceneige_mp/status/2090986662650433839) 好清爽好帅！
-* **260824《BLAZE》8月号(8/24) 杂志发售** 韩国拍摄
+* **260824《BLAZE》8月号(8/24) 杂志预售** 韩国拍摄
     > **260819 情报解禁/图透预告:红** 红色眼镜小简 ⇨ [𝕏视频](https://x.com/blazeprojectmag/status/2089744747917349306)/[ins](https://www.instagram.com/p/DcL_1THTuWc/)｜[𝕏照片](https://x.com/blazeprojectmag/status/2090030804114227540)/[ins图更大](https://www.instagram.com/p/DcOCBCCE4JD/)
     > **260820/260821 图透预告:蓝/黑** ⇨ [𝕏蓝](https://x.com/blazeprojectmag/status/2090393820127211783)/[ins图更大](https://www.instagram.com/p/DcQm4PyE3Es/)｜[𝕏黑](https://x.com/blazeprojectmag/status/2090756015138754855)/[ins图更大](https://www.instagram.com/p/DcTL9ick0yk/)
     > **260822 登场预告:黑/视频**{: .text-red} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2091118524920173033)/[ins](https://www.instagram.com/p/DcVwjs3TgrV/) 很有变态风味……🤤
@@ -153,7 +153,7 @@ permalink: /solo/
     > **260725 网络特辑** ⇨ [𝕏](https://x.com/SeventeenJP_mag/status/2080971796350631952)｜[直链](https://seventeen-web.jp/lifestyle/l-news/26143/) 图特别多但是BG特辑⚠️
     > **260805 和女模特的offshot** ⇨ [ins](https://www.instagram.com/p/DbpqRlXE3yX/)
     > **260820 杂志网络版** ⇨ [ins](https://www.instagram.com/p/DcQf3_hlEPH/)
-* **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的新连载, 每期一张自拍+3张其他照片
+* **260701《Preppy》8月号(7/1)新连载开启** 簡秀吉の「MY 4CUT」, 持续一年的新连载, 每期一张自拍+3张其他照片 ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2066460713368125449)
     > **260527 新连载情报解禁+宣传视频1** ⇨ [𝕏宣传视频1](https://x.com/preppy_magazine/status/2059575338968178911)
     > 是小简每个月自己拍摄4张照片+留言的栏目，好像web上也会发一些（孩子好忙！
     > **260601 宣传视频2** ⇨ [𝕏宣传视频2](https://x.com/preppy_magazine/status/2061387280754053536)
@@ -194,13 +194,15 @@ permalink: /solo/
 * **260610 JO MALONE LONDON Veggies Collection活动** ⇨ [𝓲简](https://www.instagram.com/p/DZZ17Y4AdBd/) 这个条纹衬衫很好看！
     > **260616 造型师牧野裕大发图** Repost但更高清 ⇨ [ins](https://www.instagram.com/p/DZpLQ_eE1mS/)
 * **260609《FINEBOYS》7月号(6/9)杂志发售**
-    > **260529 情报解禁** ヒデヨシくんをチョコっと。 ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2060214038878175249)
+    > **260529 情报解禁** ヒデヨシくんをチョコっと。 ⇨ [𝕏(文字)](https://x.com/FINEBOYS_JP/status/2060214038878175249)
     > **260609 杂志发售+小简图透** ヒデヨシくんをチョコっと。 ⇨ [𝕏封面](https://x.com/hinode_pub/status/2064132868310462598)｜[𝕏简-图透](https://x.com/kan_hideyoshi/status/2064317847854363087)｜[𝓲简(图多)](https://www.instagram.com/p/DZXRIUBAcAw/)
     > **260612 小简宣传视频** ⇨ [ins](https://www.instagram.com/reel/DZeE9zbhok7/)
     > **260630 巧克力造型拍摄花絮(已删除)** ⇨ [ins](https://www.instagram.com/p/DaNEiush5j-/) 超级帅！*260717* 重新发了 ⇨ [ins](https://www.instagram.com/p/Da4-T6_SV0F/)
     > **260705 巧克力造型拍摄花絮2** ⇨ [ins](https://www.instagram.com/reels/DaZ8eLRhxln/)
-    > **260720 应募拍立得** ⇨ [ins](https://www.instagram.com/p/DbAkYiIEuOl/)
-    > **260721 杂志网络简易版** ⇨ [ins](https://www.instagram.com/p/DbC0kcKEm6H/) 所有造型都发了但内容又比杂志简易
+    > **260720 ins应募拍立得** ⇨ [ins](https://www.instagram.com/p/DbAkYiIEuOl/)
+    > **260721 网络简易版** ⇨ [ins](https://www.instagram.com/p/DbC0kcKEm6H/) 所有造型都发了但内容又比杂志简易
+    > **260723 X应募拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2069329613092954427)
+    > **260729 fineboys online网络版** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2082405779928146372)｜[fineboys online](https://fineboys-online.jp/fashion/detail.php?id=6204)
 * **260607 韩国清溪川照片** ⇨ [𝓲简](https://www.instagram.com/p/DZSBcNNAWbj/)
 
 ---
@@ -290,7 +292,7 @@ permalink: /solo/
     > **260130 杂志发售** ⇨ [𝕏官博](https://x.com/MensPREPPY/status/2017077812331762041)｜[𝕏简](https://x.com/kan_hideyoshi/status/2017191401327571231)｜[𝓲简](https://www.instagram.com/p/DUIeSTuAS9F/) 戴眼镜的小简有｜[联动采访](https://preppyweb.com/article/13642) 生活习惯很自律的小简，最近喜欢高尔夫(只是想打)、买绿植、陶艺、逛家居店，很i一个人
     > **260130 津野造型师发图** 图不大，没有新图 ⇨ [ins](https://www.instagram.com/p/DUI1c7qkW9D/)
     > **260213 特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2022143706569314607)
-    > **其他物料** ⇨ [𝕏(2/9)](https://x.com/MensPREPPY/status/2020694148496634272)｜[𝕏(2/21)](https://x.com/MensPREPPY/status/2025042809640595708)｜[𝕏(3/2)](https://x.com/MensPREPPY/status/2028334487172698393)
+    > **其他物料/宣传小简舞台剧** ⇨ [𝕏(2/9)](https://x.com/MensPREPPY/status/2020694148496634272)｜[𝕏(2/21)](https://x.com/MensPREPPY/status/2025042809640595708)｜[𝕏(3/2)](https://x.com/MensPREPPY/status/2028334487172698393)
 * **260127《awesome! Plus》Vol.45(1/27) 杂志发售** 简秀吉xKyle对谈 [𝕏宣传视频](https://x.com/BP25th_awesome/status/2016063724092850629)｜[𝕏宣传(2/10)](https://x.com/BP25th_awesome/status/2021222626396418126)｜[𝓲简-图透(1/24)](https://www.instagram.com/p/DT5Bv2RgRwQ/) 这本物料少得可怜多谢小简自己发图
 * **260101 新年帖** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2006668755011776684)｜[𝓲简](https://www.instagram.com/p/DS9tGd7gdps/)｜[𝕏(12/31)](https://x.com/kan_hideyoshi/status/2006318151039164425)
 
@@ -657,8 +659,8 @@ permalink: /solo/
 * **260531 skechers鞋子广告** ⇨ [𝓲洸](https://www.instagram.com/p/DZALe5xz88o/)
 * **260528【直播】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DY4p4PgFB0X/)
 * **260521《JUNON》7月号(5/21) 杂志发售**
-    > **260519 登场情报解禁** 这次的主题是和父亲的对谈! ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2056646050358960231)
-    > **260520 拍摄花絮视频** ⇨ [𝕏](https://x.com/JUNON_jp/status/2057023535135043632)
+    > **260519 登场情报解禁** 这次的主题是和父亲的对谈! ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2056646050358960231)/[ins](https://www.instagram.com/p/DYg0OzzGgXB/)｜[目录](https://www.instagram.com/p/DYg0R8hmlcM/)
+    > **260520 拍摄花絮视频** ⇨ [𝕏](https://x.com/JUNON_jp/status/2057023535135043632)/[ins](https://www.instagram.com/p/DYjf77jBGKV/)
     > **260521 杂志发售+便利店相卡** 5/21~6/21 ⇨ [𝕏](https://x.com/eprintservice/status/2057265115892752787)
 * **260508 电影「未来」上映** 布施晃 役 ⇨ [官网](https://mirai-movie.jp/)
     > **260428 试映会** ⇨ [𝕏](https://x.com/RKB_EVENT/status/2041410645808275915)
@@ -741,19 +743,20 @@ permalink: /solo/
     > [𝓲洸-短剧造型自拍](https://www.instagram.com/p/DV8gI-cFGqf/)
 * **260314【直播】21:00~ NATSLIVE「藤本洸大＆桜木雅哉ホワイトデーSP」配信**{: .text-red} ⇨ [𝓲洸-眼镜洸大](https://www.instagram.com/p/DV3eoDJFNjj/)
 * **260314【直播】19:00~ NATSLIVE「藤本洸大ホワイトデーSP」配信**{: .text-red} 初次料理直播！
-* **260314 第39回 JUNON SUPER BOY CONTEST藤本洸大寄语** ⇨ [𝕏](https://x.com/JUNON_jp/status/2032743543177904293)｜[𝕏今昔对比](https://x.com/JUNON_jp/status/2032652939605561641) 变化太大了变美太多了洸大!!｜[𝕏(2/24)简短采访:要是没有应募的话?](https://www.junon-tv.jp/articles/4220)
+* **260314 第39回 JUNON SUPER BOY CONTEST藤本洸大寄语** ⇨ [𝕏](https://x.com/JUNON_jp/status/2032743543177904293)/[ins](https://www.instagram.com/p/DV2-tg9PmZw/)｜[𝕏今昔对比](https://x.com/JUNON_jp/status/2032652939605561641)/[ins](https://www.instagram.com/p/DV2VbXXPZDZ/) 变化太大了变美太多了洸大!!｜[𝕏(2/24)简短采访:要是没有应募的话?](https://www.junon-tv.jp/articles/4220)
 * **260309《FINEBOYS》4月号(3/9) 登场&杂志发售** ⇨ [ins宣传视频(3/10)](https://www.instagram.com/reel/DVs5MzUEd3A/)｜[𝕏封面](https://x.com/hinode_pub/status/2029157408627429421)
     > **260401 特典亲签拍立得** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2038994738989375816)/[ins(3/31)](https://www.instagram.com/p/DWi96cREqWf/)
     > **260403 拍摄后采** ⇨ [ins](https://www.instagram.com/reel/DWqelsChh_S/) 喜欢吃的寿司种类是虾🍤，回到老家会想吃妈妈做的土豆炖肉和蛋包饭。
 * **260302 浅草寺抽签** ⇨ [𝓲洸](https://www.instagram.com/p/DVYaIroFN1G/) 粉粉的nike小包出现了~「浅草寺で吉！✨」
 
 ---
-* **260228《Men's Preppy》4月号(2/28)杂志发售+照片展(2/28~3/1)** ⇨ [𝕏照片展情报(2/28)](https://x.com/MensPREPPY/status/2027575734475047011)｜[𝕏照片展情报(3/1)](https://x.com/MensPREPPY/status/2027881506861895943)｜[𝕏照片展宣传(图)(2/27)](https://x.com/MensPREPPY/status/2027330370614518041)｜[𝕏-heritage特典照(2/26)](https://x.com/MensPREPPY/status/2026854744182964407)
+* **260228《Men's Preppy》4月号(2/28)杂志发售+照片展(2/28~3/1)** ⇨ [𝕏封面](https://x.com/MensPREPPY/status/2025767579894108290)
     > **260128 登场情报解禁+宣传视频1** 6P ⇨ [𝕏](https://x.com/MensPREPPY/status/2016353038248902658)｜[𝕏宣传视频1](https://x.com/MensPREPPY/status/2016451186673467800)
     > **260202 宣传视频2** ⇨ [𝕏](https://x.com/MensPREPPY/status/2018263129063362807)
-    > **260206 特典情报** ⇨ [𝕏Amazon](https://x.com/MensPREPPY/status/2019688765145657362)｜[𝕏heritage](https://x.com/MensPREPPY/status/2019688513399333225)
-    > **260214 拍摄花絮+照片展告知** ⇨ [𝓲洸-拍摄花絮](https://www.instagram.com/p/DUvNG3fiWaM/)｜[𝕏照片展定档(图)](https://x.com/MensPREPPY/status/2022506085379125313)｜[𝕏照片展宣传(图)(2/20)](https://x.com/MensPREPPY/status/2024680411490840824) 「藤本洸大 さんミニ写真展」2/28~3/1；会場限定ステッカー（全4種）をランダムで1種プレゼント；现场买杂志再赠送1️⃣もう1種会場限定ステッカープレゼント 2️⃣ヘリテージブックストア限定予約特典……这个展特典好丰富!
-　B5ビジュアルカード1枚プレゼント
+    > **260206 特典情报** ⇨ [𝕏Amazon](https://x.com/MensPREPPY/status/2019688765145657362)/[𝕏](https://x.com/MensPREPPY/status/2019607228219629727)｜[𝕏heritage](https://x.com/MensPREPPY/status/2019688513399333225)/[𝕏](https://x.com/MensPREPPY/status/2019606984358535331)
+    > **260214 拍摄花絮+照片展告知** ⇨ [𝓲洸-拍摄花絮](https://www.instagram.com/p/DUvNG3fiWaM/)｜[𝕏照片展定档(图)](https://x.com/MensPREPPY/status/2022506085379125313)｜[𝕏照片展宣传(图)(2/20)](https://x.com/MensPREPPY/status/2024680411490840824)
+    > **260226 Heritage特典图** ⇨ [𝕏](https://x.com/MensPREPPY/status/2026854744182964407)
+    > **260228~260301 「藤本洸大 さんミニ写真展」** 11:00~18:00，入场500日元；会場限定ステッカー（全4種）をランダムで1種プレゼント；现场买杂志再赠送1️⃣もう1種会場限定ステッカープレゼント 2️⃣ヘリテージブックストア限定予約特典B5ビジュアルカード……这个展特典好丰富! ⇨ [𝕏照片展宣传(图)(2/27)](https://x.com/MensPREPPY/status/2027330370614518041)｜[𝕏照片展情报(2/28)](https://x.com/MensPREPPY/status/2027575734475047011)｜[𝕏照片展情报(3/1)](https://x.com/MensPREPPY/status/2027881506861895943)
     > **260330 抽选特典亲签拍立得** ⇨ [𝕏](https://x.com/MensPREPPY/status/2038451147397017671)
 * **260228【直播】ins直播 GREEN SPOON吃播** ⇨ [𝓲洸](https://www.instagram.com/p/DVTXkltiRFe/)
 * **260227 电视剧「時計館の殺人」播出** 渡辺涼介役 @Hulu
@@ -761,7 +764,7 @@ permalink: /solo/
     > **260227 1-6话配信**
     > **260320 7-8话配信**
 * **260220《JUNON》4月5月合并号(2/20)杂志发售+Kuji抽奖** ⇨ [封面目录](https://www.junon-tv.jp/articles/4215) 给洸大安排的是「藤本洸大 × あざと顔」栏目😇
-    > **260218 登场情报解禁+拍摄花絮视频**{: .text-red} ⇨ [𝕏](https://x.com/JUNON_jp/status/2023955645746250055) 超级可爱超级あざとい的洸大和狗狗!
+    > **260218 登场情报解禁+拍摄花絮视频**{: .text-red} ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2024031146128937096)/[ins](https://www.instagram.com/p/DU5Ev7rk0Yh/)｜[ins目录](https://www.instagram.com/p/DU5EtIlE6lb/)｜[ins图透](https://www.instagram.com/p/DU5Eu1jkwW8/)｜[𝕏抱狗花絮](https://x.com/JUNON_jp/status/2023955645746250055) 超级可爱超级あざとい的洸大和狗狗!
     > **260220 くじ抽赏告知** ⇨ [𝕏告知](https://x.com/JUNON_jp/status/2024740820927336548)
     > **260312 くじ抽赏活动开始** 3/12~4/2 ⇨ [抽签&赏品页面](https://kuji.junon-tv.jp/lotteries/1259)｜[𝕏](https://x.com/JUNON_jp/status/2032018870941466918)｜[𝕏转发抽KujiF赏](https://x.com/JUNON_jp/status/2032020291938029932)
 * **260217【直播】19:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DU3EDxGFETv/)
@@ -855,10 +858,10 @@ permalink: /solo/
 * **251231 2025年总结** ⇨ [𝓲洸❤️](https://www.instagram.com/p/DS7V1KtlMxh/) 有一张日置浴衣照~
 * **251225【SNS】洸大宣传菅田将晖live谷当T恤模特/圣诞洸大** ⇨ [𝓲洸](https://www.instagram.com/p/DSrJWPygQjT/)/[tc-ins(12/23)](https://www.instagram.com/p/DSmhGTokjZS/)｜[𝓲洸-圣诞](https://www.instagram.com/p/DSr_hoFFFMA/)
 * **251222《JUNON》2月号(12/22) 杂志发售** ⇨ [杂志详情](https://www.junon-tv.jp/articles/4122) 应该就是在卷头特辑里出现了一下，但是温泉视频有😇 顺说这本msy和海李也登场了哈哈哈好多人啊()
-    > **251219 情报解禁** ⇨ [𝕏情报解禁](https://x.com/JUNON_jp/status/2001928554179973423)｜[𝕏附录扑克牌](https://x.com/JUNON_jp/status/2001933983316349067)
-    > **251220** ⇨ [𝕏泡温泉花絮(12/20)](https://x.com/JUNON_jp/status/2002333155483922930)｜[𝕏海李也登场了说也取材了修仲相关(12/20)](https://x.com/kairi_shimizu/status/2002229094440972574)
-    > **251222** ⇨ [𝕏小卡(12/22)](https://x.com/eprintservice/status/2002906941543043366)
-    > **260105** ⇨ [𝕏年末年始视频(1/5)](https://x.com/JUNON_jp/status/2008010579030819201) 
+    > **251219 情报解禁** ⇨ ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2001928554179973423)/[ins](https://www.instagram.com/p/DScAOK2k_ot/)｜[ins目录](https://www.instagram.com/p/DScAOdPE07t/)｜[ins图透](https://www.instagram.com/p/DScAOcjk6dP/)｜[𝕏附录扑克牌](https://x.com/JUNON_jp/status/2001933983316349067)
+    > **251220** ⇨ [𝕏泡温泉花絮](https://x.com/JUNON_jp/status/2002333155483922930)/[ins](https://www.instagram.com/p/DSe5mVrEx_R/)｜[𝕏海李也登场了说也取材了修仲相关](https://x.com/kairi_shimizu/status/2002229094440972574)
+    > **251222** ⇨ [𝕏小卡](https://x.com/eprintservice/status/2002906941543043366)
+    > **260105** ⇨ [𝕏年末年始视频](https://x.com/JUNON_jp/status/2008010579030819201)/[ins](https://www.instagram.com/p/DTHPb0Wk5bs/)
 * **251218【直播】2025年ありがとうナイトパーティ直播** 2025年感恩会直播, ins10分钟+TC40分钟+个别交流会 ⇨ [ins10分钟直播](https://www.instagram.com/p/DSZvLU1CR4W/)
     > **251205 告知+募集** ⇨ [𝓲洸](https://www.instagram.com/p/DR4FMaSgZWj/) 19:40~インスタライブ（10分間）; 20:00~TCL内にて生配信（40分間）; 配信終了後 個別オンライントーク実施もします❗️
 * **251214 TopCoat30周年企划特别视频**{: .text-solo-k} 洸大部分:1:27~1:34 ⇨ [🆈](https://www.youtube.com/watch?v=HPISElVD6FE) 

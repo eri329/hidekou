@@ -8,8 +8,8 @@ layout: page
 
 #### 资讯来源(站长自用)
 * 修仲官方X，修仲官方ins，修仲官方Tiktok, 简秀吉X，简秀吉ins，MR8官网, 藤本洸大ins，TC-schedule
-    > 搜索X语句 `from:dramal_abc since:2025-10-18 until:2025-10-19` + 切换到Latest tab
-    > 搜索DXTEEN X `from:official_DXTEEN 修学旅行 since:2025-07-01 until:2025-12-31`
+    > 搜索X语句: `from:dramal_abc since:2025-10-18 until:2025-10-19` + 切换到Latest tab
+    > 搜索DXTEEN: `from:official_DXTEEN 修学旅行 since:2025-07-01 until:2025-12-31`
 * 简秀吉小红书，简秀吉微博
 * 秀洸ins其他部分: reels, repost
 * 秀洸快拍: story, highlight
@@ -77,9 +77,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 下载高清：https://www.youtube.com/watch?v=zu2hytbg_qA，https://www.youtube.com/watch?v=KDjeadX4BzM, https://www.youtube.com/watch?v=kI0B9i80wHI, https://www.youtube.com/watch?v=zbT0FF8kmEk(没找到日期)，https://www.youtube.com/watch?v=wTkctQ9a7po，  -->
 
-[ 2026-08-22 ~ ] **杂志号X查漏补缺**: STORY@story_web, 月刊TVguide, TVgiude dan, TVnavi, TVlife, SCawaii, Gianna, Duet, Fineboys@hinode_pub, JUNON, CYANMAN, Preppy; **杂志号ins查漏补缺**: STORY ins@story_love40, TVdan, SCawaii, Gianna, 月刊TVguide
-
-<!-- TODO：JUNON；men's preppy both；Preppy；cyan; fineboys;awesome -->
+[ 2026-08-22 ~ 2026-08-24 ] **杂志号X查漏补缺**: STORY@story_web, 月刊TVguide, TVgiude dan, TVnavi, TVlife, SCawaii, Gianna, Duet, Fineboys, Fineboys@hinode_pub, JUNON, CYANMAN, Preppy, men's preppy; **杂志号ins查漏补缺**: STORY@story_love40, TVdan, SCawaii, Gianna, 月刊TVguide, Preppy, men's preppy, cyanman, fineboys, awesome, JUNON; 站长对自己:乙！
 
 [ 2026-08-19 ~ 2026-08-22 ] 补完OST作者铃木SNS；常规更新至8/22
 

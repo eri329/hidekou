@@ -126,7 +126,7 @@ permalink: /category/
 * **260403 Starside #2 Spring 2026 双人特刊** ⇨ [𝕏4版封面+特典set](https://x.com/starside_x/status/2024829552514748858)
 * **260330 GIANNA BOYFRIEND 11（双人封底）** ⇨ [联动采访](https://gianna.jp/archives/8695)
 * **260324 Lemon凝眸 双人特刊** 中杂｜This Moment’s Youth｜2版封面+特典set
-* **251121 JUNON 1月号** 藤本洸大×簡 秀吉 愛とときめき、届きました。｜棕&白毛衣｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)｜[📕内页(只想说坏话)](http://xhslink.com/o/8dxm2s6jwMi)
+* **251121 JUNON 1月号** 藤本洸大×簡秀吉 愛とときめき、届きました。｜棕&白毛衣｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/1990691465488744515)/[封面&目录](https://www.junon-tv.jp/articles/4057)｜[📕内页(只想说坏话)](http://xhslink.com/o/8dxm2s6jwMi)
 * **251121 月刊TVガイド 1月号** SPECIAL TALK｜修仲校服｜2p ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1990706621421662368)｜[📕内页(只想说坏话)](http://xhslink.com/o/8BePGZjH6IF)
 * **251117 Duet LUXE vol.4** ⇨ [𝕏封面](https://x.com/duet_home/status/1988079181931180237)
 * **251104 CINEMA SQUARE vol.156** 秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)
@@ -183,7 +183,7 @@ permalink: /category/
 * **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-separate}风衣小简 ⇨ [𝕏封面(简)](https://x.com/CYANMANMAGAZINE/status/2023306422604476833)
 * **260227【書籍】「修学旅行で仲良くないグループに入りました　ドラマ公式ビジュアルブック」**{: .text-red}
 * **260130 Men’s PREPPY 3月号** Special Interview｜黑粗呢西装｜4p ⇨ [𝕏封面](https://x.com/MensPREPPY/status/2012004381089284252)｜[📕内页(陈二娜)](http://xhslink.com/o/6BO0dNwDeYK)｜[联动采访](https://preppyweb.com/article/13642)
-* **260127 awesome! Plus Vol.45** 簡秀吉×Kyleスペシャル対談｜条纹白西装 ⇨ [𝕏封面](https://x.com/BP25th_awesome/status/2014947061503029580)
+* **260127 awesome! Plus Vol.45** 簡秀吉×Kyleスペシャル対談｜条纹白西装 ⇨ [𝕏封面](https://x.com/BP25th_awesome/status/2015950381910577450)
 
 ---
 * **251121 JUNON 1月号**{: .text-red}
@@ -201,10 +201,13 @@ permalink: /category/
 * **251015 月刊わんこ vol.23（BACK COVER）** ⇨ [𝕏封底](https://x.com/kan_hideyoshi/status/1975865522408632474)｜[𝕏封面](https://x.com/eiga_natalie/status/1975863785341768017)
 * **251008 TVstation22号** セルフィー ⇨ [𝕏封面](https://x.com/tvs_official/status/1975397959987867736)
 * **250922 JUNON 11月号** 全网找不到相关资料，怀疑官网写错了 ⇨ [封面目录](https://www.junon-tv.jp/articles/3941)
+
+---
 * **241109【書籍】「簡秀吉2025年カレンダー」**
 * **241030【書籍】「サンナムジャ ヤンキー男子がK-POPに出会って人生が変わった件」（カバーモデル）** ⇨ [𝕏封面](https://x.com/kan_hideyoshi/status/1851563517700387078)
 * **241029 GIANNA BOYFRIEND #06** ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1851100428928475645)｜[拍摄花絮](https://www.instagram.com/p/DBr3sQvq6Ww/)
 * **240401 宇宙船 vol.184** *特摄杂志*{: .text-small}
+* **240221 awesome! Plus Vol.25** w/西山潤, 奥野壮 ⇨ [𝕏封面](https://x.com/BP25th_awesome/status/1760124018899013891)
 * **240124 月刊TVガイド 3月号** w/西山潤 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/1750098092312105313)
 * **240117 TV LIFE 2/2号** 今旬コレクション ⇨ [𝕏封面目录](https://x.com/tv_life/status/1747451573239005600)｜[联动采访+7s挑战](https://www.tvlife.jp/pickup/661667)
 * **231228 宇宙船 vol.183** *特摄杂志*{: .text-small}
@@ -265,7 +268,7 @@ permalink: /category/
 * **260604 S Cawaii!特別編集　マブ ～永遠の絆～（表紙）** ⇨ [𝕏封面](https://x.com/mag_scawaii/status/2057401154284449935)
 * **260602 TVガイドdan vol.60**{: .text-separate} 池田匡志x草川直弥x藤本洸大｜灰西装｜8p ⇨ [𝕏封面](https://x.com/TVguidePERSON/status/2059183389496992182)｜[📕内页(偏差值)](http://xhslink.com/o/7pWgiRjrrcp)
 * **260529 FINEBOYS+Share 04**{: .text-separate} 藤本洸大とリメイク｜眼镜条纹贝雷帽领巾｜12p ⇨ [封面](https://x.com/hinode_pub/status/2060146601784705221)｜[📕内页(小半)](http://xhslink.com/o/4iBhmTWi7aU)
-* **260521 JUNON 7月号** 推したちのキズナ・トーク(和洸大爸爸的对谈)｜蓝色罩衫｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2056646050358960231)｜[📕内页(bala)](http://xhslink.com/o/7cKyNkMAVs8)
+* **260521 JUNON 7月号** 藤本洸大✕父親子の枠に収まらないふたり｜蓝色罩衫｜3p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2056646050358960231)｜[📕内页(bala)](http://xhslink.com/o/7cKyNkMAVs8)
 * **260509 FINEBOYS 6月号**{: .text-separate} 今日の現場｜白T｜2p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2050175903460954559)｜[📕内页(偏差值)](http://xhslink.com/o/35YQVLlEHO)
 * **260502 日経エンタテインメント！6月号** 今、求められる俳優とは？｜蓝色T｜2p ⇨ [𝕏封面](https://x.com/nikkei_ent/status/2050379787701751860)｜[📕内页(摸鱼)](http://xhslink.com/o/3TpgNNsRXmY)
 * **260501 PREPPY 6月号（表紙）**{: .text-red}
@@ -281,9 +284,9 @@ permalink: /category/
 * **260312 CYAN MAN 4月号（特別版Wカバー）**{: .text-separate} ⇨ [𝕏封面(洸)](https://x.com/CYANMANMAGAZINE/status/2023306428979847311)
 * **260317 S Cawaii! 5月号** ⇨ [𝕏封面](https://x.com/mag_scawaii/status/2033732826391318891)
 * **260309 FINEBOYS 4月号** これからの男子メイク｜格子衬衫毛毛外套｜2p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2029157408627429421)｜[📕内页(摸鱼)](http://xhslink.com/o/4HP109KOd2)
-* **260228 Men's Preppy 4月号** 6p ⇨ [𝕏封面](https://x.com/MensPREPPY/status/1758325338055331891)
+* **260228 Men's Preppy 4月号** 6p ⇨ [𝕏封面](https://x.com/MensPREPPY/status/2025767579894108290)
 * **260227 書籍「修学旅行で仲良くないグループに入りました　ドラマ公式ビジュアルブック」**{: .text-red}
-* **260220 JUNON4月5月合併号** 藤本洸大 × あざと顔｜粉毛衣甜甜圈｜4p ⇨ [封面目录](https://www.junon-tv.jp/articles/4215)｜[📕内页(摸鱼)](http://xhslink.com/o/4Wu9B5bwr3B)
+* **260220 JUNON4月5月合併号** 藤本洸大×あざと顔｜粉毛衣甜甜圈｜4p ⇨ [封面目录](https://www.junon-tv.jp/articles/4215)｜[📕内页(摸鱼)](http://xhslink.com/o/4Wu9B5bwr3B)
 * **260216 TRENDiCON No.14（表紙）** ⇨ [𝕏封面](https://x.com/trendicon_info/status/2023321459142058133)
 * **260216 RETRO2月号（表紙）** ⇨ 
 * **260214 推し楽(web)** ⇨ [「すべてが今の自分につながる」藤本洸大のまっすぐな歩みと、飾らない素顔](https://fan.books.rakuten.co.jp/articles/5677)
@@ -292,8 +295,7 @@ permalink: /category/
 * **260117 Blaze 1月号（初単独表紙）** 中杂特刊 ⇨ 
 
 ---
-<!--  ⇨  -->
-* **251222 JUNON 2月号** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2001928554179973423)
+* **251222 JUNON 2月号** あったか～い温泉でゆるほか。⇨ [𝕏封面](https://x.com/JUNON_jp/status/2001928554179973423)
 * **251121 JUNON 1月号**{: .text-red}
 * **251121 月刊TVガイド 1月号**{: .text-red}
 * **251117 Duet LUXE vol.4**{: .text-red}
@@ -309,14 +311,13 @@ permalink: /category/
 * **251016 TVガイドdan vol.57**{: .text-red}
 * TVer(web)（10月下旬配信）
 * 「イケメン図鑑」(web)(7月下旬配信)
-* **250620 JUNON**
+* **250620 JUNON 8月号** 今が推しどき♥ジュノンボーイ ⇨ [ins封面](https://www.instagram.com/p/DLCN9keu-6-/)｜[ins目录](https://www.instagram.com/p/DLCN50hu9qI/)
 * FAST(web)（6月中旬配信）
 
 ---
-
-* **241031 awesome! Vol.69**
+* **241031 awesome! Vol.69** w/荒木飛羽, 曽野舜太 ⇨ [封面目录](https://awesomemagazine.jp/2024/10/24/awesome-vol-69/)
 * **241028 TVガイドAlpha EPISODE.FFFF VOL.84** <!-- [📕内页(bala)](http://xhslink.com/o/AttYAwibla) -->
-* **241022 JUNON 12月号**
+* **241022 JUNON 12月号** ⇨ [ins封面](https://www.instagram.com/p/DBQg02sTWRl/)｜[封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2024%E5%B9%B412%E6%9C%88%E5%8F%B7/)
 * **241015 TVガイドdan vol.53** *清新气息*{: .text-small} ⇨ [🆈making](https://www.youtube.com/watch?v=Ys2HPImpCgE)
 * **241011 コミックBe vol.129**
 * **241002 TV LIFE** 来自官网但找不到相关资料
@@ -325,16 +326,12 @@ permalink: /category/
 * TVfan Web(web)
 * TVガイド web(web)
 * ちょいミー(動画配信)
-* **240722 JUNON 9月号** 真夏のジュノンボーイ祭 ⇨ [封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2024%E5%B9%B49%E6%9C%88%E5%8F%B7/)
-* **240222 JUNON 4月号** 俳優デビューと、見据える未来。⇨ [封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2024%E5%B9%B44%E6%9C%88%E5%8F%B7/)
-
----
+* **240722 JUNON 9月号** 真夏のジュノンボーイ祭 ⇨ [ins封面](https://www.instagram.com/p/C9jn1XSSmP_/)/[ins目录](https://www.instagram.com/p/C9joeYLSw3Z/)｜[封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2024%E5%B9%B49%E6%9C%88%E5%8F%B7/)
+* **240222 JUNON 4月号** 俳優デビューと、見据える未来。⇨ [ins封面](https://www.instagram.com/p/C3j9KrVyEU8/)/[ins目录](https://www.instagram.com/p/C3j9ltZyEsN/)｜[封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2024%E5%B9%B44%E6%9C%88%E5%8F%B7/)
 * **231205 週刊女性 12/19号** ⇨ 
-* **230722 JUNON 9月号** ただ今自己分析中！⇨ [封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2023%E5%B9%B49%E6%9C%88%E5%8F%B7/)
+* **230722 JUNON 9月号** ただ今自己分析中！⇨ [ins封面](https://www.instagram.com/p/Cu6WR2EyvM3/)/[ins目录](https://www.instagram.com/p/Cu6WVmgSnrT/)｜[封面目录](https://www.shufu.co.jp/magazine/junon/backnumber/junon-2023%E5%B9%B49%E6%9C%88%E5%8F%B7/)
 * **230105 週刊女性 1/17・24号** 勉強もスポーツもバッチリな完璧男子／第35回ジュノン・スーパーボーイ ⇨ [封面目录](https://www.shufu.co.jp/magazine/jprime/backnumber/%E9%80%B1%E5%88%8A%E5%A5%B3%E6%80%A7-2023%E5%B9%B4-1-24%E5%8F%B7/)
-* **230120 JUNON 3月号** 史上35人目のグランプリは、全人類のど真ん中。⇨ [封面目录](https://www.junon-tv.jp/articles/1529)｜[采访节选](https://www.junon-tv.jp/articles/1589)
-
----
+* **230120 JUNON 3月号** 史上35人目のグランプリは、全人類のど真ん中。⇨ [ins封面](https://www.instagram.com/p/CnjI2l7Sxey/)/[ins目录](https://www.instagram.com/p/CnjJC-bysEP/)｜[封面目录](https://www.junon-tv.jp/articles/1529)｜[采访节选](https://www.junon-tv.jp/articles/1589)
 * **221118 JUNON TV采访(web)** ⇨ [【藤本洸大】35代ジュノンボーイを徹底分析！お題は何だ！？マル秘サイコロトーク♡](https://www.junon-tv.jp/articles/1308)
 
 </div>
