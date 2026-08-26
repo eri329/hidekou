@@ -34,6 +34,7 @@ permalink: /solo/
     > [📕特典整理(nano)](http://xhslink.com/o/9uxYbKr7QYu)
     > **260820 小简X:明日开始预约**{: .text-red} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2090401232414466329)/[𝓲简](https://www.instagram.com/p/DcQoQlbgaAt/) 西装帅！！
     > **260821 纪念活动开售/宣传视频** 19:00~ ⇨ [𝕏宣传视频](https://x.com/kanhideyoshi1st/status/2090725606103355789)/[ins](https://www.instagram.com/p/DcS934KB-67/)
+    > **260826 线下活动先着追加贩售**{: .text-solo} 19:00~  ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2092160535852912908)/[ins](https://www.instagram.com/p/DcdJmzdy-o1/)
 * **261103 简秀吉24岁生日会&见面会 大阪生日会**{: .text-red} 14:00/17:30📍大阪エル・シアター
 
 ---
@@ -45,8 +46,6 @@ permalink: /solo/
     > **260803 FC先行抽选** 8/3~8/16 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2084222976032137308)｜[𝓲简](https://www.instagram.com/p/DbkwxbgAa8A/)｜[微博](https://weibo.com/7984735683/RbHFRhh0L) 很帅的黑白西装!
 
 ---
-* **260926 Rakuten GirlsAward 2026秋冬走秀** @幕張メッセ1-3ホール
-    > **260806 情报解禁** ⇨ [𝕏](https://x.com/GirlsAward/status/2085581293753151507)
 * **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ
     > **260525 マイナビ TGC 2026 A/W(秋冬)出演決定!** ⇨ [𝕏](https://x.com/TGCnews/status/2058775066377367733)
     > **260603 小简宣传视频** TGC出演希望 個人部門で1位 ⇨ [𝕏](https://x.com/TGCnews/status/2062096953249288594) 表达了对第1位的感谢，以及对初次走秀的憧憬，最后还玩了一把抽象，很忙的一个视频www
@@ -54,7 +53,7 @@ permalink: /solo/
     > **260707 电波手势舞**{: .text-red} ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
 
 ---
-* **260826《PERCE NEIGE》(8/26) 杂志发售**
+* **260826《PERCE NEIGE》(8/26) 杂志发售** ⇨ [𝕏封面](https://x.com/perceneige_mp/status/2089598798444277932)
     > **260726 情报解禁** ⇨ [𝕏](https://x.com/perceneige_mp/status/2081333721639297136)
     > **260822 图透**{: .text-red} ⇨ [𝕏](https://x.com/perceneige_mp/status/2090986662650433839) 好清爽好帅！
 * **260824《BLAZE》8月号(8/24) 杂志预售** 韩国拍摄
@@ -62,8 +61,12 @@ permalink: /solo/
     > **260820/260821 图透预告:蓝/黑** ⇨ [𝕏蓝](https://x.com/blazeprojectmag/status/2090393820127211783)/[ins图更大](https://www.instagram.com/p/DcQm4PyE3Es/)｜[𝕏黑](https://x.com/blazeprojectmag/status/2090756015138754855)/[ins图更大](https://www.instagram.com/p/DcTL9ick0yk/)
     > **260822 登场预告:黑/视频**{: .text-red} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2091118524920173033)/[ins](https://www.instagram.com/p/DcVwjs3TgrV/) 很有变态风味……🤤
     > **260823 日语/韩语问候** ⇨ [𝕏日语](https://x.com/blazeprojectmag/status/2091484017417957464)｜[𝕏韩语](https://x.com/blazeprojectmag/status/2091485326154047985)
+    > **260824 开始预售** 20:00~ ABCD四版 ⇨ [𝕏封面](https://x.com/blazeprojectmag/status/2091843252403974453)/[ins](https://www.instagram.com/p/Dca51vYE_jM)/[𝕏高清封面](https://x.com/official_MR8/status/2091849671258096073)｜[𝕏抽选亲签特典](https://x.com/blazeprojectmag/status/2091840394871165117)｜[𝕏配置/线下大屏特典](https://x.com/blazeprojectmag/status/2091840507215229399)
+    > **260824 小简发拍摄花絮照** ⇨ [𝓲简-红](https://www.instagram.com/p/DcbKPC8gT_N/)｜[𝓲简-蓝](https://www.instagram.com/p/Dca6WPPgSrG/)
+    > **260825 小简亲签小视频** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2092257021215326375)
 * **260824《月刊TVガイド》10月号(8/24) 杂志发售**《跌落就完了》剧宣杂 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2091732199590519050)
     > **260731 情报解禁** ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[ins](https://www.instagram.com/p/Dbe5TDigYXv/)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393) 生写特典三随一/全套
+    > **260824 拍摄花絮视频** ⇨ [ins](https://www.instagram.com/p/DcbTsIaBq3J/)
 * **260822【直播】简秀吉ins直播** 21:00~
     > **260821 明天21点ins直播通知** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2090781222670889116)
 * **260821《CanCam》10月号(8/21) 杂志发售** 生見愛瑠×簡秀吉 ⚠️BG企划:约会穿搭
@@ -112,6 +115,8 @@ permalink: /solo/
     > **260815 Tiktok小简单人小视频** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2088607436500505038)/[TT](https://www.tiktok.com/@dramaism_mbs/video/7674236843562388743)
     > **260819 最终回预告/剧照** ⇨ [𝕏预告](https://x.com/dramaism_mbs/status/2090003470749417495)/[ins](https://www.instagram.com/p/DcN0uSyvyqW/)｜[𝕏剧照](https://x.com/dramaism_mbs/status/2090004155679363384)/[ins](https://www.instagram.com/p/DcN1mqOo1_a/)
     > **260823 小简角色film offshot** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2091484115845730398/)｜[ins](https://www.instagram.com/p/DcYWj-ovOnC/)
+    > **260824 小简杀青前宣传采访 w/男主** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2091832311784591669)/[ins](https://www.instagram.com/p/Dca0jN0Pq9t/)
+    > **260825 小简Tiktok小视频 w/男主** ⇨ [TT](https://www.tiktok.com/@dramaism_mbs/video/7677971035647528200)
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260702 DAZN世界杯节目出演** 收费节目
     > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
@@ -493,6 +498,10 @@ permalink: /solo/
 ### 2026
 {: #kodai2026}
 
+* **261206 台北见面会**{: .text-red} 12:00/17:00 @花漾展演空間
+    > **260825 情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DcdoS9XFCSl/)
+* **261205 香港见面会**{: .text-red} 12:00/17:00 @ヒルトン・ガーデン・イン香港旺角
+    > **260825 情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DcdoS9XFCSl/)
 * **261024 神戸女学院大学岡田山祭 藤本洸大talkshow** 16:30~
     > **260801 情报解禁** ⇨ [𝕏](https://x.com/festival_kc/status/2083135735197278607)
 * **261011 洸大1st写真集东京签售会**{: .text-red}
@@ -614,7 +623,9 @@ permalink: /solo/
     > 「自分がこの回を監督すると決まった時に真っ先に藤本くんに手島役を、と提案しました」「ちなみに手島くんの最後の一言は僕がどうしてもこう言わせたいと伝えて脚本の稲本さんに書いていただきました」
     > **260822 洸大宣传口播 w/細田佳央太** ⇨ [𝕏](https://x.com/tx_strange/status/2091087990630367351)/[ins](https://www.instagram.com/p/DcVio8ihL2L/)
     > **260823 洸大剧情切片** ⇨ [𝕏](https://x.com/tx_strange/status/2091495869220790369)/[ins](https://www.instagram.com/p/DcYcHIJTxuN/)
-    > **260824 洸大和共演offshot** ⇨ [𝕏](https://x.com/tx_strange/status/2091722161803469306)｜[ins](https://www.instagram.com/p/DcaHIReTlsU/)
+    > **260824 洸大和共演offshot/** ⇨ [𝕏](https://x.com/tx_strange/status/2091722161803469306)｜[ins](https://www.instagram.com/p/DcaHIReTlsU/)
+    > **260824 洸大角色登场拍摄花絮** ⇨ [𝕏](https://x.com/tx_strange/status/2091858065473839225)/[ins](https://www.instagram.com/p/DcbAzKDEwb5/) 超有活动233
+    > **260825 洸大角色offshot** ⇨ [𝕏](https://x.com/tx_strange/status/2092176428234428470)｜[ins](https://www.instagram.com/p/DcdRkvHTYWK/)
 * **260703/260708 TVガイドWeb 采访**
     > **260703 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
     > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
@@ -788,7 +799,7 @@ permalink: /solo/
     > **260311** [📕采访-专访上(10min)](https://www.xiaohongshu.com/discovery/item/69b121cc00000000280095d9?source=webshare&xhsshare=pc_web&xsec_token=ABW7F4i0X6LDXNXzUkhzApAkgK4IJ9LvW31uIKbRoj1fQ=&xsec_source=pc_share)
     > **260313** [📕采访-专访下(12min)](https://www.xiaohongshu.com/discovery/item/69b40eea00000000220253f7?source=webshare&xhsshare=pc_web&xsec_token=ABDYhckILwnp8-W6kFL5scCgwTgs8NuklrptONhM4seLo=&xsec_source=pc_share)
     > **260316** [📕横版花絮](https://www.xiaohongshu.com/discovery/item/69b7d83c000000002800a4d5?source=webshare&xhsshare=pc_web&xsec_token=ABP90l-WO7kHX8-ldaZQ-0CFNG4UMiDV_KReSYa3HYJs8=&xsec_source=pc_share)
-* **260216《TRENDiCON》No.14(2/16)发售**{: .text-red} ⇨ [𝕏](https://x.com/trendicon_info/status/2023321459142058133)/[ins](https://www.instagram.com/p/DU0B9DqF3eJ/)｜[𝓲洸(2/20)](https://www.instagram.com/p/DU-qOUAlAm1/)
+* **260216《TRENDiCON》No.14(2/16)发售**{: .text-red} ⇨ [𝕏封面](https://x.com/trendicon_info/status/2023321459142058133)/[ins](https://www.instagram.com/p/DU0B9DqF3eJ/)｜[𝓲洸(2/20)](https://www.instagram.com/p/DU-qOUAlAm1/)
     > **260214 封面登场情报解禁** ⇨ [𝕏](https://x.com/trendicon_info/status/2022327084715274739)｜[𝕏](https://x.com/trendicon_info/status/2022641974818554192)｜[ins](https://www.instagram.com/p/DUsoLIVj4WX/)｜[𝓲配置](https://www.instagram.com/p/DUvQad9gXHo/)
     > **260215 应募特典** ⇨ [𝕏](https://x.com/trendicon_info/status/2023004371571597768)/[ins](https://www.instagram.com/p/DUxxww0lKQg/)
     > **250225 追加特典** ⇨ [𝕏2-25](https://x.com/trendicon_info/status/2026628241352782070)/[ins](https://www.instagram.com/p/DVLhvaPD6rr/)

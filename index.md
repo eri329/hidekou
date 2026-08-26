@@ -42,10 +42,14 @@ permalink: /
 * **261005【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**
     > **特典摘要**: 特别版狐猪封底+infosquare特典六随一(单人2枚x2套+双人2枚)
     > **260820 情报解禁** ⇨ [𝕏购买链接(无图)](https://x.com/mag_scawaii_men/status/2090350665138937870)｜[𝕏文字介绍/特典详情(无图)](https://x.com/mag_scawaii_men/status/2090351304719950208)
+    > **260821 夏日同窗会报道+杂志宣传** ⇨ [𝕏](https://x.com/mag_scawaii_men/status/2090716128863805579)｜[scawaii-web](https://scawaiiweb.com/articles/detail/71515)
 
 ### 2026.9
 {: #sep2026}
 
+* **260926【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀** @幕張メッセ1-3ホール 14:30~
+    > **260806 小简情报解禁** ⇨ [𝕏](https://x.com/GirlsAward/status/2085581293753151507)
+    > **260825 洸大情报解禁** ⇨ [𝕏](https://x.com/GirlsAward/status/2092101280865157552) <span>单人活动变双人！太爽了！</span>{: .text-pink}
 * **260919【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划  ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
     > **260810 情报解禁** 8/10~8/23 先行抽选；9/12~ 一般开票 ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)｜[𝕏推し楽](https://x.com/oshiraku/status/2086784630821446027)
     > **260820 现场特典影像是修仲第二季拍摄花絮!** ⇨ [𝕏](https://x.com/LVJ_culture/status/2090363218048774425)
@@ -62,8 +66,10 @@ permalink: /
 
 <div class="line"></div>
 
+* **260824【修学旅行S2】官方Tiktok小视频:五天王barabam** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7677530618829212948)
 * **260823【修学旅行S2】官推抽5人送原作漫画1卷+狐猪宣传视频** ⇨ [𝕏](https://x.com/dramal_abc/status/2091192420788817942)
 * **260822【修学旅行｜周边】马来西亚快闪店开设** 8/22~9/6 ⇨ [𝕏](https://x.com/ORBcafe_my/status/2090982288217796961)｜[𝕏告知(8/21)](https://x.com/ORBcafe_my/status/2090725601695203753)
+    > **260824 MR8社长发快拍:马来西亚修仲快闪店海报+艾特小简** 小简快拍回复:😳😱🙇‍♂️
 * **260820【杂志｜双人】《TVガイドdan》vol.61(8/20) 杂志发售**{: .text-red}
     > **特典摘要**:随书赠海报(藤本洸大×簡秀吉 超ワイド両面ピンナップ)；限定版封面无特典；乐天books特典三随一；线下特典一
     > **260729 双人封底登场解禁+特典情报** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2082376776702156861)｜[特典1限定封面版(无图)](https://x.com/TVguidePERSON/status/2082377277657235558)｜[特典2乐天books双人特典照片三随一(无图)](https://x.com/TVguidePERSON/status/2082377381336195376)
@@ -72,6 +78,7 @@ permalink: /
     > **260818 线下照片展&线下特典公布** 8/20(木)～9/2(水) @HMV&BOOKS SHIBUYA 5F 线下特典生写1枚+抽选1张赠送狐猪亲签色纸 ⇨ [𝕏特典3线下生写特典](https://x.com/TVguidePERSON/status/2089624301658091664)｜[𝕏照片展(8/21)](https://x.com/HmvBooksShibuya/status/2090700214873260111)
     > **260819 杂志标题页图透** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2090012364389380245)
     > **260820 杂志发售** ⇨ [𝕏](https://x.com/tokyonews_pr/status/2090242558790394072)｜[𝕏推し楽](https://x.com/oshiraku/status/2090329462114259444)/[TVG](https://www.tvguide.or.jp/feature/feature-5186346/)｜[🆈TVdan拍摄花絮](https://www.youtube.com/watch?v=zu2hytbg_qA) <span>小简看起来没什么精神的样子😢但是洸大枕在小简大腿上扭来扭去还是有点把我甜到。洸大的安全距离已经全无了……</span>{: .text-pink}
+    > **260824 洸大发双人offshot** ⇨ [𝓲洸](https://www.instagram.com/p/DcbHt-IFJiW/) <span>快拍BGM又再次出现《Sugar Rush》🩷</span>{: .text-pink} ⇨ [🆈Sugar Rush](https://www.youtube.com/watch?v=BaTAo7IdIy4)
 * **260819【修学旅行S2】官方Tiktok小视频:修仲回来了!** F5再次cha两片想！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7675665175441050900)/[𝕏](https://x.com/dramal_abc/status/2090001597464297512)/[ins](https://www.instagram.com/p/DcQvZ4CT2jt/)
 * **260819【修学旅行S2｜原作】原作小说新特典开始发布** 13:00~
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典

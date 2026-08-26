@@ -151,10 +151,10 @@ permalink: /category/
 <div class="small-text-container" markdown="1">
 
 * **261211【書籍】写真集「简秀吉1st Photobook」**
-* **261005 S Cawaii! ME 2026 AUTUMN（封底）**{: .text-red}
-* **260911 CYAN MAN 10月号 特別版（封面封底）**{: .text-red}
-* **260824 BLAZE 8月号** 中杂特刊
-* **260826 PERCE NEIGE**「おちたらおわり」剧宣｜8p ⇨ 
+* **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
+* **260911 CYAN MAN 10月号（特別版Wカバー）**{: .text-red}
+* **260824 BLAZE 8月号（表紙）** 中杂特刊
+* **260826 PERCE NEIGE**「おちたらおわり」剧宣｜8p ⇨ [𝕏封面](https://x.com/perceneige_mp/status/2089598798444277932)
 * **260824 月刊TVガイド 10月号**「おちたらおわり」剧宣 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2091732199590519050)
 * **260821 CanCam 10月号** 恋する“白っぽ、ワントー｜生見愛瑠×簡秀吉｜5p ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)｜[📕内页(kimlin)](http://xhslink.com/o/5ljVcjG6yQD)
 * **260820 TVガイドdan vol.61**{: .text-red}
@@ -245,9 +245,9 @@ permalink: /category/
 <div class="small-text-container" markdown="1">
 
 * **261006【書籍】写真集「藤本洸大ファースト写真集 ジンジャーハイ」**
-* **261005 S Cawaii! ME 2026 AUTUMN（封底）**{: .text-red}
-* **261001 Preppy 11月号（封面）** 20p
-* **260911 CYAN MAN 10月号 特別版（封面封底）**{: .text-red}
+* **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
+* **261001 Preppy 11月号（表紙）** 20p
+* **260911 CYAN MAN 10月号（特別版Wカバー）**{: .text-red}
 * **260821 JUNON 10月号** かわいすぎ！まるで気が休まらない夕方｜衬衫T恤｜5p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)｜[📕内页(喵)](http://xhslink.com/o/81QL095cyKK)
 * **260820 TVガイドdan vol.61**{: .text-red}
 * **260722 JUNON 9月号** 喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)｜[📕内页中嵌(bala)](http://xhslink.com/o/3kar4kQF9uz)

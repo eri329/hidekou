@@ -23,6 +23,8 @@ permalink: /flattened_timeline/
 
 * **270110**
     > **【个人活动｜简秀吉】简秀吉写真集1st Photobook线上签售会**{: .text-solo}
+* **270108**
+    > **【个人活动｜藤本洸大】电影「高校生家族」上映**{: .text-solo-k}
 
 ## 2026
 {: #year2026}
@@ -35,6 +37,10 @@ permalink: /flattened_timeline/
     > **【个人活动｜简秀吉】简秀吉写真集1st Photobook东京签售会**{: .text-solo}
 * **261211**
     > **【个人活动｜简秀吉】简秀吉写真集1st Photobook发售**{: .text-solo}
+* **261206**
+    > **【个人活动｜藤本洸大】藤本洸大台北见面会**{: .text-solo-k} 12:00/17:00 @花漾展演空間⇨ [𝓲洸-海报/情报](https://www.instagram.com/p/DcdoS9XFCSl/)
+* **261205**
+    > **【个人活动｜藤本洸大】藤本洸大香港见面会**{: .text-solo-k} 12:00/17:00 @ヒルトン・ガーデン・イン香港旺角 ⇨ [𝓲洸-海报/情报](https://www.instagram.com/p/DcdoS9XFCSl/)
 * **261103**
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大阪生日会**{: .text-solo} 14:00/17:30📍大阪エル・シアター
 * **261031**
@@ -62,7 +68,7 @@ permalink: /flattened_timeline/
 * **261001**
     > **【杂志｜藤本洸大】《Preppy》11月号(10/1) 杂志发售**{: .text-solo-k} 金发/黑发两种封面
 * **260926**
-    > **【个人活动｜简秀吉】Rakuten GirlsAward 2026秋冬走秀**{: .text-solo} @幕張メッセ1-3ホール
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀**{: text-red} @幕張メッセ1-3ホール 14:30~；DXTEEN也去~
 * **260919**
     > **【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划 ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
     > **【个人活动｜简秀吉】TGC 2026秋冬走秀**{: .text-solo} @横浜アリーナ
@@ -83,15 +89,23 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】BLANK AND SEA服装联名 预约截止日⏰**{: .text-solo-k} ~23:59
 * **260827**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
-* **260826**
-    > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 7/13, 8/26 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
-    > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 杂志发售**{: .text-solo}
 
 <div class="line"></div>
 
+* **260826**
+    > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 7/13, 8/26 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
+    > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 杂志发售**{: .text-solo} ⇨ [𝕏封面](https://x.com/perceneige_mp/status/2089598798444277932)
+    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集 线下活动先着追加贩售**{: .text-solo} 19:00~ ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2092160535852912908)/[ins](https://www.instagram.com/p/DcdJmzdy-o1/)
+* **260825**
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 洸大出演解禁!** @幕張メッセ1-3ホール 14:30~ ⇨ [𝕏](https://x.com/GirlsAward/status/2092101280865157552)｜[推し楽/出演名单](https://fan.books.rakuten.co.jp/articles/10215) 单人活动变双人！太爽了！
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 小简亲签小视频**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2092257021215326375)
+    > **【个人活动｜藤本洸大】香港&台北见面会 香港&台北ファンミーティング 情报解禁**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DcdoS9XFCSl/)
 * **260824**
-    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 开始预售**{: .text-solo} 20:00~
-    > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24) 杂志发售**{: .text-solo}
+    > **【修学旅行S2】官方Tiktok小视频:五天王barabam** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7677530618829212948)
+    > **【SNS｜快拍｜修学旅行】MR8社长发快拍:马来西亚修仲快闪店海报+艾特小简** 小简快拍回复:😳😱🙇‍♂️
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 洸大发双人offshot**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DcbHt-IFJiW/) 快拍BGM又再次出现《Sugar Rush》🩷🩷 ⇨ [🆈Sugar Rush](https://www.youtube.com/watch?v=BaTAo7IdIy4)
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 开始预售**{: .text-solo} 20:00~ ABCD四版 ⇨ [𝕏封面](https://x.com/blazeprojectmag/status/2091843252403974453)/[ins](https://www.instagram.com/p/Dca51vYE_jM)/[𝕏高清封面](https://x.com/official_MR8/status/2091849671258096073)｜[𝕏抽选亲签特典](https://x.com/blazeprojectmag/status/2091840394871165117)｜[𝕏配置/线下大屏特典](https://x.com/blazeprojectmag/status/2091840507215229399)｜小简发拍摄花絮照:[𝓲简-红](https://www.instagram.com/p/DcbKPC8gT_N/)｜[𝓲简-蓝](https://www.instagram.com/p/Dca6WPPgSrG/)
+    > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24) 杂志发售/拍摄花絮视频**{: .text-solo} ⇨ [ins](https://www.instagram.com/p/DcbTsIaBq3J/)
     > **【杂志｜藤本洸大】《Preppy》11月号(10/1) 金发宣传视频**{: .text-solo-k} ⇨ [𝕏]()/[ins]()
 * **260823**
     > **【修学旅行S2】官推抽5人送原作漫画1卷+狐猪宣传视频** ⇨ [𝕏](https://x.com/dramal_abc/status/2091192420788817942)
@@ -112,6 +126,7 @@ permalink: /flattened_timeline/
 * **260821**
     > **【修学旅行｜双人】修仲夏日同窗会 官方Tiktok小视频vlog** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7676439592920206612)/[ins](https://www.instagram.com/p/DcTMZl9zAgt/) 活动结束后装作要击掌实则要抱抱的小简www（同窗会的狐猪片段也藏得太久了吧!）
     > **【修学旅行】马来西亚快闪店开设** 8/22~9/6 ⇨ [𝕏](https://x.com/ORBcafe_my/status/2090725601695203753)
+    > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 夏日同窗会报道+杂志宣传** ⇨ [𝕏](https://x.com/mag_scawaii_men/status/2090716128863805579)｜[scawaii-web](https://scawaiiweb.com/articles/detail/71515)
     > **【SNS｜简秀吉】明天21点ins直播通知**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2090781222670889116)
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 登场预告:黑**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2090756015138754855)/[ins图更大](https://www.instagram.com/p/DcTL9ick0yk/)
     > **【杂志｜简秀吉】《CanCam》10月号(8/21) 杂志发售**{: .text-solo}

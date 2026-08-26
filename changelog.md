@@ -77,6 +77,10 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 下载高清：https://www.youtube.com/watch?v=zu2hytbg_qA，https://www.youtube.com/watch?v=KDjeadX4BzM, https://www.youtube.com/watch?v=kI0B9i80wHI, https://www.youtube.com/watch?v=zbT0FF8kmEk(没找到日期)，https://www.youtube.com/watch?v=wTkctQ9a7po，  -->
 
+<!-- https://timetreeapp.com/public_calendars/hidekou -->
+
+[ 2026-08-25 ] 常规更新至8/26 4pm
+
 [ 2026-08-22 ~ 2026-08-24 ] **杂志号X查漏补缺**: STORY@story_web, 月刊TVguide, TVgiude dan, TVnavi, TVlife, SCawaii, Gianna, Duet, Fineboys, Fineboys@hinode_pub, JUNON, CYANMAN, Preppy, men's preppy; **杂志号ins查漏补缺**: STORY@story_love40, TVdan, SCawaii, Gianna, 月刊TVguide, Preppy, men's preppy, cyanman, fineboys, awesome, JUNON; 站长对自己:乙！
 
 [ 2026-08-19 ~ 2026-08-22 ] 补完OST作者铃木SNS；常规更新至8/22
