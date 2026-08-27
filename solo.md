@@ -64,6 +64,7 @@ permalink: /solo/
     > **260824 开始预售** 20:00~ ABCD四版 ⇨ [𝕏封面](https://x.com/blazeprojectmag/status/2091843252403974453)/[ins](https://www.instagram.com/p/Dca51vYE_jM)/[𝕏高清封面](https://x.com/official_MR8/status/2091849671258096073)｜[𝕏抽选亲签特典](https://x.com/blazeprojectmag/status/2091840394871165117)｜[𝕏配置/线下大屏特典](https://x.com/blazeprojectmag/status/2091840507215229399)
     > **260824 小简发拍摄花絮照** ⇨ [𝓲简-红](https://www.instagram.com/p/DcbKPC8gT_N/)｜[𝓲简-蓝](https://www.instagram.com/p/Dca6WPPgSrG/)
     > **260825 小简亲签小视频** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2092257021215326375)
+    > **260826 黑白look花絮视频** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2092599562095726899)/[ins](https://www.instagram.com/p/DcgPuoRTpJg/)
 * **260824《月刊TVガイド》10月号(8/24) 杂志发售**《跌落就完了》剧宣杂 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2091732199590519050)
     > **260731 情报解禁** ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[ins](https://www.instagram.com/p/Dbe5TDigYXv/)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393) 生写特典三随一/全套
     > **260824 拍摄花絮视频** ⇨ [ins](https://www.instagram.com/p/DcbTsIaBq3J/)
@@ -117,6 +118,7 @@ permalink: /solo/
     > **260823 小简角色film offshot** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2091484115845730398/)｜[ins](https://www.instagram.com/p/DcYWj-ovOnC/)
     > **260824 小简杀青前宣传采访 w/男主** ⇨ [𝕏](https://x.com/dramaism_mbs/status/2091832311784591669)/[ins](https://www.instagram.com/p/Dca0jN0Pq9t/)
     > **260825 小简Tiktok小视频 w/男主** ⇨ [TT](https://www.tiktok.com/@dramaism_mbs/video/7677971035647528200)
+    > **260826 周边情报** 这个小卡竟然没有一张BG但塞了一堆男主男二😄 ⇨ [𝕏](https://x.com/dramaism_mbs/status/2092537700230615481/)/[ins](https://www.instagram.com/p/DcfuFBvPhbu/)
 * **260706 小简发小红书: 7月会有什么呢？** ⇨ [📕简](http://xhslink.com/o/8YXu1T8H6qJ)
 * **260702 DAZN世界杯节目出演** 收费节目
     > **260702 DAZN「19時のFIFAワールドカップ-デイリーハイライト-」** MC：ヒデ（ペナルティ）ゲスト：簡秀吉 解説：中澤佑二、今野泰幸、谷晃生（町田）進行：笹木かおり ⇨ [dazn](https://www.dazn.com/ja-JP/competition/Competition:4qist8dg07q11v5qdlwg0l0zl)｜[AMEBA](https://abema.tv/live-event/f33b1083-3850-4864-9a47-229dd5584fdd)
@@ -529,6 +531,8 @@ permalink: /solo/
     > **260822 情报解禁** ⇨ [𝕏主卡司解禁](https://x.com/dramadaisakusen/status/2090997385925361938)/[ins](https://www.instagram.com/p/DcU5byUE9mk/)｜[𝕏主视觉解禁](https://x.com/dramadaisakusen/status/2090997389356040610)/[ins](https://www.instagram.com/p/DcU5rvik8z0/)｜[𝕏第1话预告](https://x.com/dramadaisakusen/status/2090997637541765244)/[ins](https://www.instagram.com/p/DcU5ZuSkQlY/)｜[全卡司&出演感想](https://www.tvlife.jp/drama/811469) 洸大:「我饰演的ソウスケ是一个既有些好强逞能、又常常感情用事的学生。他有时会做错事，有时也会顾前不顾后、看不清周围的情况。」
 
 ---
+* **260826 藤本洸大&桜木雅哉 新节目**
+    > **260826 账号建立+直播预告** ⇨ [ins](https://www.instagram.com/p/Dcf_XsuS2AR/)
 * **260821【直播】21:00~ NATSLIVE「洸大のサイコロジーアート」配信**{: .text-red} 「太陽に何を足す？」⇨ [𝓲洸](https://www.instagram.com/p/DcTfCBdFMw2/)
 * **260821《JUNON》10月号(8/21) 杂志发售**
     > **260819 封面/登场情报解禁** ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)/[ins](https://www.instagram.com/p/DcNjUfhiyS8/)｜[ins目录](https://www.instagram.com/p/DcNj2hKi-am/)｜[ins特辑图透](https://www.instagram.com/p/DcNjqWpiF0Z/)
@@ -545,6 +549,7 @@ permalink: /solo/
     > **260820 商品图** ⇨ [𝕏](https://x.com/blankandsea/status/2090393409496527349)/[ins](https://www.instagram.com/p/DcQmxHiGMDu/)
     > **260821 预售开始** 20:00~ @ZOZOTOWN ⇨ [𝕏洸大模特图](https://x.com/blankandsea/status/2090755797592756449)
     > **260822 洸大宣传短片** ⇨ [𝕏](https://x.com/blankandsea/status/2091118189035900942)/[ins](https://www.instagram.com/p/DcVwX85vGke/)
+    > **260826 商品图** ⇨ [𝕏](https://x.com/blankandsea/status/2092552635148620050)/[ins](https://www.instagram.com/p/DcgDlvfGLl1/)
 * **260812/260828 日本映画専門频道 舞台剧「それってキセキ」初次TV放送** 20:30~ [详情](https://www.nihon-eiga.com/program/detail/nh00030421_0001.html)
     > **260707 告知** 图非常高清! ⇨ [𝕏](https://x.com/nihoneiga/status/2074463533010702619)
 * **260803【直播】洸大ins直播:写真集宣传**{: .text-red} 20:00~20:45 ⇨ [𝓲洸](https://www.instagram.com/p/Dbk7KYnEW1f/)/[b站中字(发扬洸大)](https://www.bilibili.com/video/BV1wRgw66ESF/)
@@ -626,6 +631,7 @@ permalink: /solo/
     > **260824 洸大和共演offshot/** ⇨ [𝕏](https://x.com/tx_strange/status/2091722161803469306)｜[ins](https://www.instagram.com/p/DcaHIReTlsU/)
     > **260824 洸大角色登场拍摄花絮** ⇨ [𝕏](https://x.com/tx_strange/status/2091858065473839225)/[ins](https://www.instagram.com/p/DcbAzKDEwb5/) 超有活动233
     > **260825 洸大角色offshot** ⇨ [𝕏](https://x.com/tx_strange/status/2092176428234428470)｜[ins](https://www.instagram.com/p/DcdRkvHTYWK/)
+    > **260826 剧照** ⇨ [𝕏](https://x.com/tx_strange/status/2092537550602641425)/[ins](https://www.instagram.com/p/Dcf118uE5oE/)
 * **260703/260708 TVガイドWeb 采访**
     > **260703 前編** ⇨ [「クロスロード」で挑んだ新たなステージ　藤本洸大「この役を誰にも取られたくない」](https://www.tvguide.or.jp/feature/feature-4994381/)｜[𝕏](https://x.com/TVguidePERSON/status/2072959524294869019)
     > 这里有透露是在修仲杀青后1周就进组拍「share」了；自己是完全可以住share house的人；「error」只拍了2天；问志田未来自己看起来有几岁，被说了20代后半，是至今为止被人说过的最大的年龄，洸大很高兴233 洸大说愤怒的情绪其实是可以控制的（妈妈即使在气头上只要接到学校老师的电话就会立刻礼貌应答），这孩子真的太成熟了……后篇还会提到修学旅行！
@@ -644,6 +650,7 @@ permalink: /solo/
     > **260723「先生は、恋のセコンド」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2080125661881225335)/[ins](https://www.instagram.com/p/DbHpAcvv4I8/) 女生告白版
     > **260729「一番似てるのだーれ？」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2082299016357060935)/[ins](https://www.instagram.com/p/DbXF0-LBGsf/) 模仿表情包小视频，好可爱的…
     > **260821「カップル扱いOKなの？」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2090637453002748074)/[ins](https://www.instagram.com/p/DcSUiBwtile/)
+    > **260827「花火大会 本音を打ち上げ」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2092812467445571755)/[ins](https://www.instagram.com/p/Dchw1E6h4i5/)
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)

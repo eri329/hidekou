@@ -119,6 +119,8 @@ permalink: /category/
 
 * **261005 S Cawaii! ME 2026 AUTUMN（双人封底）** ⇨ []()
 * **260911 CYAN MAN 10月号 特別版（双人封面封底）** ANOTHER AFTER HOURS｜潮流街头风｜22p ⇨ [封面封底](https://x.com/CYANMANMAGAZINE/status/2090363217587408952)
+* **260826 週刊TVガイド 9/4号** 修学旅行同窗会报道 ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2092379064212578439)
+* **260826 TV Station 19号** 修学旅行同窗会豆腐块 ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/2092537943068164546)
 * **260820 TVガイドdan vol.61（双人封底）** 两版封底｜清爽蓝白格子衬衫 ⇨ [𝕏通常封底](https://x.com/TVguidePERSON/status/2088173817684480021)｜[𝕏限定封底](https://x.com/TVguidePERSON/status/2088173960273989862)
 * **260607 Emo!miu采访（web）** Clayge联动企画｜晒单抽送周边/应募拍立得｜白T/浅色衬衫/深色睡衣｜44p ⇨ [【藤本洸大×簡秀吉】シャンプーの香りに癒されて、まったり過ごす休日の昼下がり♪](https://emomiu.jp/news/264220/)
 * **260501 Preppy 6月号（双人封面）** The Rising Star｜家居/学院制服/黑白｜20p ⇨ [𝕏封面](https://x.com/preppy_magazine/status/2038919236148396458)｜[📕内页(偏差值)](http://xhslink.com/o/8x23da3XYsM)｜[联动采访](https://preppyweb.com/article/26576)
@@ -153,10 +155,12 @@ permalink: /category/
 * **261211【書籍】写真集「简秀吉1st Photobook」**
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
 * **260911 CYAN MAN 10月号（特別版Wカバー）**{: .text-red}
-* **260824 BLAZE 8月号（表紙）** 中杂特刊
+* **260826 週刊TVガイド 9/4号**{: .text-red}
+* **260826 TV Station 19号**{: .text-red}
 * **260826 PERCE NEIGE**「おちたらおわり」剧宣｜8p ⇨ [𝕏封面](https://x.com/perceneige_mp/status/2089598798444277932)
+* **260824 BLAZE 8月号（表紙）** 中杂特刊
 * **260824 月刊TVガイド 10月号**「おちたらおわり」剧宣 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2091732199590519050)
-* **260821 CanCam 10月号** 恋する“白っぽ、ワントー｜生見愛瑠×簡秀吉｜5p ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)｜[📕内页(kimlin)](http://xhslink.com/o/5ljVcjG6yQD)
+* **260821 CanCam 10月号** 恋する“白っぽ、ワントー ⚠️BG穿搭企画｜生見愛瑠×簡秀吉｜5p ⇨ [𝕏封面](https://x.com/cancamtv/status/2090017844839035113)｜[📕内页(kimlin)](http://xhslink.com/o/5ljVcjG6yQD)
 * **260820 TVガイドdan vol.61**{: .text-red}
 * **260812 Emo!miu采访(web)** ⇨ [簡秀吉×清水海李インタビュー](https://emomiu.jp/news/270288/)
 * **260803 TV LIFE 8/21号**「おちたらおわり」剧宣｜Time to Talk｜闪片毛衣｜4p ⇨ [𝕏封面目录](https://x.com/tv_life/status/2084113657953415358)｜[📕内页(偏差值)](http://xhslink.com/o/1X4BAT8Uggl)
@@ -248,6 +252,8 @@ permalink: /category/
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
 * **261001 Preppy 11月号（表紙）** 20p
 * **260911 CYAN MAN 10月号（特別版Wカバー）**{: .text-red}
+* **260826 週刊TVガイド 9/4号**{: .text-red}
+* **260826 TV Station 19号**{: .text-red}
 * **260821 JUNON 10月号** かわいすぎ！まるで気が休まらない夕方｜衬衫T恤｜5p ⇨ [𝕏封面](https://x.com/JUNON_jp/status/2089985747654967408)｜[📕内页(喵)](http://xhslink.com/o/81QL095cyKK)
 * **260820 TVガイドdan vol.61**{: .text-red}
 * **260722 JUNON 9月号** 喜怒哀楽、すべて見せます　⇨ [𝕏封面](https://x.com/junon_jp/status/2078026936392261641)｜[📕内页中嵌(bala)](http://xhslink.com/o/3kar4kQF9uz)

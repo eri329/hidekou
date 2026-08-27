@@ -166,6 +166,8 @@ permalink: /drama/
 
 ## 修学旅行榜单排行&受赏
 {: #rank}
+* 260827 ちるちる映像大賞2026结果发表 ⇨ [ins](https://www.instagram.com/p/DciM2lNE98X/)｜[结果发表网页](https://www.chil-chil.net/videoAward/y/2026/)
+    >  修仲获得作品部门3位、主演部门洸大6位/小简7位、名台词4位(「我们结婚吧」)、名场景3位(渡日告白) 
 * 260824 Oricon电视剧Box周榜16位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-08-24/p/2/)
 * 260810 Oricon电视剧Box周榜8位 ⇨ [Oricon](https://www.oricon.co.jp/rank/dvm/w/2026-08-10/) 竟然又冲上来了(据说卖了68)
 * 260714 TVguide Web 2025.7～2026.7期间BL投票 修仲6位 => [!X](https://x.com/tvg_research/status/2076939875178500198)

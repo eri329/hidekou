@@ -87,15 +87,25 @@ permalink: /flattened_timeline/
 
 * **260830**
     > **【个人活动｜藤本洸大】BLANK AND SEA服装联名 预约截止日⏰**{: .text-solo-k} ~23:59
-* **260827**
-    > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
 
 <div class="line"></div>
 
+* **260828**
+    > **【个人活动｜藤本洸大】某节目解禁直播**{: .text-solo-k} 19:30~ ⇨ [ins]()
+
+* **260827**
+    > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行6-10话** 8/11, 8/27 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030181_0001.html)
+    > **【修学旅行】ちるちる映像大賞2026结果发表**{: .text-other} 修仲获得作品部门3位、主演部门洸大6位/小简7位、名台词4位(「我们结婚吧」)、名场景3位(渡日告白) ⇨ [ins](https://www.instagram.com/p/DciM2lNE98X/)｜[结果发表网页](https://www.chil-chil.net/videoAward/y/2026/)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「花火大会 本音を打ち上げ」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2092812467445571755)/[ins](https://www.instagram.com/p/Dchw1E6h4i5/)
 * **260826**
     > **【修学旅行｜正片】日本映画専門频道 2ヶ月連続『修学旅行で仲良くないグループに入りました』放送記念特集 修学旅行1-5话** 7/13, 8/26 ⇨ [详情](https://www.nihon-eiga.com/program/detail/nh00030163_0001.html)
+    > **【杂志｜修学旅行S2】《週刊TVガイド》9/4号 修学旅行第二季/同窗会报道** ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2092379064212578439)
+    > **【杂志｜修学旅行S2】《TV Station》19号 修学旅行第二季/同窗会 豆腐块** ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/2092537943068164546)
     > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 杂志发售**{: .text-solo} ⇨ [𝕏封面](https://x.com/perceneige_mp/status/2089598798444277932)
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 黑白look拍摄花絮视频**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2092599562095726899)/[ins](https://www.instagram.com/p/DcgPuoRTpJg/)
     > **【个人活动｜简秀吉】简秀吉1st Photobook写真集 线下活动先着追加贩售**{: .text-solo} 19:00~ ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2092160535852912908)/[ins](https://www.instagram.com/p/DcdJmzdy-o1/)
+    > **【个人活动｜藤本洸大】BLANK AND SEA服装设计联名 商品图**{: .text-solo-k} ⇨ [𝕏](https://x.com/blankandsea/status/2092552635148620050)/[ins](https://www.instagram.com/p/DcgDlvfGLl1/)
+    > **【个人活动｜藤本洸大】某节目账号+直播预告**{: .text-solo-k} ⇨ [ins](https://www.instagram.com/p/Dcf_XsuS2AR/) 站长怎么也没想到修仲2的第一个直播是这个，基本已经在出坑的边缘了……
 * **260825**
     > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 洸大出演解禁!** @幕張メッセ1-3ホール 14:30~ ⇨ [𝕏](https://x.com/GirlsAward/status/2092101280865157552)｜[推し楽/出演名单](https://fan.books.rakuten.co.jp/articles/10215) 单人活动变双人！太爽了！
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 小简亲签小视频**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2092257021215326375)
@@ -103,7 +113,7 @@ permalink: /flattened_timeline/
 * **260824**
     > **【修学旅行S2】官方Tiktok小视频:五天王barabam** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7677530618829212948)
     > **【SNS｜快拍｜修学旅行】MR8社长发快拍:马来西亚修仲快闪店海报+艾特小简** 小简快拍回复:😳😱🙇‍♂️
-    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 洸大发双人offshot**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DcbHt-IFJiW/) 快拍BGM又再次出现《Sugar Rush》🩷🩷 ⇨ [🆈Sugar Rush](https://www.youtube.com/watch?v=BaTAo7IdIy4)
+    > **【杂志｜双人】《TVガイドdan》vol.61(8/20) 洸大发双人offshot**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DcbHt-IFJiW/) 快拍BGM又再次出现《Sugar Rush》🩷🩷(和洗发水宣传快拍用的是同一首BGM) ⇨ [🆈Sugar Rush](https://www.youtube.com/watch?v=BaTAo7IdIy4)
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 开始预售**{: .text-solo} 20:00~ ABCD四版 ⇨ [𝕏封面](https://x.com/blazeprojectmag/status/2091843252403974453)/[ins](https://www.instagram.com/p/Dca51vYE_jM)/[𝕏高清封面](https://x.com/official_MR8/status/2091849671258096073)｜[𝕏抽选亲签特典](https://x.com/blazeprojectmag/status/2091840394871165117)｜[𝕏配置/线下大屏特典](https://x.com/blazeprojectmag/status/2091840507215229399)｜小简发拍摄花絮照:[𝓲简-红](https://www.instagram.com/p/DcbKPC8gT_N/)｜[𝓲简-蓝](https://www.instagram.com/p/Dca6WPPgSrG/)
     > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24) 杂志发售/拍摄花絮视频**{: .text-solo} ⇨ [ins](https://www.instagram.com/p/DcbTsIaBq3J/)
     > **【杂志｜藤本洸大】《Preppy》11月号(10/1) 金发宣传视频**{: .text-solo-k} ⇨ [𝕏]()/[ins]()

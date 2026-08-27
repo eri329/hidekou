@@ -66,6 +66,9 @@ permalink: /
 
 <div class="line"></div>
 
+* **260827【修学旅行】ちるちる映像大賞2026结果发表**{: .text-other} 修仲获得作品部门3位、主演部门洸大6位/小简7位、名台词4位(「我们结婚吧」)、名场景3位(渡日告白) ⇨ [ins](https://www.instagram.com/p/DciM2lNE98X/)｜[结果发表网页](https://www.chil-chil.net/videoAward/y/2026/)
+* **260826【杂志｜修学旅行S2】《週刊TVガイド》9/4号 修学旅行第二季/同窗会报道** ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2092379064212578439)
+* **260826【杂志｜修学旅行S2】《TV Station》19号 修学旅行第二季/同窗会 豆腐块** ⇨ [𝕏封面](https://x.com/tokyonews_pr/status/2092537943068164546)
 * **260824【修学旅行S2】官方Tiktok小视频:五天王barabam** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7677530618829212948)
 * **260823【修学旅行S2】官推抽5人送原作漫画1卷+狐猪宣传视频** ⇨ [𝕏](https://x.com/dramal_abc/status/2091192420788817942)
 * **260822【修学旅行｜周边】马来西亚快闪店开设** 8/22~9/6 ⇨ [𝕏](https://x.com/ORBcafe_my/status/2090982288217796961)｜[𝕏告知(8/21)](https://x.com/ORBcafe_my/status/2090725601695203753)
@@ -78,7 +81,7 @@ permalink: /
     > **260818 线下照片展&线下特典公布** 8/20(木)～9/2(水) @HMV&BOOKS SHIBUYA 5F 线下特典生写1枚+抽选1张赠送狐猪亲签色纸 ⇨ [𝕏特典3线下生写特典](https://x.com/TVguidePERSON/status/2089624301658091664)｜[𝕏照片展(8/21)](https://x.com/HmvBooksShibuya/status/2090700214873260111)
     > **260819 杂志标题页图透** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2090012364389380245)
     > **260820 杂志发售** ⇨ [𝕏](https://x.com/tokyonews_pr/status/2090242558790394072)｜[𝕏推し楽](https://x.com/oshiraku/status/2090329462114259444)/[TVG](https://www.tvguide.or.jp/feature/feature-5186346/)｜[🆈TVdan拍摄花絮](https://www.youtube.com/watch?v=zu2hytbg_qA) <span>小简看起来没什么精神的样子😢但是洸大枕在小简大腿上扭来扭去还是有点把我甜到。洸大的安全距离已经全无了……</span>{: .text-pink}
-    > **260824 洸大发双人offshot** ⇨ [𝓲洸](https://www.instagram.com/p/DcbHt-IFJiW/) <span>快拍BGM又再次出现《Sugar Rush》🩷</span>{: .text-pink} ⇨ [🆈Sugar Rush](https://www.youtube.com/watch?v=BaTAo7IdIy4)
+    > **260824 洸大发双人offshot** ⇨ [𝓲洸](https://www.instagram.com/p/DcbHt-IFJiW/) <span>快拍BGM又再次出现《Sugar Rush》🩷🩷(和洗发水宣传快拍用的是同一首BGM)</span>{: .text-pink} ⇨ [🆈Sugar Rush](https://www.youtube.com/watch?v=BaTAo7IdIy4)
 * **260819【修学旅行S2】官方Tiktok小视频:修仲回来了!** F5再次cha两片想！⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7675665175441050900)/[𝕏](https://x.com/dramal_abc/status/2090001597464297512)/[ins](https://www.instagram.com/p/DcQvZ4CT2jt/)
 * **260819【修学旅行S2｜原作】原作小说新特典开始发布** 13:00~
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
