@@ -79,6 +79,19 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- https://timetreeapp.com/public_calendars/hidekou -->
 
+<!-- 造型师：https://www.instagram.com/hairmakesuga/?g=5 -->
+
+<!-- TVdan加入修仲百景 -->
+
+<!-- 涨粉5万发一个timeline -->
+
+
+[ 2026-08-30 ] 常规更新至8/31 2am；下一步整理FC内容。洸大FC补档2026年8月。
+
+[ 2026-08-28 ] 常规更新至8/29 4pm（一声叹息，心境已是大不同……）
+
+[ 2026-08-26 ] 常规更新至8/27 4pm
+
 [ 2026-08-25 ] 常规更新至8/26 4pm
 
 [ 2026-08-22 ~ 2026-08-24 ] **杂志号X查漏补缺**: STORY@story_web, 月刊TVguide, TVgiude dan, TVnavi, TVlife, SCawaii, Gianna, Duet, Fineboys, Fineboys@hinode_pub, JUNON, CYANMAN, Preppy, men's preppy; **杂志号ins查漏补缺**: STORY@story_love40, TVdan, SCawaii, Gianna, 月刊TVguide, Preppy, men's preppy, cyanman, fineboys, awesome, JUNON; 站长对自己:乙！
