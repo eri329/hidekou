@@ -83,18 +83,29 @@ permalink: /flattened_timeline/
 * **260905**
     > **【修学旅行｜正片】修学旅行TV再放送 第7话**
     > **【个人活动｜藤本洸大】电视剧「デス青春ゲーム」开播**{: .text-solo-k} 24:40~ ⇨ [𝕏]()
-* **260902**
-    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集纪念活动申请截止日⏰**{: .text-solo}
-
 
 <div class="line"></div>
+
+* **260902**
+    > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 图透**{: .text-solo} 棒球少年 ⇨ [𝕏](https://x.com/perceneige_mp/status/2094972070635663603) 这本杂造型很好看
+    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集纪念活动申请截止日⏰**{: .text-solo}
+* **260901**
+    > **【修学旅行S2】官推回顾修学旅行S1:日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！
+    * **【杂志｜简秀吉】《PREPPY》10月号(9/1) 杂志发售**{: .text-solo} 連載 簡秀吉の「MY 4CUT」vol.3 ⇨ [封面](https://x.com/preppy_magazine/status/2089547835180007713)｜[联动网页](https://preppyweb.com/article/34657)
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) Tiktok小视频接小玩偶**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2094762069803577671)/[ins](https://www.instagram.com/p/DcvpgoyTWBM/)
+    > **【SNS｜简秀吉】小简ins:趴床小视频🥱😴😪**{: .text-solo} 类似的物料宣过写真集 ⇨ [𝓲简](https://www.instagram.com/reel/DcvoxQRhdUv/)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「恋リアみたいな校外学習」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2094620690288902241)/[ins](https://www.instagram.com/p/DcuozQ3BVhW/)
 
 ### 2026.8
 {: #aug2026}
 
 * **260831**
+    > **【修学旅行】进藤导演快拍:海边堪景**
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 拍摄花絮复古贴图**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2094398125163372600)/[ins图不一样](https://www.instagram.com/p/DctECsdk5AB/)
+    > **【FC｜直播｜简秀吉】电台直播**{: .text-solo} 17:20~
     > **【个人活动｜藤本洸大】推测电视剧「デス青春ゲーム」杀青**{: .text-solo-k}
 * **260830**
+    > **【修学旅行】ELLE 横川良明の「沼の中心で愛をさけぶ」Vol.11**「『修学旅行で仲良くないグループに入りました』がBL戦国時代を勝ち抜くかもしれない理由」一篇修仲安利文 ⇨ [作者X](https://x.com/fudge_2002/status/2094395914194710854)｜[elle](https://www.elle.com/jp/culture/movie-tv/a73539133/shunaka-numachu-260831/)
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 蓝色look花絮视频**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2094034012214059192)/[ins](https://www.instagram.com/p/Dcqe-QcTXQ_/)
     > **【个人活动｜简秀吉】小简写真集账号:旧视频彩色版**{: .text-solo} ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2093973395293839689)/[ins](https://www.instagram.com/p/DcqCxLZSFcA/)
     > **【个人活动｜藤本洸大】BLANK AND SEA服装联名 预约截止日⏰**{: .text-solo-k} ~23:59

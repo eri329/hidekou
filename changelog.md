@@ -85,6 +85,7 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 
 <!-- 涨粉5万发一个timeline -->
 
+[ 2026-09-01 ] 常规更新至9/2 3pm
 
 [ 2026-08-30 ] 常规更新至8/31 2am；下一步整理FC内容。洸大FC补档2026年8月。
 

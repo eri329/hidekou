@@ -157,6 +157,7 @@ permalink: /category/
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
 * **260924 JUNON 11月号（BACK COVER）**{: .text-red}
 * **260911 CYAN MAN 10月号（特別版Wカバー）**{: .text-red}
+* **260901 PREPPY 10月号** 連載 簡秀吉の「MY 4CUT」vol.3 ⇨ [封面](https://x.com/preppy_magazine/status/2089547835180007713)｜[联动网页](https://preppyweb.com/article/34657)
 * **260826 週刊TVガイド 9/4号**{: .text-red}
 * **260826 TV Station 19号**{: .text-red}
 * **260826 PERCE NEIGE**「おちたらおわり」剧宣｜8p ⇨ [𝕏封面](https://x.com/perceneige_mp/status/2089598798444277932)

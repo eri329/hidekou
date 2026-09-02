@@ -65,6 +65,8 @@ permalink: /
     > **260810 进藤导演快拍:再始動！**
     > **260819 进藤导演快拍:今日堪景@坂道**
     > **260828 日置已经在录修仲2独白** by洸大经纪人 ⇨ [🔒FC](https://sp.tcland.jp/contents/1105656)
+    > **260831 进藤导演快拍:海边堪景**
+* **260901【修学旅行S2】官推回顾修学旅行S1:日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！
 
 
 ### 2026.8
@@ -72,6 +74,7 @@ permalink: /
 
 <div class="line"></div>
 
+* **260830【修学旅行】ELLE 横川良明の「沼の中心で愛をさけぶ」Vol.11**「『修学旅行で仲良くないグループに入りました』がBL戦国時代を勝ち抜くかもしれない理由」一篇修仲安利文 ⇨ [作者X](https://x.com/fudge_2002/status/2094395914194710854)｜[elle](https://www.elle.com/jp/culture/movie-tv/a73539133/shunaka-numachu-260831/)
 * **260828【修学旅行S2｜漫画】电子版漫画第2卷封面解禁** 第2卷收录6-12话 ⇨ [𝕏](https://x.com/novema_edit/status/2093188735974441173)
 * **260827【修学旅行】ちるちる映像大賞2026结果发表** 修仲获得作品部门3位、主演部门洸大6位/小简7位、名台词4位(「我们结婚吧」)、名场景3位(渡日告白) ⇨ [ins](https://www.instagram.com/p/DciM2lNE98X/)｜[结果发表网页](https://www.chil-chil.net/videoAward/y/2026/)｜[𝕏作品](https://x.com/BLaward_chil/status/2092870981404791145)/[𝕏名台词](https://x.com/BLaward_chil/status/2092874755938431078)/[𝕏名场景](https://x.com/BLaward_chil/status/2092873497886208328)
 * **260826【杂志｜修学旅行S2】《週刊TVガイド》9/4号 修学旅行第二季/同窗会报道** ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2092379064212578439)
