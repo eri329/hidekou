@@ -68,7 +68,7 @@ permalink: /flattened_timeline/
 * **261001**
     > **【杂志｜藤本洸大】《Preppy》11月号(10/1) 杂志发售**{: .text-solo-k} 金发/黑发两种封面
 * **260926**
-    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀**{: text-red} @幕張メッセ1-3ホール 14:30~；DXTEEN也去~
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀**{: text-red} @幕張メッセ1-3ホール 14:30~；DXTEEN、步汰、笑太郎也去~
 * **260924**
     > **【杂志｜双人】《JUNON》11月号(9/24) 杂志发售** ⇨ [𝕏]()
 * **260919**
@@ -80,18 +80,28 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】修学旅行TV再放送 第8话**
 * **260911**
     > **【杂志｜双人】《CYAN MAN》10月号(9/11) 杂志发售** 双人封面封底
+    > **【个人活动｜藤本洸大】香港&台北见面会 VIP&A席开票**{: .text-solo-k} ⇨ [𝕏香港](https://x.com/miaco_plus/status/2095089361457131856)｜[𝕏台北](https://x.com/mochimochiasia/status/2095089357451383123)
+* **260910**
+    > **【个人活动｜藤本洸大】香港&台北见面会 SVIP开票**{: .text-solo-k} ⇨ [𝕏香港](https://x.com/miaco_plus/status/2095089361457131856)｜[𝕏台北](https://x.com/mochimochiasia/status/2095089357451383123)
 * **260905**
     > **【修学旅行｜正片】修学旅行TV再放送 第7话**
     > **【个人活动｜藤本洸大】电视剧「デス青春ゲーム」开播**{: .text-solo-k} 24:40~ ⇨ [𝕏]()
 
 <div class="line"></div>
 
+* **260903**
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「浮き輪の準備終わらないで」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2095354573846467022)/[ins](https://www.instagram.com/p/Dczzx6OtC1x/)
 * **260902**
+    > **【修学旅行】官推回顾修学旅行S1:渡会紬嵩 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095110633704608212)/[ins](https://www.instagram.com/p/DcyH7O-zjQ-/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」和日置的7个造型是完全对应的!剧组有心了!
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 采访前篇** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2095124465613197532) 问了很多跟洸大有关的问题（干得好blaze👍）
     > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 图透**{: .text-solo} 棒球少年 ⇨ [𝕏](https://x.com/perceneige_mp/status/2094972070635663603) 这本杂造型很好看
-    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集纪念活动申请截止日⏰**{: .text-solo}
+    > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24) other cut3张/宣传视频**{: .text-solo} ⇨ [𝕏](https://x.com/GEKKAN_TVGUIDE/status/2095144091957014804) 背景图案是小简画的｜[𝕏宣传视频](https://www.instagram.com/p/DcyauzkBaff/)
+    > **【个人活动｜简秀吉】简秀吉1st Photobook写真集纪念活动申请截止日⏰**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2095071375732125932)
+    > **【个人活动｜藤本洸大】香港&台北见面会 开票链接/详情解禁**{: .text-solo-k} ⇨ [𝕏香港](https://x.com/miaco_plus/status/2095089361457131856)｜[𝕏台北](https://x.com/mochimochiasia/status/2095089357451383123)
+    > **【修学旅行S2】清水海李ins快拍发理发后照片** 堀田归来!
 * **260901**
-    > **【修学旅行S2】官推回顾修学旅行S1:日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！
-    * **【杂志｜简秀吉】《PREPPY》10月号(9/1) 杂志发售**{: .text-solo} 連載 簡秀吉の「MY 4CUT」vol.3 ⇨ [封面](https://x.com/preppy_magazine/status/2089547835180007713)｜[联动网页](https://preppyweb.com/article/34657)
+    > **【修学旅行】官推回顾修学旅行S1:日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！
+    > **【杂志｜简秀吉】《PREPPY》10月号(9/1) 杂志发售**{: .text-solo} 連載 簡秀吉の「MY 4CUT」vol.3 ⇨ [封面](https://x.com/preppy_magazine/status/2089547835180007713)｜[联动网页](https://preppyweb.com/article/34657)
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) Tiktok小视频接小玩偶**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2094762069803577671)/[ins](https://www.instagram.com/p/DcvpgoyTWBM/)
     > **【SNS｜简秀吉】小简ins:趴床小视频🥱😴😪**{: .text-solo} 类似的物料宣过写真集 ⇨ [𝓲简](https://www.instagram.com/reel/DcvoxQRhdUv/)
     > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「恋リアみたいな校外学習」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2094620690288902241)/[ins](https://www.instagram.com/p/DcuozQ3BVhW/)
@@ -102,7 +112,7 @@ permalink: /flattened_timeline/
 * **260831**
     > **【修学旅行】进藤导演快拍:海边堪景**
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 拍摄花絮复古贴图**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2094398125163372600)/[ins图不一样](https://www.instagram.com/p/DctECsdk5AB/)
-    > **【FC｜直播｜简秀吉】电台直播**{: .text-solo} 17:20~
+    > **【FC｜直播｜简秀吉】电台直播**{: .text-solo} 17:20~ 小简:我已经随时可以演渡会了!
     > **【个人活动｜藤本洸大】推测电视剧「デス青春ゲーム」杀青**{: .text-solo-k}
 * **260830**
     > **【修学旅行】ELLE 横川良明の「沼の中心で愛をさけぶ」Vol.11**「『修学旅行で仲良くないグループに入りました』がBL戦国時代を勝ち抜くかもしれない理由」一篇修仲安利文 ⇨ [作者X](https://x.com/fudge_2002/status/2094395914194710854)｜[elle](https://www.elle.com/jp/culture/movie-tv/a73539133/shunaka-numachu-260831/)

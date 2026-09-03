@@ -66,7 +66,11 @@ permalink: /
     > **260819 进藤导演快拍:今日堪景@坂道**
     > **260828 日置已经在录修仲2独白** by洸大经纪人 ⇨ [🔒FC](https://sp.tcland.jp/contents/1105656)
     > **260831 进藤导演快拍:海边堪景**
-* **260901【修学旅行S2】官推回顾修学旅行S1:日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！
+    > **260902 海李理发** by海李ins快拍
+* **260902【杂志｜简秀吉】《BLAZE》8月号(8/24) 采访前篇** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2095124465613197532) 问了很多跟洸大有关的问题（干得好blaze👍）
+* **260901【修学旅行】官推回顾修学旅行S1**
+    > **260901 日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！</span>{: .text-pink}
+    > **260902 渡会紬嵩 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095110633704608212)/[ins](https://www.instagram.com/p/DcyH7O-zjQ-/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」和日置的7个造型是完全对应的!剧组有心了!</span>{: .text-pink}
 
 
 ### 2026.8

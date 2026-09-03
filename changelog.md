@@ -15,7 +15,7 @@ layout: page
 * 秀洸快拍: story, highlight
 * 修仲官方ins快拍/转发
 * 各家杂志/电视剧官号
-    > X: [TVlife](https://x.com/tv_life), [TVguide dan](https://x.com/TVguidePERSON), [月刊TVガイド](https://x.com/GEKKAN_TVGUIDE), [週刊TVガイド](https://x.com/weekly_tvguide), [TVnavi](https://x.com/TVnavi_PR), [Gianna BF](https://x.com/GIANNABOYFRIEND), [Cyanman](https://x.com/CYANMANMAGAZINE), [JUNON](https://x.com/JUNON_jp), [Preppy](https://x.com/preppy_magazine), [SCawaii](https://x.com/mag_scawaii), [SCawaii ME](https://x.com/mag_scawaii_men), [Fineboys](https://x.com/FINEBOYS_JP), [Fineboys-hinode](https://x.com/hinode_pub), [Men's Preppy](https://x.com/MensPREPPY), [andBoy](https://x.com/andBOY_jp), [awesome](https://x.com/BP25th_awesome), [duet](https://x.com/duet_home), [cinema square](https://x.com/CINEMASQUARE)
+    > X: [TVlife](https://x.com/tv_life), [TVguide dan](https://x.com/TVguidePERSON), [月刊TVガイド](https://x.com/GEKKAN_TVGUIDE), [TVguide Web](https://x.com/TVGweb), [週刊TVガイド](https://x.com/weekly_tvguide), [TVnavi](https://x.com/TVnavi_PR), [Gianna BF](https://x.com/GIANNABOYFRIEND), [Cyanman](https://x.com/CYANMANMAGAZINE), [JUNON](https://x.com/JUNON_jp), [Preppy](https://x.com/preppy_magazine), [SCawaii](https://x.com/mag_scawaii), [SCawaii ME](https://x.com/mag_scawaii_men), [Fineboys](https://x.com/FINEBOYS_JP), [Fineboys-hinode](https://x.com/hinode_pub), [Men's Preppy](https://x.com/MensPREPPY), [andBoy](https://x.com/andBOY_jp), [awesome](https://x.com/BP25th_awesome), [duet](https://x.com/duet_home), [cinema square](https://x.com/CINEMASQUARE)
     > Ins: [*TVlife](https://www.instagram.com/tv_life_official/), [TVguide dan](https://www.instagram.com/tvgperson/), [月刊TVガイド](https://www.instagram.com/gekkan_tvguide/), [週刊TVガイド](https://www.instagram.com/weeklytvguide/), [Gianna BF](https://www.instagram.com/gianna_boyfriend/), [Cyanman](https://www.instagram.com/cyanmanmagazine/), [JUNON](https://www.instagram.com/junon_jp/), [Preppy](https://www.instagram.com/preppymagazine_official/), [SCawaii](https://www.instagram.com/scawaii.magazine/), [SCawaii ME](https://www.instagram.com/mag_scawaii_me/), [Fineboys](https://www.instagram.com/fineboys_jp/), [fineboys-hinode](https://www.instagram.com/hinode_publishing/), [Men's Preppy](https://www.instagram.com/mens.preppy/), [andBoy](https://www.instagram.com/andboy_jp/), [awesome](https://www.instagram.com/awesomemagazine_2010/)
     > TV LIFE全年份目录: [首都圈版](https://www.fujisan.co.jp/product/1747/b/list/)/[关西版](https://www.fujisan.co.jp/product/1746/b/list/)
 * 工作人员账号(化妆摄影师etc)
@@ -84,6 +84,8 @@ https://fan.books.rakuten.co.jp/articles/8545 -->
 <!-- TVdan加入修仲百景 -->
 
 <!-- 涨粉5万发一个timeline -->
+
+[ 2026-09-02 ] 常规更新至9/3 4pm
 
 [ 2026-09-01 ] 常规更新至9/2 3pm
 
