@@ -67,13 +67,22 @@ permalink: /flattened_timeline/
     > **【修学旅行｜正片】修学旅行TV再放送 第9话** ※25:00～25:30
 * **261001**
     > **【杂志｜藤本洸大】《Preppy》11月号(10/1) 杂志发售**{: .text-solo-k} 金发/黑发两种封面
+* **260929**
+    > **【个人活动｜藤本洸大】电影「仿佛清新气息」上映活动(9/29)**{: .text-solo-k} @渋谷ユーロライブ 播放两场, 洸大均登场
 * **260926**
     > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀**{: text-red} @幕張メッセ1-3ホール 14:30~；DXTEEN、步汰、笑太郎也去~
+    > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第2回 情报解禁**{: .text-solo-k} 13:00~ 嘉宾:渡部秀 ⇨ [配信链接](https://www.showroom-live.com/r/junonsuperboyclub) 同一天还有TGC，洸大的日程也太紧张了……
 * **260924**
     > **【杂志｜双人】《JUNON》11月号(9/24) 杂志发售** ⇨ [𝕏]()
 * **260919**
     > **【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划 ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
-    > **【个人活动｜简秀吉】TGC 2026秋冬走秀**{: .text-solo} @横浜アリーナ
+    > **【个人活动｜简秀吉】TGC 2026秋冬走秀**{: .text-solo} @横浜アリーナ 13:30~ ⇨ [AMEBA直播](https://abema.go.link/9RSm5)
+
+<div class="line"></div>
+
+* **260914**
+    > **【修学旅行S2】修学旅行TVer收藏数达到30万!**{: .text-red} ⇨ [𝕏官推发帖(9/15)](https://x.com/dramal_abc/status/2099666000853840085)
+    > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「付箋飛ばし対決！」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2099331736912237008)
 * **260913**
     > **【杂志｜双人】《CYAN MAN》10月号(9/11) 线下展+特典** 9/13~9/14
 * **260912**
@@ -83,22 +92,47 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】香港&台北见面会 VIP&A席开票**{: .text-solo-k} ⇨ [𝕏香港](https://x.com/miaco_plus/status/2095089361457131856)｜[𝕏台北](https://x.com/mochimochiasia/status/2095089357451383123)
 * **260910**
     > **【个人活动｜藤本洸大】香港&台北见面会 SVIP开票**{: .text-solo-k} ⇨ [𝕏香港](https://x.com/miaco_plus/status/2095089361457131856)｜[𝕏台北](https://x.com/mochimochiasia/status/2095089357451383123)
+* **260909**
+    > **【杂志｜简秀吉】《FINEBOYS》10月号(9/9) 杂志发售**{: .text-solo} ⇨ [𝕏封面](https://x.com/hinode_pub/status/2095836780205338999)
+    > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第2回 情报解禁**{: .text-solo-k} 9/26(土)13:00~ 嘉宾:渡部秀 ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2097595876369650097)
+* **260908**
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 采访后篇/FC限定花絮**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2097282087200182659)｜[🔒FC-blaze花絮视频](https://kan-hideyoshi.com/movies/132194)/[𝕏8s预告](https://x.com/official_MR8/status/2097287754275254313)
+    > **【个人活动｜简秀吉】TGC 2026秋冬走秀 小简的脸颊舞**{: .text-solo} ⇨ [𝕏](https://x.com/TGCnews/status/2097157985030308082)
+* **260907**
+    > **【修学旅行S2】官方Tiktok发修仲S1最速回顾**{: .text-red} ⇨ [𝕏](https://x.com/dramal_abc/status/2096259674748444915) 爆笑剪辑！公式桑真的超有网感，天才运营来的
+    > **【修学旅行S2】DXTEEN发表新曲标题:8th single「相思想爱」** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2096871100542304647) 2026/12/9 release；把相思“相”爱换成了相思“想”爱，很会起标题！
+* **260906**
+    > **【直播｜双人】狐猪双人直播玩游戏**{: .text-red} 20:45~ @修仲官方ins ⇨ [ins直播](https://www.instagram.com/reel/Dc8iqbkk5jC/) 紧急直播5点多才通知，校服秀洸，直播了半个小时，最高7700+人；直播透露是修仲2取材日，两个人感觉累懵了。
+    > **【修学旅行S2】官推发修仲五天王口播宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/2096259674748444915)
+    > **【修学旅行S2】进藤导演快拍:看了再放送第7话** 大意:制作第二季的动力更强烈了。这次从一开始就感觉到大家“心的距离”很近，这是第二季的优势。但是因为下雨今天拍摄中止了😂
+    > **【修学旅行S2】DXTEEN预告:9/7 17:00有通知** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2096576650578448598)
+    > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 再次图透:白衬衫**{: .text-solo} ⇨ [𝕏](https://x.com/perceneige_mp/status/2096437795988582478)
+    > **【个人活动｜藤本洸大】电影「仿佛清新气息」上映活动(9/29)情报解禁**{: .text-solo-k} ⇨ [𝕏](https://x.com/stblue_voice/status/2096524048448823601) @渋谷ユーロライブ 洸大登场
+    <!-- > 洸大日记和经纪人笔记 -->
 * **260905**
     > **【修学旅行｜正片】修学旅行TV再放送 第7话**
+    > **【修学旅行S2】官推发abc狐猪宣传片段** 和搜查吻联动；特别短 ⇨ [𝕏](https://x.com/dramal_abc/status/2096251639527362899)
+    > **【修学旅行S2】进藤导演发SNS:开机** ⇨ [𝕏](https://x.com/shindo59512/status/2096094890929401944)/[ins]()
+    > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 红色look花絮**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2096247363958350014)
     > **【个人活动｜藤本洸大】电视剧「デス青春ゲーム」开播**{: .text-solo-k} 24:40~ ⇨ [𝕏]()
-
-<div class="line"></div>
-
+    > **【修学旅行】官推回顾修学旅行S1:堀田颯斗 七変化🪄🫧**{: .text-other} ⇨ [𝕏](https://x.com/dramal_abc/status/2096197826174927060)/[ins]()
+* **260904**
+    > **【修学旅行S2】修仲2开机!**{: .text-red} by秀洸快拍/小简FC 小简发了洸大后脑勺快拍，披露了从来没人见过的洸大后脑勺的三颗痣！嗯嗯完全是男友视角……
+    > **【修学旅行｜漫画】漫画第2卷电子版发售/第12话配信** 收录7~12话；有2p限定漫画特典 ⇨ [𝕏](https://x.com/BeLuckbunko/status/2095753727760380069)｜[cmoa](https://www.cmoa.jp/title/354469/)｜[修仲漫画汇总页](https://novema.jp/comic/beluck-comics/book/n443#comic-book-2038)｜[𝕏12话插图](https://x.com/BeLuckbunko/status/2095753729861718252)
+    > **【杂志｜简秀吉】《FINEBOYS》10月号(9/9) 封面解禁**{: .text-solo} ⇨ [𝕏封面](https://x.com/hinode_pub/status/2095836780205338999)
+    > **【杂志｜藤本洸大】《Preppy》11月号(10/1) 洸大宣传视频(黑发)**{: .text-solo-k} ⇨ [𝕏](https://x.com/preppy_magazine/status/2095712202670125154) 竟然是年初的“瑞典”造型，preppy整整憋了半年多才放出来吗➡️和这套造型是一样的:[推し楽](https://fan.books.rakuten.co.jp/articles/5677)
+    > **【修学旅行】官推回顾修学旅行S1:仲里晴輝 七変化🪄🫧**{: .text-other} ⇨ [𝕏](https://x.com/dramal_abc/status/2095840345502425415)/[ins]()
 * **260903**
     > **【个人活动｜藤本洸大】AI短剧「びっくりあいらんど」惊奇岛 Season2「浮き輪の準備終わらないで」**{: .text-solo-k} ⇨ [𝕏](https://x.com/z_drama_ntv/status/2095354573846467022)/[ins](https://www.instagram.com/p/Dczzx6OtC1x/)
+    > **【修学旅行】官推回顾修学旅行S1:守崎尚哉 七変化🪄🫧**{: .text-other} ⇨ [𝕏](https://x.com/dramal_abc/status/2095469675337691605)/[ins]()
 * **260902**
-    > **【修学旅行】官推回顾修学旅行S1:渡会紬嵩 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095110633704608212)/[ins](https://www.instagram.com/p/DcyH7O-zjQ-/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」和日置的7个造型是完全对应的!剧组有心了!
+    > **【修学旅行】官推回顾修学旅行S1:渡会紬嵩 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095110633704608212)/[ins](https://www.instagram.com/p/DcyH7O-zjQ-/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」和日置的7个造型是对应的!
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 采访前篇** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2095124465613197532) 问了很多跟洸大有关的问题（干得好blaze👍）
     > **【杂志｜简秀吉】《PERCE NEIGE》(8/26) 图透**{: .text-solo} 棒球少年 ⇨ [𝕏](https://x.com/perceneige_mp/status/2094972070635663603) 这本杂造型很好看
     > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24) other cut3张/宣传视频**{: .text-solo} ⇨ [𝕏](https://x.com/GEKKAN_TVGUIDE/status/2095144091957014804) 背景图案是小简画的｜[𝕏宣传视频](https://www.instagram.com/p/DcyauzkBaff/)
     > **【个人活动｜简秀吉】简秀吉1st Photobook写真集纪念活动申请截止日⏰**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2095071375732125932)
     > **【个人活动｜藤本洸大】香港&台北见面会 开票链接/详情解禁**{: .text-solo-k} ⇨ [𝕏香港](https://x.com/miaco_plus/status/2095089361457131856)｜[𝕏台北](https://x.com/mochimochiasia/status/2095089357451383123)
-    > **【修学旅行S2】清水海李ins快拍发理发后照片** 堀田归来!
+    > **【修学旅行S2】清水海李ins快拍发理发后照片**{: .text-other} 堀田归来!
 * **260901**
     > **【修学旅行】官推回顾修学旅行S1:日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！
     > **【杂志｜简秀吉】《PREPPY》10月号(9/1) 杂志发售**{: .text-solo} 連載 簡秀吉の「MY 4CUT」vol.3 ⇨ [封面](https://x.com/preppy_magazine/status/2089547835180007713)｜[联动网页](https://preppyweb.com/article/34657)
@@ -126,7 +160,7 @@ permalink: /flattened_timeline/
     > **【off｜藤本洸大】中川翼ins直播透露今天和洸大一起上课了，洸大看了等虎**{: .text-solo-k}
 * **260828**
     > **【杂志｜双人】《JUNON》11月号(9/24) 双人封底登场解禁** ⇨ [𝕏](https://x.com/JUNON_jp/status/2093247298327240920)
-    > **【修学旅行S2｜漫画】电子版漫画第2卷封面解禁** 第2卷收录6-12话 ⇨ [𝕏](https://x.com/novema_edit/status/2093188735974441173)
+    > **【修学旅行S2｜漫画】电子版漫画第2卷封面解禁** 第2卷收录7~12话 ⇨ [𝕏](https://x.com/novema_edit/status/2093188735974441173)
     > **【修学旅行S2｜原作】原作新特典活动电子版特典活动开始** 8/28~9/10 抽送礼品券，其中2张有简秀吉签名 ⇨ [𝕏](https://x.com/novema_edit/status/2093189169678020917)
     > **【FC｜藤本洸大】经纪人笔记:前几天日置已经在录修仲2的独白了** ⇨ [🔒FC](https://sp.tcland.jp/contents/1105656)
     > **【SNS｜简秀吉】小简ins发吃沙拉的一天**{: .text-solo} ⇨ [𝓲简](https://www.instagram.com/p/DclcOCbgbBb/)
@@ -148,7 +182,7 @@ permalink: /flattened_timeline/
     > **【个人活动｜简秀吉】简秀吉1st Photobook写真集 线下活动先着追加贩售**{: .text-solo} 19:00~ ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2092160535852912908)/[ins](https://www.instagram.com/p/DcdJmzdy-o1/)
     > **【FC｜直播｜简秀吉】小简直播**{: .text-solo}
     > **【个人活动｜藤本洸大】BLANK AND SEA服装设计联名 商品图**{: .text-solo-k} ⇨ [𝕏](https://x.com/blankandsea/status/2092552635148620050)/[ins](https://www.instagram.com/p/DcgDlvfGLl1/)
-    > **【个人活动｜藤本洸大】某节目账号+直播预告**{: .text-solo-k} ⇨ [ins](https://www.instagram.com/p/Dcf_XsuS2AR/) 站长怎么也没想到修仲2的第一个直播是这个，基本已经在出坑的边缘了……
+    > **【个人活动｜藤本洸大】某节目账号+直播预告**{: .text-solo-k} ⇨ [ins](https://www.instagram.com/p/Dcf_XsuS2AR/) 怎么也没想到修仲2的第一个直播是这个，站长一蹶不振中……
 * **260825**
     > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 洸大出演解禁!** @幕張メッセ1-3ホール 14:30~ ⇨ [𝕏](https://x.com/GirlsAward/status/2092101280865157552)｜[推し楽/出演名单](https://fan.books.rakuten.co.jp/articles/10215) 单人活动变双人！太爽了！
     > **【杂志｜简秀吉】《BLAZE》8月号(8/24) 小简亲签小视频**{: .text-solo} ⇨ [𝕏](https://x.com/blazeprojectmag/status/2092257021215326375)

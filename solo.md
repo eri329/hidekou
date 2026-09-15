@@ -50,12 +50,15 @@ permalink: /solo/
     > **FC2次先行先着贩售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2093648820383121543)/[𝓲简](https://www.instagram.com/p/DcnuZ0lgbu1/) *造型师金田健志*{: .text-small}
 
 ---
-* **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ
+* **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ 13:30~ ⇨ [AMEBA直播](https://abema.go.link/9RSm5)
     > **260525 マイナビ TGC 2026 A/W(秋冬)出演決定!** ⇨ [𝕏](https://x.com/TGCnews/status/2058775066377367733)
     > **260603 小简宣传视频** TGC出演希望 個人部門で1位 ⇨ [𝕏](https://x.com/TGCnews/status/2062096953249288594) 表达了对第1位的感谢，以及对初次走秀的憧憬，最后还玩了一把抽象，很忙的一个视频www
     > **260603 簡秀吉コラボ企画** 向大家征集想要小简实现的愿望 ⇨ [𝕏](https://x.com/tgcnews/status/2062098208109817903)
     > **260707 电波手势舞**{: .text-red} ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
-* **260901 《PREPPY》10月号(9/1) 杂志发售** 連載 簡秀吉の「MY 4CUT」vol.3 ⇨ [封面](https://x.com/preppy_magazine/status/2089547835180007713)｜[联动网页](https://preppyweb.com/article/34657)
+    > **260908 脸颊舞** ⇨ [𝕏](https://x.com/TGCnews/status/2097157985030308082)
+* **260909《FINEBOYS》10月号(9/9) 杂志发售**
+    > **260904 封面解禁** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2095836780205338999)
+* **260901《PREPPY》10月号(9/1) 杂志发售** 連載 簡秀吉の「MY 4CUT」vol.3 ⇨ [封面](https://x.com/preppy_magazine/status/2089547835180007713)｜[联动网页](https://preppyweb.com/article/34657)
 
 ---
 * **260831 推测电视剧「デス青春ゲーム」杀青**{: .text-off}  by洸大日记
@@ -64,6 +67,7 @@ permalink: /solo/
     > **260726 情报解禁** ⇨ [𝕏](https://x.com/perceneige_mp/status/2081333721639297136)
     > **260822 图透**{: .text-red} ⇨ [𝕏](https://x.com/perceneige_mp/status/2090986662650433839) 好清爽好帅！
     > **260902 再次图透** 棒球少年 ⇨ [𝕏](https://x.com/perceneige_mp/status/2094972070635663603)
+    > **260906 再次图透** 白衬衫 ⇨ [𝕏](https://x.com/perceneige_mp/status/2096437795988582478)
 * **260824《BLAZE》8月号(8/24) 杂志预售** 韩国拍摄
     > **260819 情报解禁/图透预告:红** 红色眼镜小简 ⇨ [𝕏视频](https://x.com/blazeprojectmag/status/2089744747917349306)/[ins](https://www.instagram.com/p/DcL_1THTuWc/)｜[𝕏照片](https://x.com/blazeprojectmag/status/2090030804114227540)/[ins图更大](https://www.instagram.com/p/DcOCBCCE4JD/)
     > **260820/260821 图透预告:蓝/黑** ⇨ [𝕏蓝](https://x.com/blazeprojectmag/status/2090393820127211783)/[ins图更大](https://www.instagram.com/p/DcQm4PyE3Es/)｜[𝕏黑](https://x.com/blazeprojectmag/status/2090756015138754855)/[ins图更大](https://www.instagram.com/p/DcTL9ick0yk/)
@@ -79,6 +83,8 @@ permalink: /solo/
     > **260831 拍摄花絮复古贴图** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2094398125163372600)/[ins图不一样](https://www.instagram.com/p/DctECsdk5AB/)
     > **260901 Tiktok小视频接小玩偶** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2094762069803577671)/[ins](https://www.instagram.com/p/DcvpgoyTWBM/)
     > **260902 采访前篇** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2095124465613197532)
+    > **260905 红色look花絮视频** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2096247363958350014)
+    > **260908 采访后篇/FC限定花絮** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2097282087200182659)｜[🔒FC限定花絮视频](https://kan-hideyoshi.com/movies/132194)/[𝕏8s预告](https://x.com/official_MR8/status/2097287754275254313)
 * **260824《月刊TVガイド》10月号(8/24) 杂志发售**《跌落就完了》剧宣杂 ⇨ [𝕏封面](https://x.com/GEKKAN_TVGUIDE/status/2091732199590519050)
     > **260731 情报解禁** ⇨ [𝕏情报解禁(无图)](https://x.com/GEKKAN_TVGUIDE/status/2083100461989769462)｜[𝕏图](https://x.com/TVGweb/status/2083024853427200069)/[ins](https://www.instagram.com/p/Dbe5TDigYXv/)/[𝕏高清图](https://x.com/tokyonews_pr/status/2083100711387357393) 生写特典三随一/全套
     > **260824 拍摄花絮视频** ⇨ [ins](https://www.instagram.com/p/DcbTsIaBq3J/)
@@ -173,6 +179,8 @@ permalink: /solo/
     > **260806 小简切片** ⇨ [ins](https://www.instagram.com/p/DbsV7oeTZja/)
     > **260827 最终回预告** ⇨ [𝕏](https://x.com/ctv_dorama/status/2092923344349995024)
     > **260901 最终回剧照** ⇨ [𝕏](https://x.com/ctv_dorama/status/2094741932362838440)
+    > **260906 杀青视频** ⇨ [𝕏](https://x.com/ctv_dorama/status/2096575388965339407)
+    > **260909 杀青照** ⇨ [𝕏](https://x.com/ctv_dorama/status/2097610963990307327)
 * **260701《Seventeen》夏号(7/1)杂志发售** ⚠️是BG企画 ⇨ [𝕏封面](https://x.com/SeventeenJP_mag/status/2072106685565702544)
     > **260705 宣传视频with女模特** ⇨ [ins](https://www.instagram.com/reel/DaZus8rztJE/)
     > **260719 BG向特别视频** ⇨ [ins](https://www.instagram.com/p/Da91X4tzkBZ/)
@@ -530,6 +538,7 @@ permalink: /solo/
     > **260910~260911 开票**
 * **261024 神戸女学院大学岡田山祭 藤本洸大talkshow** 16:30~
     > **260801 情报解禁** ⇨ [𝕏](https://x.com/festival_kc/status/2083135735197278607)
+    > **260914 售票详情** ⇨ [𝕏](https://x.com/festival_kc/status/2099302111955796340)
 * **261011 洸大1st写真集东京签售会**{: .text-red}
 * **261010 洸大1st写真集大阪签售会**{: .text-red}
 * **261006 洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」(姜汁威士忌苏打)10月6日发售**{: .text-red}
@@ -549,12 +558,26 @@ permalink: /solo/
 * **261001《Preppy》11月号(10/1) 杂志发售**
     > **摘要** 金发/黑发两种封面；20p；5家店铺共6种特典(B5照片卡)
     > **260821 情报解禁(无图)** ⇨ [𝕏1-heritage](https://x.com/preppy_magazine/status/2090635007127924769)/[𝕏2-日亚HMV](https://x.com/preppy_magazine/status/2090685856650867006)/[𝕏3-塔711](https://x.com/preppy_magazine/status/2090686239792070860)
+    > **260904 洸大宣传视频(黑发)** ⇨ [𝕏](https://x.com/preppy_magazine/status/2095712202670125154) 竟然是年初的“瑞典”造型，preppy整整憋了半年多才放出来吗；和这套造型是一样的:[推し楽](https://fan.books.rakuten.co.jp/articles/5677)
 
 ---
-* **260905 电视剧「デス青春ゲーム」开播** 24:40~ 村瀬ソウスケ役；像是校园悬疑大逃杀题材，洸大饰演被女主暗恋的男生。
+* **260929 电影「仿佛清新气息」上映活动(9/29)**  STUDIO BLUE 20周年纪念活动 @渋谷ユーロライブ 17:00/19:50 洸大均登场
+    > **260906 情报解禁** ⇨ [𝕏](https://x.com/stblue_voice/status/2096524048448823601)
+* **260926 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第2回** 13:00~ 嘉宾:渡部秀 ⇨ [配信链接](https://www.showroom-live.com/r/junonsuperboyclub)  同一天还有TGC，洸大的日程也太紧张了……
+    > **260909 情报解禁** ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2097595876369650097)
+* **260905 电视剧「デス青春ゲーム」开播** 24:40~ 「死亡青春游戏」村瀬ソウスケ役；像是校园悬疑大逃杀题材，洸大饰演被女主暗恋的男生。
     > **260822 情报解禁** ⇨ [𝕏主卡司解禁](https://x.com/dramadaisakusen/status/2090997385925361938)/[ins](https://www.instagram.com/p/DcU5byUE9mk/)｜[𝕏主视觉解禁](https://x.com/dramadaisakusen/status/2090997389356040610)/[ins](https://www.instagram.com/p/DcU5rvik8z0/)｜[𝕏第1话预告](https://x.com/dramadaisakusen/status/2090997637541765244)/[ins](https://www.instagram.com/p/DcU5ZuSkQlY/)｜[全卡司&出演感想](https://www.tvlife.jp/drama/811469) 洸大:「我饰演的ソウスケ是一个既有些好强逞能、又常常感情用事的学生。他有时会做错事，有时也会顾前不顾后、看不清周围的情况。」
     > **260831 洸大角色介绍&留言** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2094379683945005176)/[ins](https://www.instagram.com/p/Dcs7eYUEVzB/)
     > **260902 放送还剩3天:剧照** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2095104456840941770)/[ins](https://www.instagram.com/p/Dcs7f8rEZqa/)
+    > **260905 开播** ⇨ [𝕏剧照](https://x.com/TVGweb/status/2096063517690318934)｜[𝕏吉泽要人发offshot](https://x.com/kanamey_0712/status/2096226850582540378)｜[𝕏学生合照](https://x.com/hazuki_0806_/status/2096173258752344090)
+    > **260906 洸大和女主offshot** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2096403013288026616)｜[𝕏花絮视频](https://x.com/dramadaisakusen/status/2096433215363748056)
+    > **260906 第1话切片/第2话预告** ⇨ [𝕏女主暗恋](https://x.com/dramadaisakusen/status/2096433207759740991)｜[𝕏壁咚](https://x.com/dramadaisakusen/status/2096433207273300258)｜[𝕏第2话预告](https://x.com/dramadaisakusen/status/2096267118400479496)
+    > **260909 洸大和两位女演员offshot** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2097610983090921606)
+    > **260913 泳池花絮** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2098969925172031876)
+    > **260913 第2话切片/第3话预告** ⇨ [𝕏1](https://x.com/dramadaisakusen/status/2098969920289587382)｜[𝕏2](https://x.com/dramadaisakusen/status/2098969926379667622)｜[𝕏第3话预告](https://x.com/dramadaisakusen/status/2098803824697688561)
+    > **260913 教室乐器四人offshot** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2099060527661998211)
+    > **260913 教室花絮滑步跳舞** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2099090720610988061)
+    > **260914 洸大花絮采访** ⇨ [𝕏](https://x.com/dramadaisakusen/status/2099422913849893205) 洸大眼睛亮亮的，说片场是一个很好的表演场所。真的是很“演员”的感想啊。
 
 ---
 * **260826 藤本洸大&桜木雅哉 新节目**
@@ -682,6 +705,7 @@ permalink: /solo/
     > **260827「花火大会 本音を打ち上げ」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2092812467445571755)/[ins](https://www.instagram.com/p/Dchw1E6h4i5/)
     > **260901「恋リアみたいな校外学習」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2094620690288902241)/[ins](https://www.instagram.com/p/DcuozQ3BVhW/)
     > **260903「浮き輪の準備終わらないで」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2095354573846467022)/[ins](https://www.instagram.com/p/Dczzx6OtC1x/)
+    > **260914「付箋飛ばし対決！」** ⇨ [𝕏](https://x.com/z_drama_ntv/status/2099331736912237008)
 
 ---
 * **260627 CHANELルージュ ココ イドゥラ グロス活动** 推荐442 ACCESSOIRE ⇨ [𝓲洸](https://www.instagram.com/p/DaFqreUFB47/)

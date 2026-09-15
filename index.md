@@ -55,23 +55,36 @@ permalink: /
 * **260919【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划  ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
     > **260810 情报解禁** 8/10~8/23 先行抽选；9/12~ 一般开票 ⇨ [𝕏](https://x.com/LVJ_culture/status/2086784879073824833)｜[𝕏推し楽](https://x.com/oshiraku/status/2086784630821446027)
     > **260820 现场特典影像是修仲第二季拍摄花絮!** ⇨ [𝕏](https://x.com/LVJ_culture/status/2090363218048774425)
+* **260914【修学旅行S2】修学旅行TVer收藏数达到30万!**{: .text-red} ⇨ [𝕏官推发帖(9/15)](https://x.com/dramal_abc/status/2099666000853840085)
 * **260911【杂志｜双人】《CYAN MAN》10月号 SPECIAL EDITION(9/11) 杂志发售**{: .text-red} 双人封面封底
     > 22p, 主题ANOTHER AFTER HOURS「ドラマの世界線とは違う、別の世界での2人が親友として出会ったら……」「最近の美容事情、お互いの好きなパーツ、修仲メンバーと旅行に行くなら……!?」当然还有修仲2的话题。（站长:这杂志也太良心了没有割特典…）
     > **260820 情报/封面解禁/双人宣传**{: .text-red} ⇨ [𝕏封面封底/内容情报](https://x.com/CYANMANMAGAZINE/status/2090363217587408952)/[ins](https://www.instagram.com/p/DcQZEOPBOa6/)｜[𝕏双人宣传](https://x.com/CYANMANMAGAZINE/status/2090363207508709863)/[ins](https://www.instagram.com/p/DcQZAVQBr-r/) 小简又看不到正脸了☺️(但还是感觉情绪不太高的样子)
     > **260827 线下展+明信片特典情报解禁** 9/13~9/14 ⇨ [𝕏](https://x.com/CYANMANMAGAZINE/status/2092900173961724285)/[ins](https://www.instagram.com/p/Dcf3hTdT3rN/)
     > **260913~260914 线下展**
-* **【修学旅行S2】拍摄日志**{: .text-red}
+* **260907【修学旅行S2】DXTEEN发表新曲标题:8th single「相思想爱」** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2096871100542304647) 2026/12/9 release；把相思“相”爱换成了相思“想”爱，很会起标题！
+* **260906【直播｜双人】狐猪双人直播玩游戏**{: .text-red} 20:45~ @修仲官方ins ⇨ [ins直播](https://www.instagram.com/reel/Dc8iqbkk5jC/) 紧急直播5点多才通知，直播了半个小时，最高7700+人
+* **260905【修学旅行S2】官推开播前宣传物料**
+    > **260905 abc狐猪宣传片段** ⇨ [𝕏](https://x.com/dramal_abc/status/2096251639527362899) <span>和搜查吻联动；特别短但是很元气的俩孩子</span>{: .text-pink}
+    > **260906 修仲五天王口播宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/2096259674748444915)
+* **260904【修学旅行｜漫画】漫画第2卷电子版发售/第12话配信** 收录7~12话；有2p限定漫画特典 ⇨ [𝕏](https://x.com/BeLuckbunko/status/2095753727760380069)｜[cmoa](https://www.cmoa.jp/title/354469/)｜[修仲漫画汇总页](https://novema.jp/comic/beluck-comics/book/n443#comic-book-2038)｜[𝕏12话插图](https://x.com/BeLuckbunko/status/2095753729861718252)｜[𝕏亲妈宣传](https://x.com/RcNfe37/status/2096620814904992135)
+* **260904【修学旅行S2】拍摄日志**{: .text-red}
     > **260803 进藤导演快拍:正在堪景，是年内最后一部BL**
     > **260810 进藤导演快拍:再始動！**
     > **260819 进藤导演快拍:今日堪景@坂道**
     > **260828 日置已经在录修仲2独白** by洸大经纪人 ⇨ [🔒FC](https://sp.tcland.jp/contents/1105656)
     > **260831 进藤导演快拍:海边堪景**
     > **260902 海李理发** by海李ins快拍
+    > **260904 修仲2开机!**{: .text-red} by秀洸快拍/小简FC
+    > #### 小简发了洸大后脑勺快拍，披露了从来没人见过的洸大后脑勺的三颗痣！（所有人疯狂翻相册）嗯嗯完全是男友视角……
+    > **260905 进藤导演发SNS:开机** ⇨ [𝕏](https://x.com/shindo59512/status/2096094890929401944)/[ins]()
+    > **260906 修仲2取材日** by双人直播透露；修仲2因为下雨暂停拍摄 by进藤导演快拍
 * **260902【杂志｜简秀吉】《BLAZE》8月号(8/24) 采访前篇** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2095124465613197532) 问了很多跟洸大有关的问题（干得好blaze👍）
 * **260901【修学旅行】官推回顾修学旅行S1**
     > **260901 日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！</span>{: .text-pink}
-    > **260902 渡会紬嵩 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095110633704608212)/[ins](https://www.instagram.com/p/DcyH7O-zjQ-/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」和日置的7个造型是完全对应的!剧组有心了!</span>{: .text-pink}
-
+    > **260902 渡会紬嵩 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095110633704608212)/[ins](https://www.instagram.com/p/DcyH7O-zjQ-/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」和日置的7个造型是对应的!</span>{: .text-pink}
+    > **260903 守崎尚哉 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095469675337691605)/[ins]()
+    > **260904 仲里晴輝 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095840345502425415)/[ins]()
+    > **260905 堀田颯斗 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2096197826174927060)/[ins]()
 
 ### 2026.8
 {: #aug2026}
