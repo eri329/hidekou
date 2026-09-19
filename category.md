@@ -31,7 +31,12 @@ permalink: /category/
 ## 狐猪见面记录
 {: #meet}
 
+* **260906 修仲S2取材日+紧急双人直播**
+* **260904~ 修仲第2季拍摄**
+    > **260904 小简快拍发了洸大后脑勺**
+    > **260917 渡日约会场景拍摄@千叶** *小简/进藤快拍/群演募集*{: .text-small}
 * **260810 修学旅行夏日同窗会**
+* **260704 《S Cawaii! ME 2026 AUTUMN》拍摄**{: .text-grey} *推测/小简快拍*{: .text-small}
 * **260606~260607 修学旅行韩国见面会** 6/5暂时不知道见面了没有
 * **260417~260419 修学旅行台湾见面会**
 * **260329 修学旅行公式书大阪手渡会**
@@ -78,10 +83,11 @@ permalink: /category/
 
 ## 直播记录
 {: #live}
-*修仲狐猪相关直播;FC直播正在整理中……*{: .text-small}
+*修仲狐猪相关直播*{: .text-small}
 
 <div class="small-text-container" markdown="1">
 
+* **260906 修仲S2取材日紧急双人直播**{: .text-red} ⇨ [ins直播](https://www.instagram.com/reel/Dc8iqbkk5jC/)
 * **260812【🔒FC直播】简秀吉直播**{: .text-solo} 21:00~ 短暂提到修仲第二季
 * **260322【🔒FC直播】简秀吉公式书朗读鉴赏会**{: .text-solo} 22:00~ 小简穿着秀吉横転的T恤
 * **260314 NATSLIVE「藤本洸大＆桜木雅哉ホワイトデーSP」直播**{: .text-solo-k} 21:00~
@@ -117,7 +123,10 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
-* **261005 S Cawaii! ME 2026 AUTUMN（双人封底）** ⇨ []()
+* **261021 週刊TVガイド関東版 10/30号**
+* **261013 TVガイドPERSON vol.169（双人封底）** レスリーキー連載
+* **261007 TV LIFE 10/23号**
+* **261005 S Cawaii! ME 2026 AUTUMN（双人封底）** ⇨ [𝕏封面](https://x.com/mag_scawaii_men/status/2097248599944188029)｜[𝕏秀洸封底](https://x.com/mag_scawaii_men/status/2099835150259585379)
 * **260924 JUNON 11月号（双人封底）** ⇨ []()
 * **260911 CYAN MAN 10月号 特別版（双人封面封底）** ANOTHER AFTER HOURS｜潮流街头风｜22p ⇨ [封面封底](https://x.com/CYANMANMAGAZINE/status/2090363217587408952)
 * **260826 週刊TVガイド 9/4号** 修学旅行同窗会报道 ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2092379064212578439)
@@ -154,6 +163,9 @@ permalink: /category/
 <div class="small-text-container" markdown="1">
 
 * **261211【書籍】写真集「简秀吉1st Photobook」**
+* **261021 週刊TVガイド関東版 10/30号**{: .text-red}
+* **261013 TVガイドPERSON vol.169（BACK COVER）**{: .text-red}
+* **261007 TV LIFE 10/23号**{: .text-red}
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
 * **260924 JUNON 11月号（BACK COVER）**{: .text-red}
 * **260911 CYAN MAN 10月号（特別版Wカバー）**{: .text-red}
@@ -252,10 +264,14 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261021 週刊TVガイド関東版 10/30号**{: .text-red}
+* **261013 TVガイドPERSON vol.169（BACK COVER）**{: .text-red}
+* **261007 TV LIFE 10/23号**{: .text-red}
 * **261006【書籍】写真集「藤本洸大ファースト写真集 ジンジャーハイ」**
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
 * **261001 Preppy 11月号（表紙）** 20p
 * **260924 JUNON 11月号（BACK COVER）**{: .text-red}
+* **260911 FINEBOYS+plus BEAUTY vol.14** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2098196069469266339)/[𝕏封面封底](https://x.com/oricon/status/2097249515065811323)
 * **260911 CYAN MAN 10月号（特別版Wカバー）**{: .text-red}
 * **260826 週刊TVガイド 9/4号**{: .text-red}
 * **260826 TV Station 19号**{: .text-red}
@@ -265,7 +281,7 @@ permalink: /category/
 * **260723 ViVi 9月号** PICK UPイケメン｜0.5p ⇨ [𝕏封面](https://x.com/vivi_magazine/status/2077180231019114802)｜[📕内页(喵)](http://xhslink.com/o/70h4n1PzgRs)
 * **260710 Emo!miu采访(web)** 17p ⇨ [【藤本洸大インタビュー】デビュー4年目……今、胸にあるのは「絶対満足しない俳優になりたい」＜ドラマ『クロスロード～救命救急の約束』～＞](https://emomiu.jp/news/268669/)
 * **260709 JJ(web)** ⇨ [【藤本洸大】ドラマ「クロスロード ～救命救急の約束～」出演記念インタビュー！「自分の中に眠っていた熱を思い出させてもらった作品です」](https://jj-jj.net/lifestyle/182409/)｜[【藤本洸大】「とにかく満足しない俳優になっていきたい」今最注目！実力派若手俳優の素顔に迫る](https://jj-jj.net/lifestyle/182410/)
-* **260709 FINEBOYS 8月号** 藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2075004504345579751)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)
+* **260709 FINEBOYS 8月号** 藤本洸大と偏見メガネ｜短发眼镜宅男｜8p ⇨ [𝕏封面](https://x.com/hinode_pub/status/2075004504345579751)｜[📕内页(喵)](http://xhslink.com/o/AxumySYHhwl)｜[网页版](https://fineboys-online.jp/fashion/detail.php?id=6341)
 * **260708 TVガイドWeb(web) 後編** ⇨ [藤本洸大「クロスロード」真島役で向き合った感情 初主演作「修仲」への愛着とサッカーの記憶](https://www.tvguide.or.jp/feature/feature-4994618/)
 * **260707 Astage(web)** ⇨ [藤本洸大、爽やかなイメージを一新！ドラマ『クロスロード』で掴んだ、俳優としての確かな糧と「己の正義」](https://www.astage-ent.com/drama/crossroad-fujimoto.html)
 * **260707 andBOY vol.6**{: .text-separate} 2人で楽しむ毎日ビューティ♡｜短发黄蓝衬衫毛衣｜5p ⇨ [𝕏封面](https://x.com/andboy_jp/status/2072249149676990599)｜[📕内页(bala)](http://xhslink.com/o/7pQxWl8CzpH)

@@ -8,9 +8,15 @@ permalink: /
 
 *本站是渡日/简洸cp向物料存档汇总*
 *其实是站长的嗑糖笔记本/备份进度小书签*
-*站长调理中……会把狐猪修仲送到S2结束*{: .text-red}
+*本站已停更。@20260918*{: .text-red}
+
+>【时间线】【单人物料】停更/退回至2026-08-10修仲S2宣布。
+>【平铺时间线】【分类索引】更新至2026-09-17。
+>【修仲百景】【修学旅行】保留为第一季内容。
+> 例外：TVer数据/粉丝数/杂志清单会追到S2结束。
 
 *站长本人剧粉/cp粉/rps属性爆炸，不适者快跑*
+*2026年9月后站长已被创成纯剧粉*
 *更多关于本站的设定请看[【关于】]({{ site.baseurl }}/about/)*{: .text-small}
 
 **使用ctrl+F/cmd+F可以在本页搜索事件/物料**
@@ -22,7 +28,7 @@ permalink: /
 
 ### [2026](#year2026)
 * [2026.1](#jan2026) ｜ [2026.2](#feb2026) ｜ [2026.3](#mar2026) ｜ [2026.4](#apr2026) ｜ [2026.5](#may2026) ｜ [2026.6](#jun2026)
-* [2026.7](#jul2026) ｜ [2026.8](#aug2026) *※第二季启动*{: .text-small .text-red} ｜ [2026.9](#sep2026) 
+* [2026.7](#jul2026) ｜ [2026.8](#aug2026) *※第二季启动*{: .text-small .text-red}
 ### [2025](#year2025)
 * [2025.7](#jul2025) ｜ [2025.8](#aug2025) *※第一季启动*{: .text-small .text-red} ｜ [2025.9](#sep2025) ｜ [2025.10](#oct2025) ｜ [2025.11](#nov2025) ｜ [2025.12](#dec2025)
 
@@ -35,7 +41,7 @@ permalink: /
 
 <!-- <div class="line"></div> -->
 
-### 2026.10
+<!-- ### 2026.10
 {: #oct2026}
 
 * **261017【修学旅行S2】修学旅行第二季开播!**{: .text-red}
@@ -65,7 +71,7 @@ permalink: /
 * **260906【直播｜双人】狐猪双人直播玩游戏**{: .text-red} 20:45~ @修仲官方ins ⇨ [ins直播](https://www.instagram.com/reel/Dc8iqbkk5jC/) 紧急直播5点多才通知，直播了半个小时，最高7700+人
 * **260905【修学旅行S2】官推开播前宣传物料**
     > **260905 abc狐猪宣传片段** ⇨ [𝕏](https://x.com/dramal_abc/status/2096251639527362899) <span>和搜查吻联动；特别短但是很元气的俩孩子</span>{: .text-pink}
-    > **260906 修仲五天王口播宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/2096259674748444915)
+    > **260906 修仲五天王口播宣传** ⇨ [𝕏](https://x.com/dramal_abc/status/2096259674748444915)/[ins](https://www.instagram.com/p/Dc6Se36TnEM/)
 * **260904【修学旅行｜漫画】漫画第2卷电子版发售/第12话配信** 收录7~12话；有2p限定漫画特典 ⇨ [𝕏](https://x.com/BeLuckbunko/status/2095753727760380069)｜[cmoa](https://www.cmoa.jp/title/354469/)｜[修仲漫画汇总页](https://novema.jp/comic/beluck-comics/book/n443#comic-book-2038)｜[𝕏12话插图](https://x.com/BeLuckbunko/status/2095753729861718252)｜[𝕏亲妈宣传](https://x.com/RcNfe37/status/2096620814904992135)
 * **260904【修学旅行S2】拍摄日志**{: .text-red}
     > **260803 进藤导演快拍:正在堪景，是年内最后一部BL**
@@ -82,16 +88,14 @@ permalink: /
 * **260901【修学旅行】官推回顾修学旅行S1**
     > **260901 日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！</span>{: .text-pink}
     > **260902 渡会紬嵩 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095110633704608212)/[ins](https://www.instagram.com/p/DcyH7O-zjQ-/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」和日置的7个造型是对应的!</span>{: .text-pink}
-    > **260903 守崎尚哉 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095469675337691605)/[ins]()
-    > **260904 仲里晴輝 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095840345502425415)/[ins]()
-    > **260905 堀田颯斗 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2096197826174927060)/[ins]()
+    > **260903 守崎尚哉 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095469675337691605)/[ins](https://www.instagram.com/p/Dc0rMztTp0Y/)
+    > **260904 仲里晴輝 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2095840345502425415)/[ins](https://www.instagram.com/p/Dc3TvejzduJ/)
+    > **260905 堀田颯斗 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2096197826174927060)/[ins](https://www.instagram.com/p/Dc52VMmzBpx/) -->
 
 ### 2026.8
 {: #aug2026}
 
-<div class="line"></div>
-
-* **260830【修学旅行】ELLE 横川良明の「沼の中心で愛をさけぶ」Vol.11**「『修学旅行で仲良くないグループに入りました』がBL戦国時代を勝ち抜くかもしれない理由」一篇修仲安利文 ⇨ [作者X](https://x.com/fudge_2002/status/2094395914194710854)｜[elle](https://www.elle.com/jp/culture/movie-tv/a73539133/shunaka-numachu-260831/)
+<!-- * **260830【修学旅行】ELLE 横川良明の「沼の中心で愛をさけぶ」Vol.11**「『修学旅行で仲良くないグループに入りました』がBL戦国時代を勝ち抜くかもしれない理由」一篇修仲安利文 ⇨ [作者X](https://x.com/fudge_2002/status/2094395914194710854)｜[elle](https://www.elle.com/jp/culture/movie-tv/a73539133/shunaka-numachu-260831/)
 * **260828【修学旅行S2｜漫画】电子版漫画第2卷封面解禁** 第2卷收录6-12话 ⇨ [𝕏](https://x.com/novema_edit/status/2093188735974441173)
 * **260827【修学旅行】ちるちる映像大賞2026结果发表** 修仲获得作品部门3位、主演部门洸大6位/小简7位、名台词4位(「我们结婚吧」)、名场景3位(渡日告白) ⇨ [ins](https://www.instagram.com/p/DciM2lNE98X/)｜[结果发表网页](https://www.chil-chil.net/videoAward/y/2026/)｜[𝕏作品](https://x.com/BLaward_chil/status/2092870981404791145)/[𝕏名台词](https://x.com/BLaward_chil/status/2092874755938431078)/[𝕏名场景](https://x.com/BLaward_chil/status/2092873497886208328)
 * **260826【杂志｜修学旅行S2】《週刊TVガイド》9/4号 修学旅行第二季/同窗会报道** ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2092379064212578439)
@@ -116,7 +120,8 @@ permalink: /
     > **260811 情报解禁** ⇨ [𝕏特典图](https://x.com/BeLuckbunko/status/2087109266557776148)/[𝕏特典活动](https://x.com/BeLuckbunko/status/2087116827717415334) 8/19~购入原作赠证明照/小卡特典
     > **260819 狐猪证件照开始发布** 13:00~ 书腰也更新为第二季情报了! ⇨ [𝕏详情与店铺清单](https://x.com/BeLuckbunko/status/2089931807320088929)｜[活动详情](https://novema.jp/article/beluck/media-fair/1720) 另外还会抽选2名赠送洸大亲签修仲礼品券｜[活动期间](https://x.com/novema_edit/status/2089927041802187119) 大概会进行到10月中旬｜[推し楽](https://fan.books.rakuten.co.jp/articles/10089)｜书店展示:[𝕏1](https://x.com/sanyodohanda/status/2089921880572727634),[𝕏2](https://x.com/Kino_Izumo/status/2089894562261291337),[𝕏3](https://x.com/Orion_Lumine/status/2089910004119961899),[𝕏4](https://x.com/kbc_dekki/status/2089921995404448081)｜亲妈开心:换成第二季的书腰了~([𝕏](https://x.com/RcNfe37/status/2090077411794878797))
     > **260828 电子版特典活动开始** 8/28~9/10 抽送礼品券，其中2张有简秀吉签名 ⇨ [𝕏](https://x.com/novema_edit/status/2093189169678020917)
-* **260812【FC｜直播｜简秀吉】21:00~ 小简FC直播** *提到第二季大概从2、3月开始就有信儿了, 不过最近才正式确定的*{: .text-small}
+* **260812【FC｜直播｜简秀吉】21:00~ 小简FC直播** *提到第二季大概从2、3月开始就有信儿了, 不过最近才正式确定的*{: .text-small} -->
+
 * **=================== 260810 修学旅行第二季(修学旅行S2)情报解禁！===================**{: .text-red}
 * **260810【修学旅行S2】㊗重大発表㊗第二季放送决定!26年10月17日开播!🎥**{: .text-red #anchor-260810-housou}
     > <span>放送日：10月17日（土）放送スタート　毎週土曜深夜１時</span>{: .text-small}
@@ -173,8 +178,8 @@ permalink: /
     > **260821 官方Tiktok小视频vlog** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7676439592920206612)/[ins](https://www.instagram.com/p/DcTMZl9zAgt/) <span>活动结束后装作要击掌实则要抱抱的小简www（同窗会的狐猪片段也藏得太久了吧!）</span>{: .text-pink}
     > **260823 洸大日记 浴衣照** ⇨ [🔒FC](https://sp.tcland.jp/contents/1103426)
 
-<details markdown="1">
-<summary><strong>=================== 修学旅行第一季时间线(点击此行展开/收起)===================</strong></summary>
+<!-- <details markdown="1">
+<summary><strong>=================== 修学旅行第一季时间线(点击此行展开/收起)===================</strong></summary> -->
 
 * **260807【修学旅行｜漫画】漫画第11话上线** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2085615062430204333)
 * **260806【杂志｜简秀吉】《TV LIFE》8/21号(8/3) 小简拍摄时提到洸大~**{: .text-red} ⇨ [𝕏](https://x.com/tv_life/status/2085224362559603042) *更多在【单人物料】*{: .text-small}
@@ -1164,7 +1169,7 @@ permalink: /
 ### 2024.12
 * **241220【修学旅行｜原作】《修学旅行で仲良くないグループに入りました》第一卷发售** ⇨ [𝕏特典小漫画](https://x.com/BeLuckbunko/status/1869888543763656740) <span>萌死……</span>{: .text-pink}
 
-</details>
+<!-- </details> -->
 
 </div>
 

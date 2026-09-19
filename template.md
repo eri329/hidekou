@@ -41,7 +41,7 @@ permalink: /template/
 > **【杂志｜双人】《TVガイドdan》vol.61(8/20)** ⇨ [𝕏]()
 <!-- > **【杂志｜简秀吉｜藤本洸大】《andBOY》vol.6(7/7)** ⇨ [ins]() -->
 
-> **【杂志｜简秀吉】《FINEBOYS》10月号(9/9)**{: .text-solo} ⇨ [𝕏]()  ⇨ [封面](https://x.com/hinode_pub/status/2095836780205338999)
+> **【杂志｜简秀吉】《FINEBOYS》10月号(9/9)**{: .text-solo} ⇨ [𝕏]()
 > **【杂志｜简秀吉】《PERCE NEIGE》(8/26)**{: .text-solo} ⇨ [𝕏]()
 > **【杂志｜简秀吉】《BLAZE》8月号(8/24)**{: .text-solo} ⇨ [𝕏]()
 > **【杂志｜简秀吉】《月刊TVガイド》10月号(8/24)**{: .text-solo} ⇨ [𝕏]()
