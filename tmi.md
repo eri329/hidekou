@@ -169,6 +169,7 @@ permalink: /tmi/
 
 *※ 步汰没有个人的SNS，以下全都是DXTEEN账号发的*{: .text-small}
 
+* **260917 DXTEEN『相思想愛』发售纪念活动解禁** ⇨ [𝕏](https://x.com/UM_STORE_JP/status/2100495420388692342)
 * **260811 修仲男团组步汰和雅哉cha舞 - our sky** ⇨ [ins-Our Sky](https://www.instagram.com/p/Db5NJ36PJVn/)
 * **260810 DXTEEN修仲夏日同窗会&官宣第二季**{: .text-red}
     > [𝕏DXTEEN(高清官宣图)](https://x.com/official_DXTEEN/status/2086775022887301467)｜[𝕏DXTEEN(合照)](https://x.com/official_DXTEEN/status/2086780042236104805)｜[𝕏DXTEEN(步汰)](https://x.com/official_DXTEEN/status/2086798684906504679)｜[TT-步汰-同窗会花絮视频](https://www.tiktok.com/@official_dxteen/video/7672405325479185672)/[ins](https://www.instagram.com/p/Db3NEbDPeXf/)
@@ -359,6 +360,8 @@ permalink: /tmi/
 *※ 进藤导演发了很多其他地方没有的花絮照!*{: .text-small}
 *※ 快拍in progress……*{: .text-small}
 
+* **260917 快拍:约会拍摄中** 监视器上还卡了一个海豹（or海狮，站长认不出）玩偶；约会日是晴天太好了！
+* **260911 定妆照解禁!透了一些拍摄现场和打了码的拍摄小道具** ⇨ [ins](https://www.instagram.com/p/DdJSUefj7sg/)/[𝕏](https://x.com/shindo59512/status/2098375698050424919)
 * **260906 快拍:看了再放送第7话** 制作第二季的动力更强烈了。这次从一开始就感觉到大家“心的距离”很近，这是第二季的优势。但是因为下雨今天拍摄中止了😂
 * **260905 X/ins/快拍** 修仲2开机！⇨ [𝕏](https://x.com/shindo59512/status/2096094890929401944)/[ins]()
 * **260831 快拍:海边堪景**
@@ -420,6 +423,7 @@ permalink: /tmi/
 *※ 很爱修学的一位导演*{: .text-small}
 *※ 不怎么发新花絮照但是写了很多文字花絮*{: .text-small}
 
+* **260911 定妆照解禁:每天从早到晚都在拍摄** ⇨ [𝕏](https://x.com/hasetaku0227/status/2098389159832625501) 这一次长谷川导演也担任了第一副导演（主要负责统筹进度/制定拍摄日程表/和各部门调度），干劲十足www
 * **260822 再放送第6话幕后** ⇨ [𝕏](https://x.com/hasetaku0227/status/2091167607538008103)/[ins](https://www.instagram.com/p/DcWHOP9PgkW/)
     > 没提什么具体的事，说第6话不像第5话那样事先把镜头安排得很细致，总之就是在一股脑拍大家在海边玩闹的场面。后半部分的海边因为主演2人的演技、脚本、摄影、灯光以及编辑所有加成，做出了远超预期的效果。第二季新加入的工作人员也说特别喜欢第6话，导演很开心。
 * **260811 修仲第二季!** 他也将继续执导S2! ⇨ [𝕏](https://x.com/hasetaku0227/status/2087065975892156879)/[ins](https://www.instagram.com/p/Db4-YVujxoG/)
