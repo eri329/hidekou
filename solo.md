@@ -58,6 +58,7 @@ permalink: /solo/
     > **260707 电波手势舞**{: .text-red} ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
     > **260908 脸颊舞** ⇨ [𝕏](https://x.com/TGCnews/status/2097157985030308082)/[ins](https://www.instagram.com/p/DdAq78kSfNg/)
     > **260911 宣传小视频:最近吃的韩餐** ⇨ [ins](https://www.instagram.com/p/DdJZFYJztip/)
+    > **260921 小简发自己cut** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101693172682506322)/[𝓲简](https://www.instagram.com/p/Ddg5m-whna6/)｜照片:[𝓲简](https://www.instagram.com/p/Ddd4OMFgRo9/) ⚠️有拆家合照
 * **260909《FINEBOYS》10月号(9/9) 杂志发售**
     > **260904 封面解禁** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2095836780205338999)
     > **260909 小简发花絮** ⇨ [𝓲简-拍摄花絮](https://www.instagram.com/p/DdD7lasAWiX/)

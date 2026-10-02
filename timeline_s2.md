@@ -36,8 +36,9 @@ permalink: /timeline_s2/
     > **特典摘要**: 特别版狐猪封底+infosquare特典六随一(单人2枚x2套+双人2枚)
     > **260820 情报解禁** ⇨ [𝕏购买链接(无图)](https://x.com/mag_scawaii_men/status/2090350665138937870)｜[𝕏文字介绍/特典详情(无图)](https://x.com/mag_scawaii_men/status/2090351304719950208)
     > **260821 夏日同窗会报道+杂志宣传** ⇨ [𝕏](https://x.com/mag_scawaii_men/status/2090716128863805579)｜[scawaii-web](https://scawaiiweb.com/articles/detail/71515)
-    > **260915 封底+特典解禁** 特典小卡模糊图也解禁了；很好看的一张封面 ⇨ [𝕏](https://x.com/mag_scawaii_men/status/2099835150259585379)
-
+    > **260915 封底+特典解禁** ⇨ [𝕏](https://x.com/mag_scawaii_men/status/2099835150259585379) 特典小卡模糊图也解禁了；很好看的一张封面
+* **261001【修学旅行S2】10月拍摄日志**{: .text-red}
+    > **261001 难得的大晴天,拍摄了长谷川导演执导的集数** by长谷川导演快拍
 
 ### 2026.9
 {: #sep2026}
@@ -69,7 +70,7 @@ permalink: /timeline_s2/
     > 单人定妆照 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2098351164828057751)/[𝓲简](https://www.instagram.com/p/DdJJd-DASm4/)｜[𝓲洸](https://www.instagram.com/p/DdL29iwlM3c/)｜[𝕏海李](https://x.com/kairi_shimizu/status/2098419164604137743)/[ins](https://www.instagram.com/p/DdJMlMHkq5t/)｜[𝕏DXTEEN](https://x.com/official_DXTEEN/status/2098351230947131748)｜[ins樱木](https://www.instagram.com/p/DdJPFj5k5Gb/)
     > ABC报道 ⇨ [𝕏abc-tv](https://x.com/asahi_tv/status/2098350853686210719)｜[𝕏abc-magazine](https://x.com/abc_mgzn/status/2098350842671972781) 高清大图!
     > 官网更新为第二季 ⇨ [官网](https://www.asahi.co.jp/schooltrip/)｜[出版社页面](https://novema.jp/article/starts/shunaka/drama) 基本情报/剧情简介公开；第一集内容疑似学习合宿，渡会的占有欲又要大爆发了
-    > 亲妈发来贺电 ⇨ [𝕏欢迎回来~~](https://x.com/RcNfe37/status/2098392201579688060)｜[𝕏正式贺电](https://x.com/BeLuckbunko/status/2098352098316353691)
+    > 亲妈发来贺电 ⇨ [𝕏欢迎回来~~](https://x.com/RcNfe37/status/2098392201579688060)｜[𝕏正式贺电](https://x.com/BeLuckbunko/status/2098352098316353691)/[官网寄语](https://www.asahi.co.jp/schooltrip/original/)
     > 其他人转推 ⇨ [𝕏进藤导演](https://x.com/shindo59512/status/2098375698050424919)/[ins](https://www.instagram.com/p/DdJSUefj7sg/) 透露了打了码的拍摄小道具｜[𝕏长谷川导演](https://x.com/hasetaku0227/status/2098389159832625501)｜[𝕏配乐师铃木](https://x.com/Yasu_coda/status/2098744641235665191)
     > DXTEEN发步汰自拍 ⇨ [𝕏](https://x.com/official_DXTEEN/status/2098379833067929670) 只有堀田叫成了清水海李233 ⬅️海李回「堀田留级了吗？？」[𝕏](https://x.com/kairi_shimizu/status/2098426303070539934)
     > DXTEEN修仲老粉笑太郎的反应☺️ ⇨ [𝕏](https://x.com/official_DXTEEN/status/2098426697947443315)
@@ -100,6 +101,9 @@ permalink: /timeline_s2/
     > **260905 进藤导演发SNS:开机** ⇨ [𝕏](https://x.com/shindo59512/status/2096094890929401944)/[ins]()
     > **260906 修仲2取材日** by双人直播透露；修仲2因为下雨暂停拍摄 by进藤导演快拍
     > **260917 渡日约会场景拍摄** 小简快拍发指尖相贴图/进藤导演发快拍明示在拍约会场景;本日也有群演募集，推测在千叶拍摄
+    > **260921 修仲室内拍摄** by进藤导演快拍
+    > **260927 长谷川导演执导的夜场戏拍摄** by长谷川导演快拍
+    > **260928 依然是在拍摄长谷川导演执导的集数/1-2话已经制作完成** by长谷川导演/进藤导演快拍
 * **260902【杂志｜简秀吉】《BLAZE》8月号(8/24) 采访前篇** ⇨ [𝕏](https://x.com/blazeprojectmag/status/2095124465613197532) 问了很多跟洸大有关的问题（干得好blaze👍）
 * **260901【修学旅行】官推回顾修学旅行S1**
     > **260901 日置朝陽 七変化🪄🫧** ⇨ [𝕏](https://x.com/dramal_abc/status/2094753137487995217)/[ins](https://www.instagram.com/p/DcvlU1xzUQJ/)<span>「制服、ジャージ、カチューシャ、浴衣、夏制服、私服、文化祭」有没见过的浴衣日置图！</span>{: .text-pink}

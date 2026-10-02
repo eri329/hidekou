@@ -59,6 +59,8 @@ permalink: /drama/
     > 2, 3, 4话: 藤澤浩和 [X](https://x.com/fujisawa44) (《低体温男子になつかれました。》)
     > 5, 6话, 番外前篇: ハセガワタクヤ(長谷川 卓也) [X](https://x.com/hasetaku0227)/[Ins](https://www.instagram.com/hasegawa_takuya0227/)
     > 9话, 疑似番外后篇: 安見悟朗 [X](https://x.com/lennono560)/[Ins](https://www.instagram.com/goroyasumi/)
+    -- S2 --
+    > 4, 5话: 安見悟朗
 * **其他**
     > 录音师: 柴田陽一郎 [X](https://x.com/topnotetokyo)
     > 音乐/OST: 鈴木ヤスヨシ [X](https://x.com/Yasu_coda)

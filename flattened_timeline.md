@@ -70,18 +70,57 @@ permalink: /flattened_timeline/
     > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售** ⇨ []()
 * **261003**
     > **【修学旅行｜正片】修学旅行TV再放送 第9话** ※25:00～25:30
+* **261002**
+    > **【修学旅行S2】24:24~ 修学旅行徹底ガイド1小时特别节目播出**
+    > **【修学旅行S2】长谷川导演接近凌晨2am发快拍:难得的大晴天拍了自己的执导集数** 应该指的是昨天
 * **261001**
+    > ~ **【SNS｜简秀吉】小简发照片:birthday month** ⇨ [𝓲简](https://www.instagram.com/p/Dd8p_iNgVOG/)
     > **【杂志｜藤本洸大】《Preppy》11月号(10/1) 杂志发售**{: .text-solo-k} 金发/黑发两种封面
+* **260930**
+    > ~**【修学旅行S2】修仲S2制作发表会/第1话上映会(10/14)情报解禁** 🚌制作発表＆1話試写💨 从官号转发以及各主演的FC内部抽观众参加；10月14日(水)📍東京 18:25~；五天王都会到场 ⇨ [𝕏修仲官号](https://x.com/dramal_abc/status/2105274974751830518)
+    > ~ **【修学旅行S2】官方Tiktok小视频:五天王的魔性舞蹈** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7691253785833966868)
 * **260929**
-    > **【个人活动｜藤本洸大】电影「仿佛清新气息」上映活动(9/29)**{: .text-solo-k} @渋谷ユーロライブ 播放两场, 洸大均登场
+    > ~ **【修学旅行S2】海报 & 主题曲 & 30s预告解禁**{: .text-red}
+        > **海报** ⇨ [𝕏海报](https://x.com/dramal_abc/status/2104692879071260700)/[ins](https://www.instagram.com/p/Dd2NevMk9Cr/) S1欠下的学习债这下都要补回来了……完全是补习班广告😅
+        > **主题曲** ⇨ [𝕏主題歌:相思想愛/步汰留言](https://x.com/dramal_abc/status/2104693131023089989)/[ins](https://www.instagram.com/p/Dd2NhW5kzGh/)
+        > **预告/剧照** ⇨ [𝕏30s预告](https://x.com/dramal_abc/status/2104692640381833298)/[ins](https://www.instagram.com/p/Dd2NUdVE6Pc/)「恋に受験に大忙し📖 高校最後の1年間の物語✨」处处透露着学习的气息hhh｜[𝕏S2第1话剧照](https://x.com/dramal_abc/status/2104775674192146666)/[ins](https://www.instagram.com/p/Dd2zJAKE7ou/) 高清大图好评！ins多一张日置看手机；感觉连主要场景都和S1第1话是呼应的，希望可以做出一些新鲜感🙏🏻｜[𝕏进藤导演转发](https://x.com/shindo59512/status/2104696104419983364)/[ins](https://www.instagram.com/p/Dd2QNkIE18g/)
+        > **小简发SNS:相思想愛🏹🏫💌** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2104905593224044766)/[𝓲简](https://www.instagram.com/p/Dd3sxqlAcpe/)
+        > **导演发推** 长谷川导演: 深夜剧的预告竟然登上热搜1位!第2位是东京连续34天下雨，导演欲哭无泪💦 ⇨ [𝕏](https://x.com/hasetaku0227/status/2104709389034860734) 看了觉得长谷川导演真的很爱小修学｜安见导演: 担任第4~5话的导演 ⇨ [𝕏](https://x.com/lennono560/status/2104895133288386681)/[ins](https://www.instagram.com/p/Dd31YoAI_k6/)
+    > ~ **【修学旅行S2】徹底ガイド(10/2)放送決定** 修学旅行完全指南1小时特别节目；10月2日0:24~(24:24~) TVer可以回看，内容还蛮丰富的！有S1总集篇和花絮 ⇨ [𝕏](https://x.com/dramal_abc/status/2104869009124671524)/[ins](https://www.instagram.com/p/Dd3dfijzBho/)
+    > ~ **【个人活动｜藤本洸大】电影「仿佛清新气息」上映活动(9/29)**{: .text-solo-k} @渋谷ユーロライブ 是电影制作公司的纪念活动；播放两场, 洸大均登场
+* **260928**
+    > ~ **【修学旅行S2】9月29日(火) 7:00 Coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2104534149268996561) 这张图里有8个人诶!（完全是家族联姻（不是
+    > **【修学旅行S2】导演们的更新**
+        > **长谷川导演快拍** 拍了一天他执导的集数
+        > **安见导演发推:顺利拍摄中** ⇨ [𝕏](https://x.com/lennono560/status/2104457142854132122)/[ins](https://www.instagram.com/p/Dd0h8qpmBaE/) 发的是他自己的照片；安见导演在这天还发过一张日置和渡会纺希一起拍摄的图，后来删掉了（站长有存档）
+        > **260929 进藤导演快拍** (昨天9/28)完成了1-2话的制作，工作人员们都很兴奋！
+* **260927**
+    > **【修学旅行S2】长谷川导演快拍:今天拍了我执导的那一集的夜场戏**
 * **260926**
-    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀**{: text-red} @幕張メッセ1-3ホール 14:30~；DXTEEN、步汰、笑太郎也去~
+    > ~ **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀**{: text-red} @幕張メッセ1-3ホール 14:30~；DXTEEN、步汰、笑太郎也去~ ⇨ [𝕏简-走秀cut(很糊)](https://x.com/kan_hideyoshi/status/2103833401619063064)｜[𝓲简-单人](https://www.instagram.com/p/DdwC-DgAdRK/)｜[𝓲洸-单人](https://www.instagram.com/p/Ddv_lFHlECE/) 挺可惜的难得两位主演剧宣期同时去走秀都没有留下一张正式合照
     > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第2回 情报解禁**{: .text-solo-k} 13:00~ 嘉宾:渡部秀 ⇨ [配信链接](https://www.showroom-live.com/r/junonsuperboyclub) 同一天还有走秀和另一个剧组的直播，洸大的日程也太紧张了……
+    > ~ **【修学旅行S2】S2预热:🚌人物紹介💨 3-3 堀田颯斗**{: .text-other} ⇨ [𝕏(没有新图)](https://x.com/dramal_abc/status/2103774074497614270)/[ins](https://www.instagram.com/p/DdvrlD_zDHN/)（能说吗这一批定妆照都P得挺过分…）｜**🚌season1振り返り💨**{: .text-other} ⇨ [ins](https://www.instagram.com/p/Ddvr6E8TN2v/)
+* **260925**
+    > ~ **【修学旅行S2】S2预热:🚌人物紹介💨 3-3 仲里晴輝**{: .text-other} ⇨ [𝕏(没有新图)](https://x.com/dramal_abc/status/2103414824722182305)/[ins](https://www.instagram.com/p/DdtINxOzhpU/)｜**🚌season1振り返り💨**{: .text-other} ⇨ [ins](https://www.instagram.com/p/DdtIbu0zqaP/)
 * **260924**
-    > **【杂志｜双人】《JUNON》11月号(9/24) 杂志发售** ⇨ [𝕏]()
+    > ~ **【杂志｜双人】《JUNON》11月号(9/24) 杂志发售** ⇨ 小简发单人cut:[𝕏简](https://x.com/kan_hideyoshi/status/2103081267063619915)/[𝓲简](https://www.instagram.com/p/Ddqusq5AR3-/) 裁单人的操作真是有点迷惑…
+    > ~ **【修学旅行S2】S2预热:🚌人物紹介💨 3-5 守崎尚哉**{: .text-other} ⇨ [𝕏](https://x.com/dramal_abc/status/2103063882759913506)/[ins](https://www.instagram.com/p/DdqonQWzwLg/)｜**🚌season1振り返り💨**{: .text-other} ⇨ [ins](https://www.instagram.com/p/Ddqo175TyZi/)
+* **260923**
+    > ~ **【修学旅行S2】S2预热:🚌人物紹介💨 3-5 渡会紬嵩** ⇨ [𝕏(没有新图)](https://x.com/dramal_abc/status/2102706736339784086)/[ins](https://www.instagram.com/p/DdoGNxyzKHI/)「嫉妬執着の鬼」｜**🚌season1振り返り💨** ⇨ [ins](https://www.instagram.com/p/DdoGq9Qz5-E/)
+* **260922**
+    > ~ **【修学旅行S2】S2预热:🚌人物紹介💨 3-2 日置朝陽** ⇨ [𝕏(没有新图)](https://x.com/dramal_abc/status/2102334847331221625)/[ins](https://www.instagram.com/p/DdldHS9z8JN/)「一番人気渡会紬嵩と交際中｜**🚌season1振り返り💨** ⇨ [ins](https://www.instagram.com/p/DdldtzUTQnT/)
+* **260921**
+    > **【修学旅行S2】进藤导演快拍:虽然下大雨但今天是室内拍摄**
+    > **【个人活动｜简秀吉】TGC 2026秋冬走秀 小简发自己的cut**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101693172682506322)/[𝓲简](https://www.instagram.com/p/Ddg5m-whna6/)｜照片:[𝓲简](https://www.instagram.com/p/Ddd4OMFgRo9/) ⚠️有拆家合照
+* **260920**
+    > ~ **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大宫生日会 第一部嘉宾:清水海李/福田步汰**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101521434720043141) 竟然是他们俩！
 * **260919**
     > **【修学旅行】全話イッキ見祭** 13:00~ 电影院放映1-10话+番外一口气看完企划 ⇨ [详情](https://liveviewing.jp/schooltripmatsuri/)
+    > ~ **【修学旅行S2】仲里生日快乐！** ⇨ [𝕏修仲官号祝福](https://x.com/dramal_abc/status/2101241202700144935)/[ins](https://www.instagram.com/p/DddrzWZTpqH/)
     > **【个人活动｜简秀吉】TGC 2026秋冬走秀**{: .text-solo} @横浜アリーナ 13:30~ ⇨ [AMEBA直播](https://abema.go.link/9RSm5)
+* **260918**
+    > ~ **【修学旅行S2】官方Tiktok发三天王小视频** 堀田被排挤中💦 ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7686810760110001429)
+    > ~ **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 出演情报解禁**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2100795105108177066)/[𝓲简](https://www.instagram.com/p/Ddag-DDATHc/) 10月7日(水)~ 24時24分
 * **260917**
     > **【修学旅行S2】渡日约会场景拍摄** 小简快拍发指尖相贴图/进藤导演发快拍明示在拍约会场景;本日也有群演募集，推测在千叶拍摄
     > **【修学旅行｜原作】修学旅行原作小说重版决定！** 重版有新腰封。恭喜重版出来！⇨ [𝕏](https://x.com/BeLuckbunko/status/2100493960972034448)
@@ -246,7 +285,7 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】洸大1st写真集 TowerRecord特典大图**{: .text-solo-k} ⇨ [𝕏](https://x.com/TOWER_Shibuya/status/2091429390446145894)
     > **【FC｜藤本洸大】洸大日记「求道作法」:足球和交友**{: .text-solo-k} ⇨ [🔒FC](https://sp.tcland.jp/contents/1103426)
 * **260822**
-    > **【修学旅行｜正片】修学旅行TV再放送 第6话** 竟然还有没发过的剧照!! ⇨ [𝕏捡贝壳](https://x.com/BeLuckbunko/status/2091072885406519498)
+    > **【修学旅行｜正片】修学旅行TV再放送 第6话** 竟然还有没发过的剧照!! ⇨ [𝕏捡贝壳](https://x.com/BeLuckbunko/status/2091072885406519498)｜长谷川导演分享第6话幕后: [𝕏](https://x.com/hasetaku0227/status/2091167607538008103)/[ins](https://www.instagram.com/p/DcWHOP9PgkW/)
     > **【修学旅行S2】官推:官方tag还是#ドラマ修学旅行** ⇨ [𝕏](https://x.com/dramal_abc/status/2091094439548924181)
     > **【修学旅行｜周边】马来西亚快闪店开设** 8/22~9/6 ⇨ [𝕏](https://x.com/ORBcafe_my/status/2090982288217796961)｜[𝕏告知(8/21)](https://x.com/ORBcafe_my/status/2090725601695203753)
     > **【直播｜简秀吉】简秀吉ins直播+FC直播**{: .text-solo} 21:00~ ins直播；播完后又去FC直播

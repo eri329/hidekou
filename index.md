@@ -16,12 +16,13 @@ permalink: /
 > 希望第二季继续大爆！
 
 *站长本人剧粉/cp粉/rps属性爆炸，不适者快跑*
+*S2以后以剧粉/剧cp属性为主*
 *更多关于本站的设定请看[【关于】]({{ site.baseurl }}/about/)*{: .text-small}
 
 **使用ctrl+F/cmd+F可以在本页搜索事件/物料**
 
 [【单人物料】]({{ site.baseurl }}/solo/) - 秀洸个人活动
-[【平铺时间线】]({{ site.baseurl }}/flattened_timeline/) - day by day
+[【平铺时间线】]({{ site.baseurl }}/flattened_timeline/) - day by day（S2期间最先更新这里）
 [【分类索引】]({{ site.baseurl }}/category/) - 活动/直播/杂志
 [【修仲百景】]({{ site.baseurl }}/tmi/) - 修仲幕后/其他演员
 
@@ -145,7 +146,7 @@ permalink: /
     > **260725 修学旅行TV再放送 第3话** ※24:25～24:55
     > **260801 修学旅行TV再放送 第4话**
     > **260808 修学旅行TV再放送 第5话** ※24:30~
-    > **260822 修学旅行TV再放送 第6话**
+    > **260822 修学旅行TV再放送 第6话** ⇨ [𝕏BeLuck发新剧照-捡贝壳](https://x.com/BeLuckbunko/status/2091072885406519498) 竟然还有没发过的剧照!!｜长谷川导演分享第6话幕后: [𝕏](https://x.com/hasetaku0227/status/2091167607538008103)/[ins](https://www.instagram.com/p/DcWHOP9PgkW/)
     > **260905 修学旅行TV再放送 第7话** ⇨ [𝕏BeLuck发新剧照](https://x.com/BeLuckbunko/status/2096157638119604602) 其实发的剧照都是第6话的
     > **260912 修学旅行TV再放送 第8话** ⇨ [𝕏-BeLuck发新剧照](https://x.com/BeLuckbunko/status/2098694352726012277)
     > **261003 修学旅行TV再放送 第9话** ※25:00～25:30
