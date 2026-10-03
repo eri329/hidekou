@@ -49,6 +49,10 @@ permalink: /solo/
     > **260803 FC先行抽选** 8/3~8/16 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2084222976032137308)｜[𝓲简](https://www.instagram.com/p/DbkwxbgAa8A/)｜[微博](https://weibo.com/7984735683/RbHFRhh0L) 很帅的黑白西装!
     > **FC2次先行先着贩售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2093648820383121543)/[𝓲简](https://www.instagram.com/p/DcnuZ0lgbu1/) *造型师金田健志*{: .text-small}
     > **260912 小简SNS:生日会宣传+有努努周边暗示** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2098742344699027850)/[𝓲简](https://www.instagram.com/p/DdL7RPUgQ-j/)
+    > **260920 第一部嘉宾:清水海李/福田步汰** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101521434720043141)
+* **261007 电视剧「仮面教師」(假面教师) 开播** 四村健役 10月7日(水) 24時24分~
+    > **260918 出演情报解禁** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2100795105108177066)/[𝓲简](https://www.instagram.com/p/Ddag-DDATHc/)
+* **261001 小简ins发照片:birthday month** ⇨ [𝓲简](https://www.instagram.com/p/Dd8p_iNgVOG/)
 
 ---
 * **260919 TGC 2026秋冬走秀**{: .text-red} @横浜アリーナ 13:30~ ⇨ [AMEBA直播](https://abema.go.link/9RSm5)
@@ -575,7 +579,7 @@ permalink: /solo/
     > **260910 6套特典图公开** ⇨ [𝕏-heritage黑发](https://x.com/preppy_magazine/status/2097988461550879033)｜[𝕏-heritage金发](https://x.com/preppy_magazine/status/2097988461928276187)｜[𝕏-tower](https://x.com/preppy_magazine/status/2097988463371104609)｜[𝕏-7net](https://x.com/preppy_magazine/status/2097988463836680389)｜[𝕏-Amazon](https://x.com/preppy_magazine/status/2097988462444220580)｜[𝕏-HMV](https://x.com/preppy_magazine/status/2097988462926553403)
 
 ---
-* **260929 电影「仿佛清新气息」上映活动(9/29)**  STUDIO BLUE 20周年纪念活动 @渋谷ユーロライブ 17:00/19:50 洸大均登场
+* **260929 电影「仿佛清新气息」上映活动(9/29)**  STUDIO BLUE 20周年纪念活动 @渋谷ユーロライブ 17:00/19:50 是电影制作公司的纪念活动；播放两场, 洸大均登场
     > **260906 情报解禁** ⇨ [𝕏](https://x.com/stblue_voice/status/2096524048448823601)
 * **260926 JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第2回** 13:00~ 嘉宾:渡部秀 ⇨ [配信链接](https://www.showroom-live.com/r/junonsuperboyclub)  同一天还有TGC，洸大的日程也太紧张了……
     > **260909 情报解禁** ⇨ [𝕏](https://x.com/SHOWROOM_jp/status/2097595876369650097)
