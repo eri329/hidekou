@@ -38,10 +38,16 @@ permalink: /flattened_timeline/
     > **【个人活动｜简秀吉】简秀吉写真集1st Photobook东京签售会**{: .text-solo}
 * **261211**
     > **【个人活动｜简秀吉】简秀吉写真集1st Photobook发售**{: .text-solo}
+* **261209**
+    > **【修学旅行S2】主题曲DXTEEN「相思想愛」CD release**
+* **261207**
+    > **【修学旅行S2】主题曲DXTEEN「相思想愛」digital release & MV公开**
 * **261206**
     > **【个人活动｜藤本洸大】藤本洸大台北见面会**{: .text-solo-k} 12:00/17:00 @花漾展演空間⇨ [𝓲洸-海报/情报](https://www.instagram.com/p/DcdoS9XFCSl/)
 * **261205**
     > **【个人活动｜藤本洸大】藤本洸大香港见面会**{: .text-solo-k} 12:00/17:00 @ヒルトン・ガーデン・イン香港旺角 ⇨ [𝓲洸-海报/情报](https://www.instagram.com/p/DcdoS9XFCSl/)
+* **261204**
+    > **【修学旅行S2】主题曲DXTEEN「相思想愛」MV预告片解禁**
 * **261103**
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大阪生日会**{: .text-solo} 14:00/17:30📍大阪エル・シアター
 
@@ -70,6 +76,8 @@ permalink: /flattened_timeline/
 * **261010**
     > **【修学旅行｜正片】修学旅行TV再放送 第10话(最终回)** ※25:00～25:30
     > **【个人活动｜藤本洸大】洸大1st写真集大阪签售会**{: .text-solo-k}
+* **261009**
+    > **【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red}
 * **261008**
     > **【修学旅行S2】花火大会拍摄群演募集** 10月8日(木)或9日(金) 地点未定/浴衣/秋季
 * **261007**
@@ -81,9 +89,12 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」发售**{: .text-solo-k}
 * **261005**
     > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**{: .text-red} ⇨ []()
+* **261004**
+    > **【修学旅行S2】运动会拍摄** 海李昨天的快拍提到今天也有群演参与的拍摄。
 * **261003**
-    > **【修学旅行｜正片】修学旅行TV再放送 第9话** ※25:00～25:30
-    > **【修学旅行S2】运动会拍摄** 群演募集10月3日(土)、4日(日)、5日(月)中的两天，都内近郊/秋季；10/3日一早长谷川导演发了快拍确认今天有拍摄。10/4的可能性也很大。
+    > **【修学旅行｜正片】修学旅行TV再放送 第9话** ※26:20～ ⇨ [𝕏BeLuck发新剧照](https://x.com/BeLuckbunko/status/2106304497828171879) 第3、4张都是没发过的角度！
+    > **【修学旅行S2】运动会拍摄** 群演募集10月3日(土)、4日(日)、5日(月)中的两天，都内近郊/秋季；10/3日一早长谷川导演发了快拍确认今天有拍摄, 进藤导演也发了快拍(第8话应该就是进藤执导)；Repo确认今天拍了第8话风见野运动会。⇨ [𝕏海李发推感谢](https://x.com/kairi_shimizu/status/2106320930016464907)｜[𝕏长谷川导演发推感谢](https://x.com/hasetaku0227/status/2106376762154471768) 长谷川导演说看到修仲饭的大家幸福的表情有点想哭。⬅️太性情了导演！
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 大合照视频** 小简和洸大站一起，还在同步做“手相”! ⇨ [𝕏](https://x.com/GirlsAward/status/2106346102572355973)
 * **261002**
     > **【修学旅行S2｜双人】24:24~ 修学旅行徹底ガイド1小时特别节目播出**{: .text-red} ⇨ [𝕏徹底ガイド](https://x.com/dramal_abc/status/2106067363963748833), [S1ダイジェスト](https://x.com/dramal_abc/status/2106067997312127152) 节目包含S1回顾、S1后续活动花絮（大部分在蓝光box或配信特典里已经放出过）、S2长预告预览+秀洸Reaction
     > **【修学旅行S2｜SNS｜藤本洸大】洸大发ins海报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/Dd_b6mFlGbC/) 放了一张日置谜之微笑看手机和渡日的床咚；相关快拍的配乐是韩语版两片想
@@ -100,6 +111,7 @@ permalink: /flattened_timeline/
 * **260930**
     > **【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)情报解禁** 🚌制作発表＆1話試写💨 从官号转发以及各主演的FC内部抽观众参加；10月14日(水)📍東京 18:25~；五天王都会到场 ⇨ [𝕏修仲官号](https://x.com/dramal_abc/status/2105274974751830518)
     > **【修学旅行S2】官方Tiktok小视频:五天王的魔性舞蹈** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7691253785833966868)
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 DXTEEN(笑太郎/步汰) & 小简** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2105247534784659817) <span>高清还原美貌</span>{: .text-pink}｜[𝕏两片想](https://x.com/official_DXTEEN/status/2105244688999698879)/[TT](https://www.tiktok.com/@official_dxteen/video/7691273142618180872) 这个视频DXTEEN也发在X上了比TT的更加高清！
 * **260929**
     > **【修学旅行S2】海报 & 主题曲 & 30s预告解禁**{: .text-red}
         > **海报** ⇨ [𝕏海报](https://x.com/dramal_abc/status/2104692879071260700)/[ins](https://www.instagram.com/p/Dd2NevMk9Cr/) S1欠下的学习债这下都要补回来了……完全是补习班广告😅
@@ -122,6 +134,13 @@ permalink: /flattened_timeline/
     > **【修学旅行S2】长谷川导演快拍:今天拍了我执导的那一集的夜场戏**
 * **260926**
     > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀**{: text-red} @幕張メッセ1-3ホール 14:30~；DXTEEN、步汰、笑太郎也去~ ⇨ [𝕏简-走秀cut(很糊)](https://x.com/kan_hideyoshi/status/2103833401619063064)｜[𝓲简-单人](https://www.instagram.com/p/DdwC-DgAdRK/)｜[𝓲洸-单人](https://www.instagram.com/p/Ddv_lFHlECE/) 挺可惜的难得两位主演剧宣期同时去走秀都没有留下一张正式合照
+        > **非官方存档** 洸大后面直接就跟着小简！※秀洸走秀cut1080p ⇨ [𝕏粉丝存档](https://x.com/moguyopii/status/2104191381170434317)｜有樱花妹扒出秀洸做的是去年Gianna对方的同款动作:</span>{: .text-pink}[𝕏粉丝存档](https://x.com/BaekYSQ/status/2103834000339128693)
+        > **秀洸采访:我的家规**{: .text-red} ⇨ [𝕏](https://x.com/GirlsAward/status/2103813591912808586) 终于合体了！两个人状态都还不错☺️
+        > **秀洸采访:对方惹人喜爱的魅力点**{: .text-red} ⇨ [𝕏](https://x.com/modelpress/status/2103788960904519979) 最后有合体比心！
+        > **主办方抽小简/洸大单人大头贴** ⇨ [𝕏小简花絮](https://x.com/GirlsAward/status/2103792179101724846),[𝕏小简大头贴](https://x.com/modelpress/status/2103793839354040320)｜[𝕏洸大花絮](https://x.com/GirlsAward/status/2103805749499699287),[𝕏洸大大头贴](https://x.com/modelpress/status/2103809073158431028)
+        > **DXTEEN(笑太郎/步汰) & 洸大** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2103840426201690151) <span>众所周知DXTEEN发图绝不凑合都是顶级高清大图；洸大脸超级超级小！</span>{: .text-pink}｜[TT两片想](https://www.tiktok.com/@official_dxteen/video/7689813426360601864) <span>太美萌了洸妹妹！！</span>{: .text-pink}
+        > **吉泽要人发了和洸大的合照** ⇨ [𝕏](https://x.com/kanamey_0712/status/2103854978901450776) 青春死亡游戏剧宣&直播宣传合照
+        > **媒体报道** [...more]({{ site.baseurl }}/timeline_s2/#anchor-260926ga)
     > **【个人活动｜藤本洸大】JUNON×SHOWROOM公式番組「JUNON SUPERBOY CLUB (仮)』MC出演 第2回 情报解禁**{: .text-solo-k} 13:00~ 嘉宾:渡部秀 ⇨ [配信链接](https://www.showroom-live.com/r/junonsuperboyclub) 同一天还有走秀和另一个剧组的直播，洸大的日程也太紧张了……
     > **【修学旅行S2】S2预热:🚌人物紹介💨 3-3 堀田颯斗**{: .text-other} ⇨ [𝕏(没有新图)](https://x.com/dramal_abc/status/2103774074497614270)/[ins](https://www.instagram.com/p/DdvrlD_zDHN/)（能说吗这一批定妆照都P得挺过分…）｜**🚌season1振り返り💨**{: .text-other} ⇨ [ins](https://www.instagram.com/p/Ddvr6E8TN2v/)
 * **260925**

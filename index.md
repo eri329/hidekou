@@ -149,7 +149,7 @@ permalink: /
     > **260822 修学旅行TV再放送 第6话** ⇨ [𝕏BeLuck发新剧照-捡贝壳](https://x.com/BeLuckbunko/status/2091072885406519498) 竟然还有没发过的剧照!!｜长谷川导演分享第6话幕后: [𝕏](https://x.com/hasetaku0227/status/2091167607538008103)/[ins](https://www.instagram.com/p/DcWHOP9PgkW/)
     > **260905 修学旅行TV再放送 第7话** ⇨ [𝕏BeLuck发新剧照](https://x.com/BeLuckbunko/status/2096157638119604602) 其实发的剧照都是第6话的
     > **260912 修学旅行TV再放送 第8话** ⇨ [𝕏-BeLuck发新剧照](https://x.com/BeLuckbunko/status/2098694352726012277)
-    > **261003 修学旅行TV再放送 第9话** ※25:00～25:30
+    > **261003 修学旅行TV再放送 第9话** ※※26:20～ ⇨ [𝕏BeLuck发新剧照](https://x.com/BeLuckbunko/status/2106304497828171879) 第3、4张都是没发过的角度！
     > **261010 修学旅行TV再放送 第10话(最终回)** ※25:00～25:30
 * **260703【修学旅行｜漫画】漫画第10话上线** ⇨ [𝕏](https://x.com/beluckbunko/status/2072988650426790386)
 * **260703【修学旅行｜漫画】漫画原作老师到池袋Animate画了色纸** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2072952799881765253)
