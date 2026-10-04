@@ -1098,6 +1098,9 @@ permalink: /solo/
 
 <!-- * **26「」** ⇨ [🔒FC]() -->
 
+* **261004「百感交集」:** 对修仲2的完成度感到很兴奋；玩了桌游algo。想去船上钓鱼、想玩户外攀爬游戏 ⇨ [🔒FC](https://sp.tcland.jp/contents/1116133)
+* **260927「青春死遊」:** 死亡青春游戏最终回&拍摄的各种感想｜GirlsAward走秀 ⇨ [🔒FC](https://sp.tcland.jp/contents/1113773)
+* **260920「天命を待つ」:** 马上就要21岁了有点不舍的小孩的哲学思考；想要挑战新的东西、增加兴趣爱好、增加朋友｜fineboys beauty vol.14 ⇨ [🔒FC](https://sp.tcland.jp/contents/1112041)
 * **260913「一葉知秋」** 日记依然是修仲拍摄，夏天快结束了，提到山田健人｜同窗会 ⇨ [🔒FC](https://sp.tcland.jp/contents/1109888)
 * **260906「自尊自愛」**{: .text-solo-k} 修仲开始拍摄了｜ SCawaii 260604 ⇨ [🔒FC](https://sp.tcland.jp/contents/1107968)
 * **260830「縦情恣欲」** 明天某个电视剧杀青；最近买衣服的心得｜TVdan 260820 ⇨ [🔒FC](https://sp.tcland.jp/contents/1105858)

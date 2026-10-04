@@ -31,6 +31,7 @@ permalink: /timeline_s2/
     > **260914 双人登场情报解禁** ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099413528340050082) 711网店送手机尺寸小卡三随一
     > **260915 特典卡图柄解禁**{: .text-red} ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099770192238903570) <span>很好看的小卡:有线耳机/礼物缎带/小狗玩偶</span>{: .text-pink}
 * **261017【修学旅行S2】修学旅行第二季开播!**{: .text-red}
+    > **剧照** ⇨ [𝕏S2第1话剧照-床咚](https://x.com/dramal_abc/status/2104775674192146666)/[ins](https://www.instagram.com/p/Dd2zJAKE7ou/) <span>官号发的剧照已经很清晰了；ins多一张日置笑着看手机</span>{: .text-pink}｜[𝕏realsound](https://x.com/realsound_m/status/2104692629690781967) <span>多一张仲里日置在大巴</span>{: .text-pink}
 * **261014【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)**{: .text-red} 10月14日(水)📍東京 18:25~；五天王到场
     > **260929 FC抽选** ⇨ [𝕏小简FC](https://x.com/official_MR8/status/2104858246926438839)｜[𝕏洸大TC-FC](https://x.com/topcoat_staff/status/2104737932083179635)｜[𝕏DXTEEN-FC](https://x.com/official_DXTEEN/status/2104737944577950114)｜[𝕏海李FC](https://x.com/kairi_shimizu/status/2104860857469739377)
     > **260930 🚌制作発表＆1話試写💨 官号情报解禁** 官号转发抽10名观众参加 ⇨ [𝕏](https://x.com/dramal_abc/status/2105274974751830518)
@@ -48,14 +49,15 @@ permalink: /timeline_s2/
     > **260820 情报解禁** ⇨ [𝕏购买链接(无图)](https://x.com/mag_scawaii_men/status/2090350665138937870)｜[𝕏文字介绍/特典详情(无图)](https://x.com/mag_scawaii_men/status/2090351304719950208)
     > **260821 夏日同窗会报道+杂志宣传** ⇨ [𝕏](https://x.com/mag_scawaii_men/status/2090716128863805579)｜[scawaii-web](https://scawaiiweb.com/articles/detail/71515)
     > **260915 封底+特典解禁** ⇨ [𝕏](https://x.com/mag_scawaii_men/status/2099835150259585379) 特典小卡模糊图也解禁了；很好看的一张封面
+* **261004【FC｜直播｜SNS｜简秀吉】小简FC电台直播/ins发捏脸颊:毎日修仲day** ⇨ [𝓲简](https://www.instagram.com/p/DeEkV36hjUW/)
+    > #### 直播提了很多修仲，放了很多次预告(reaction🈶)，听了小红书的劝增肥6kg；发了ins渡会脸颊肉回归中，抱怨被捏痛了「毎日修仲day いてぇよ😒」很多人都在猜ins里的手是不是日置的。
 * **261002【修学旅行｜漫画】修学旅行漫画第13话配信** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2105930799576924448) 经典的「我不是喜欢男的，我是喜欢日置」台词233
 * **261002【修学旅行S2｜双人】24:24~ 修学旅行徹底ガイド1小时特别节目播出**{: .text-red} ⇨ [𝕏徹底ガイド](https://x.com/dramal_abc/status/2106067363963748833), [S1ダイジェスト](https://x.com/dramal_abc/status/2106067997312127152)
     > **260929 放送決定** 修学旅行完全指南1小时特别节目；10月2日0:24~(24:24~) TVer可以回看，内容还蛮丰富的！有S1总集篇和花絮 ⇨ [𝕏](https://x.com/dramal_abc/status/2104869009124671524)/[ins](https://www.instagram.com/p/Dd3dfijzBho/)
     > #### 因为技术故障直到凌晨2点才有TVer回放；节目包含S1回顾、S1后续活动花絮（大部分在蓝光box或配信特典里已经放出过）、S2长预告预览+秀洸Reaction⬅️最有看点的就是这个了！新内容大概也就11分钟😅 但新预告很好看，主题曲的前奏（⬅️很重要）也很好听。日置还是一如既往地坚定，总是他在安慰着破碎的小蝴蝶渡会；但同时又很纯情，总是因为渡会的接近而动摇（心动的意思），真的是很可爱的一对小情侣～洸大在屏幕外再次告诫日置“不要以为交往了就是终点哦？接下来才是真正的试练呢！”的地方很可爱，完全抽离客观的状态也有助于站长人剧分离😢长预告只给看了一半，接下来的转折和危机藏住了，要10/7才放出来。
 * **261001【修学旅行S2】10月拍摄日志**{: .text-red}
     > **261001 难得的大晴天,拍摄了长谷川导演执导的集数** by长谷川导演快拍
-    > **261003** 群演募集，都内近郊/秋季；长谷川导演/进藤导演快拍/长谷川导演发推/海李发推确认有拍摄；Repo确认今天拍了第8话风见野运动会，第8话应该就是进藤执导。
-    > **261004** 继续运动会的拍摄；有群演参与。
+    > **261003~261004 运动会拍摄** 群演募集，都内近郊/秋季；10/3长谷川导演/进藤导演快拍/长谷川导演发推/海李发推确认有拍摄；Repo确认今天拍了第8话风见野运动会，第8话应该就是进藤执导。10/4继续运动会的拍摄(by长谷川/进藤/小简快拍)；有群演参与。
     > **261006~261007** 群演募集，地点未定/浴衣/秋季
     > **261008~261009** 群演募集，地点未定/浴衣/秋季
 
@@ -77,16 +79,20 @@ permalink: /timeline_s2/
     > **260825 洸大情报解禁** ⇨ [𝕏](https://x.com/GirlsAward/status/2092101280865157552) <span>单人活动变双人！太爽了！</span>{: .text-pink}
     > **260926 走秀活动** ※粉丝存档秀洸走秀cut1080p ⇨ [𝕏粉丝存档(9/27)](https://x.com/moguyopii/status/2104191381170434317) <span>洸大后面直接就跟着小简！还有樱花妹扒出秀洸做的是去年Gianna对方的同款动作:</span>{: .text-pink}[𝕏粉丝存档](https://x.com/BaekYSQ/status/2103834000339128693)
     > **260926 秀洸分别发SNS** ⇨ [𝕏简-走秀cut(很糊)](https://x.com/kan_hideyoshi/status/2103833401619063064)｜[𝓲简-单人](https://www.instagram.com/p/DdwC-DgAdRK/)｜[𝓲洸-单人](https://www.instagram.com/p/Ddv_lFHlECE/) 挺可惜的难得两位主演剧宣期同时去走秀都没有留下一张正式合照 
-    > **260926 GirlsAward秀洸采访:我的家规**{: .text-red} ⇨ [𝕏](https://x.com/GirlsAward/status/2103813591912808586)
+    > **260926 GirlsAward秀洸采访:我的家规**{: .text-red} ⇨ [𝕏](https://x.com/GirlsAward/status/2103813591912808586)/[ins](https://www.instagram.com/p/DdwBX6UkSag/)
     > #### 终于合体了！两个人状态都还不错☺️洸大每天要泡两次澡（小简震惊脸）简：冰箱里一定要有纳豆。洸：我也有，今天早上也吃了纳豆。简：我也是。洸：耶👍🏻 ⬅️突然很有默契的两人，也一直在对视☺️最后俩人一起手指头走路可爱死了。
-    > **260926 ModelPress秀洸采访:对方惹人喜爱的魅力点**{: .text-red} ⇨ [𝕏](https://x.com/modelpress/status/2103788960904519979)
+    > **260926 ModelPress秀洸采访:对方惹人喜爱的魅力点**{: .text-red} ⇨ [𝕏](https://x.com/modelpress/status/2103788960904519979)/[ins](https://www.instagram.com/p/DdvyfthJMkn/)
     > #### 简->洸：果然是这个可爱的脸蛋吧！(洸大闻言立刻开始使相)；洸->简：对自己的爱。简：也就是自恋吧？洸：这一点也传达给了粉丝（让大家也爱你）；随后简说了韩语谢谢，洸大也回了韩语谢谢。互动好自然好萌呀☺️最后两人还合体比心了！感觉他俩今天心情都格外好（于是甜甜一笑浅浅一卖）
     > **260926 GirlsAward官号转发各抽1人送小简/洸大单人大头贴** ⇨ [𝕏小简花絮](https://x.com/GirlsAward/status/2103792179101724846),[𝕏小简大头贴](https://x.com/modelpress/status/2103793839354040320)｜[𝕏洸大花絮](https://x.com/GirlsAward/status/2103805749499699287),[𝕏洸大大头贴](https://x.com/modelpress/status/2103809073158431028)
-    > **260926 DXTEEN(笑太郎/步汰) & 洸大** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2103840426201690151) <span>众所周知DXTEEN发图绝不凑合都是顶级高清大图；洸大脸超级超级小！</span>{: .text-pink}｜[TT两片想](https://www.tiktok.com/@official_dxteen/video/7689813426360601864) <span>太美萌了洸妹妹！！洸大321是反着来的，把“片想”做了谐音“肩膀很重”的效果www</span>{: .text-pink}
+    > **260926 DXTEEN(笑太郎/步汰)&洸大** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2103840426201690151) <span>众所周知DXTEEN发图绝不凑合都是顶级高清大图；洸大脸超级超级小！</span>{: .text-pink}｜[TT两片想](https://www.tiktok.com/@official_dxteen/video/7689813426360601864)/[ins](https://www.instagram.com/p/DdwCzAfPQz_/) <span>太美萌了洸妹妹！！洸大321是反着来的，把“片想”做了谐音“肩膀很重”的效果www</span>{: .text-pink}
     > **260926 吉泽要人发了青春死亡游戏的剧宣合照(有洸大)** ⇨ [𝕏](https://x.com/kanamey_0712/status/2103854978901450776)
     > **260926 媒体报道** ⇨ [𝕏Oricon News-小简](https://x.com/oricon/status/2103782205998956816)｜[𝕏Oricon News-洸大](https://x.com/oricon/status/2103787392335540266)｜[𝕏推し楽-小简](https://x.com/oshiraku/status/2103990524319539377)｜[𝕏推し楽-洸大](https://x.com/oshiraku/status/2103990515666743484)｜[𝕏Emomiu-秀洸](https://x.com/Emo_miu/status/2103808345056641411)｜[𝕏観星台-秀洸](https://x.com/jpstargazer/status/2104173774056906876)｜[𝕏ModelPress](https://x.com/modelpress/status/2103790009824542855) <span>⬅️这个是会嗑的，嗑到偷瞄了</span>{: .text-pink}
-    > **260930 DXTEEN(笑太郎/步汰) & 小简** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2105247534784659817) <span>高清还原美貌</span>{: .text-pink}｜[𝕏两片想](https://x.com/official_DXTEEN/status/2105244688999698879)/[TT](https://www.tiktok.com/@official_dxteen/video/7691273142618180872) 这个视频DXTEEN也发在X上了比TT的更加高清！
-    > **261003 大合照视频** 小简和洸大站一起，还在同步做“手相”! ⇨ [𝕏](https://x.com/GirlsAward/status/2106346102572355973)
+    > **260927 洸大日记发单人offshot** ⇨ [🔒FC](https://sp.tcland.jp/contents/1113773)
+    > **260928 推し楽 洸大特别采访** ⇨ [ins推し楽](https://www.instagram.com/p/Dd0LvoqSoey/)
+    > #### 洸大说今天的妆造就像高贵优雅人家的猫🐈一样（哎呀呀自我猫塑中）自己的推点是闪亮的笑容✨刚出场时走得很帅气，被大家的欢声惊到不小心瞥了一眼，感到很害羞233
+    > **260930 DXTEEN(笑太郎/步汰)&小简** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2105247534784659817) <span>高清还原美貌</span>{: .text-pink}｜[𝕏两片想](https://x.com/official_DXTEEN/status/2105244688999698879)/[TT](https://www.tiktok.com/@official_dxteen/video/7691273142618180872) 这个视频DXTEEN也发在X上了比TT的更加高清！
+    > **261003 大合照视频** <span>小简和洸大站一起，还在同步做“手相”!</span>{: .text-pink} ⇨ [𝕏](https://x.com/GirlsAward/status/2106346102572355973)/[ins](https://www.instagram.com/p/DeCDoeHvJo0/)
+    > **261004 官方单人cut** 720p ⇨ [𝕏小简cut](https://www.instagram.com/p/DeEm18BPZKn/)｜[𝕏洸大cut](https://www.instagram.com/p/DeElMyZP5Mz/)
 * **260924【杂志｜双人】《JUNON》11月号(9/24) 杂志发售**
     > **260828 双人封底登场解禁** ⇨ [𝕏](https://x.com/JUNON_jp/status/2093247298327240920)
     > **260924 小简发单人cut** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2103081267063619915)/[𝓲简](https://www.instagram.com/p/Ddqusq5AR3-/) 裁单人/删合照的操作真是有点迷惑…
@@ -115,7 +121,8 @@ permalink: /timeline_s2/
     > **260908 线下展明信片图透** ⇨ [𝕏](https://x.com/CYANMANMAGAZINE/status/2097233479729643941)
     > **260913~260914 线下展**
     > **260917 花絮照片/视频** ⇨ [ins花絮视频](https://www.instagram.com/p/DdYf3K2BTS9/)｜[ins九宫格花絮照-双人](https://www.instagram.com/p/DdYfWNDnxFw/)
-* **260911【修学旅行S2】S2定妆照 & 短预告 & 剧情简介解禁！/ TVer特别采访**{: .text-red #anchor-260911} ⇨ [𝕏15s预告](https://x.com/dramal_abc/status/2098351006744809485)/[ins](https://www.instagram.com/p/DdJJfgwzDOE/)/[youtube](https://www.youtube.com/watch?v=MR_H7tigTuA)｜[𝕏渡日定妆合照](https://x.com/dramal_abc/status/2098350842873303434)/[ins](https://www.instagram.com/p/DdJJQ_FTyZD/) 小情侣合照！｜[𝕏五人小头像+高三分班](https://x.com/dramal_abc/status/2098352458271752305)/[ins](https://www.instagram.com/p/DdJJvX3TuYL/)｜[TVer特别采访](https://tver.jp/episodes/epphqin7ja)/[yhm截的片段](https://x.com/altjdsus__/status/2098357137953153324) <span>预告放出的三个渡日同框都很好看！！但是渡会的发型有点一言难尽太瓜皮头了吧；渡会和守崎、仲里和堀田、日置和辻谷一个班</span>{: .text-pink}
+* **260911【修学旅行S2】S2定妆照 & 短预告 & 剧情简介解禁！/ TVer特别采访**{: .text-red #anchor-260911} ⇨ [𝕏15s预告](https://x.com/dramal_abc/status/2098351006744809485)/[ins](https://www.instagram.com/p/DdJJfgwzDOE/)/[youtube](https://www.youtube.com/watch?v=MR_H7tigTuA)｜[𝕏渡日定妆合照](https://x.com/dramal_abc/status/2098350842873303434)/[ins](https://www.instagram.com/p/DdJJQ_FTyZD/) 小情侣合照！｜[𝕏五人小头像+高三分班](https://x.com/dramal_abc/status/2098352458271752305)/[ins](https://www.instagram.com/p/DdJJvX3TuYL/)｜[TVer特别采访](https://tver.jp/episodes/epphqin7ja)/[yhm截的片段](https://x.com/altjdsus__/status/2098357137953153324) 
+    > #### 预告放出的三个渡日同框都很好看！！但是渡会的发型有点一言难尽太瓜皮头了吧；渡会和守崎、仲里和堀田、日置和辻谷一个班
     > **260910 官推预告** ⇨ [𝕏](https://x.com/dramal_abc/status/2098034576501432350) 9/11(金)19:00 coming soon；有一张五人模糊背影
     > 单人定妆照 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2098351164828057751)/[𝓲简](https://www.instagram.com/p/DdJJd-DASm4/)｜[𝓲洸](https://www.instagram.com/p/DdL29iwlM3c/)｜[𝕏海李](https://x.com/kairi_shimizu/status/2098419164604137743)/[ins](https://www.instagram.com/p/DdJMlMHkq5t/)｜[𝕏DXTEEN](https://x.com/official_DXTEEN/status/2098351230947131748)｜[ins樱木](https://www.instagram.com/p/DdJPFj5k5Gb/)
     > ABC报道 ⇨ [𝕏abc-tv](https://x.com/asahi_tv/status/2098350853686210719)｜[𝕏abc-magazine](https://x.com/abc_mgzn/status/2098350842671972781) 高清大图!
