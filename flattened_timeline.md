@@ -87,17 +87,18 @@ permalink: /flattened_timeline/
     > **【修学旅行S2】花火大会拍摄群演募集** 10月6日(火)或7日(水) 地点未定/浴衣/秋季
     > **洸大21岁生日!**{: .text-red}
     > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」发售**{: .text-solo-k}
-* **261005**
-    > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**{: .text-red} ⇨ []()
 
 <div class="line"></div>
 
+* **261005**
+    > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**{: .text-red} ⇨ []()
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 新闻报道:摩托罗拉展位简秀吉登场** ⇨ [prtimes](https://prtimes.jp/main/html/rd/p/000000043.000132917.html) 发售日刚好在小简生日那天，摩托罗拉送了小简一台motorola edge 70 fusion作为生日礼物。
 * **261004**
-    > **【修学旅行S2】运动会拍摄** 长谷川导演/进藤导演/小简快拍都感谢了今天群演的参与和拍摄。
-    > **【修学旅行S2｜SNS｜简秀吉】小简ins发渡会被捏脸**「毎日修仲day いてぇよ😒」⇨ [𝓲简](https://www.instagram.com/p/DeEkV36hjUW/)
+    > **【修学旅行S2】运动会拍摄** 长谷川导演/进藤导演/小简快拍都感谢了今天群演的参与和拍摄。⇨ [𝕏长谷川导演发推感谢](https://x.com/hasetaku0227/status/2106697748896796765)
+    > **【修学旅行S2｜SNS｜简秀吉】小简ins发渡会被捏脸**「毎日修仲day いてぇよ😒」⇨ [𝓲简](https://www.instagram.com/p/DeEkV36hjUW/) 用的也是两片想韩语版bgm
     > **【FC｜直播｜简秀吉】小简FC电台直播** 提了很多修仲，增肥6kg
-    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 官方单人cut** 720p ⇨ [𝕏小简cut](https://www.instagram.com/p/DeEm18BPZKn/)｜[𝕏洸大cut](https://www.instagram.com/p/DeElMyZP5Mz/)
     > **【FC｜藤本洸大】洸大日记「百感交集」:对修仲2的完成度感到很兴奋** 玩了桌游algo。想去船上钓鱼、想玩户外攀爬游戏 ⇨ [🔒FC](https://sp.tcland.jp/contents/1116133)
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 官方单人cut** X是1080p ⇨ [𝕏小简cut](https://x.com/GirlsAward/status/2106706297404248369)/[ins](https://www.instagram.com/p/DeEm18BPZKn/)｜[𝕏洸大cut](https://x.com/GirlsAward/status/2106704999774650728)/[ins](https://www.instagram.com/p/DeElMyZP5Mz/)
 * **261003**
     > **【修学旅行｜正片】修学旅行TV再放送 第9话** ※26:20～ ⇨ [𝕏BeLuck发新剧照](https://x.com/BeLuckbunko/status/2106304497828171879) 第3、4张都是没发过的角度！
     > **【修学旅行S2】运动会拍摄** 群演募集10月3日(土)、4日(日)、5日(月)中的两天，都内近郊/秋季；10/3日一早长谷川导演发了快拍确认今天有拍摄, 进藤导演也发了快拍(第8话应该就是进藤执导)；Repo确认今天拍了第8话风见野运动会。⇨ [𝕏海李发推感谢](https://x.com/kairi_shimizu/status/2106320930016464907)｜[𝕏长谷川导演发推感谢](https://x.com/hasetaku0227/status/2106376762154471768) 长谷川导演说看到修仲饭的大家幸福的表情有点想哭。⬅️太性情了导演！
@@ -118,11 +119,11 @@ permalink: /flattened_timeline/
 * **260930**
     > **【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)情报解禁** 🚌制作発表＆1話試写💨 从官号转发以及各主演的FC内部抽观众参加；10月14日(水)📍東京 18:25~；五天王都会到场 ⇨ [𝕏修仲官号](https://x.com/dramal_abc/status/2105274974751830518)
     > **【修学旅行S2】官方Tiktok小视频:五天王的魔性舞蹈** ⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7691253785833966868)
-    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 DXTEEN(笑太郎/步汰)&小简** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2105247534784659817)｜[𝕏两片想(超高清)](https://x.com/official_DXTEEN/status/2105244688999698879)/[TT](https://www.tiktok.com/@official_dxteen/video/7691273142618180872)
+    > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 DXTEEN(笑太郎/步汰)&小简** ⇨ [𝕏offshot](https://x.com/official_DXTEEN/status/2105247534784659817)｜[𝕏两片想(超高清)](https://x.com/official_DXTEEN/status/2105244688999698879)/[TT](https://www.tiktok.com/@official_dxteen/video/7691273142618180872)/[ins](https://www.instagram.com/p/Dd6IVs-PVLF/)
 * **260929**
     > **【修学旅行S2】海报 & 主题曲 & 30s预告解禁**{: .text-red}
         > **海报** ⇨ [𝕏海报](https://x.com/dramal_abc/status/2104692879071260700)/[ins](https://www.instagram.com/p/Dd2NevMk9Cr/) S1欠下的学习债这下都要补回来了……完全是补习班广告😅
-        > **主题曲** ⇨ [𝕏主題歌:相思想愛/步汰留言](https://x.com/dramal_abc/status/2104693131023089989)/[ins](https://www.instagram.com/p/Dd2NhW5kzGh/)/[𝕏步汰留言完整版](https://x.com/BeLuckbunko/status/2104694882950598768)
+        > **主题曲** ⇨ [𝕏主題歌:相思想愛](https://x.com/dramal_abc/status/2104693131023089989)/[ins](https://www.instagram.com/p/Dd2NhW5kzGh/)｜[𝕏DXTEEN](https://x.com/official_DXTEEN/status/2104692632287125788)⬅️有步汰留言和修仲2海报全网[最高清大图](https://dxteen.com/news/detail/2119)
         > **预告/剧照** ⇨ [𝕏30s预告](https://x.com/dramal_abc/status/2104692640381833298)/[ins](https://www.instagram.com/p/Dd2NUdVE6Pc/)/[youtube](https://www.youtube.com/watch?v=IQ-lH8t3r-w)「恋に受験に大忙し📖 高校最後の1年間の物語✨」处处透露着学习的气息hhh｜[𝕏S2第1话剧照](https://x.com/dramal_abc/status/2104775674192146666)/[ins](https://www.instagram.com/p/Dd2zJAKE7ou/) 官号发的剧照已经是最清晰的了｜[𝕏BeLuck多一张剧照](https://x.com/BeLuckbunko/status/2104695341782335688) 高清大图好评！ins多一张日置看手机；感觉连主要场景都和S1第1话是呼应的，希望可以做出一些新鲜感🙏🏻｜[𝕏进藤导演转发](https://x.com/shindo59512/status/2104696104419983364)/[ins](https://www.instagram.com/p/Dd2QNkIE18g/)
         > **小简发SNS:相思想愛🏹🏫💌** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2104905593224044766)/[𝓲简](https://www.instagram.com/p/Dd3sxqlAcpe/) ※洸大10/2才发了相关ins
         > **导演发推** 长谷川导演: 深夜剧的预告竟然登上热搜1位!第2位是东京连续34天下雨，导演欲哭无泪💦 ⇨ [𝕏](https://x.com/hasetaku0227/status/2104709389034860734) 看了觉得长谷川导演真的很爱小修学｜安见导演: 担任第4~5话的导演 ⇨ [𝕏](https://x.com/lennono560/status/2104895133288386681)/[ins](https://www.instagram.com/p/Dd31YoAI_k6/)
