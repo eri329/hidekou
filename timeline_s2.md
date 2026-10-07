@@ -42,8 +42,14 @@ permalink: /timeline_s2/
     > **260917 泰国情报解禁** 9/18开票；2026年10月11日 ⇨ [𝕏](https://x.com/MajorGroup/status/2100525173921431987)
     > **261002 香港Dress Code+亲签板活动详细规则** ⇨ [ins](https://www.instagram.com/p/Dd_HMdYiGa4/)
 * **261009【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red}
+* **261007【修学旅行S2】120s预告 & 剧照壁纸解禁！**{: .text-red}
+    > **261006 10/7 7:00~ coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2107460569242677257)
 * **261007【杂志｜双人】《TV LIFE》10/23号(10/7) 杂志发售**
     > **260917 双人登场情报解禁** ⇨ [𝕏](https://x.com/tv_life/status/2100540283779706901) HMV预约送公交卡贴纸三随一
+* **261006【生日｜藤本洸大】洸大21岁生日快乐!**{: .text-red} ⇨ [𝓲洸-宣传写真集/眼镜日置/和新井&蛋糕合照](https://www.instagram.com/p/DeJvffFFI5E/)｜[𝕏修仲官号](https://x.com/dramal_abc/status/2107422578424025149)/[ins](https://www.instagram.com/p/DeJmuSWTqb6/)｜[ins小简快拍存档](https://x.com/nano_hdku/status/2107488318653165724)
+    > #### 洸大发了快拍(BGM:今津渉-結び)和ins(BGM:今津渉-あなたといたい)⬅️小简有点赞！（时隔10个月的点赞233）洸大各个剧组和官号都发了祝福。修仲官号发的是洸大和新井元輝以及羽毛球部合照；山田健人、新井元輝、樱木雅哉、进藤导演都转快拍祝福。小简在10月6日23:59踩点发快拍祝福，同样用了《結び》当BGM，说今年要做最后一个贺生的人。 
+    > **261007 和简秀吉的合照由媒体通稿放出** 原来合照在这里…所有媒体都发的同一张图 ⇨ [𝕏Oricon News](https://x.com/oricon/status/2107591732691095606)｜[𝕏TVG](https://x.com/TVGweb/status/2107591983518589349)｜[𝕏TV life](https://x.com/tv_life/status/2107595001362608133)｜[𝕏ABC-magazine](https://x.com/abc_mgzn/status/2107591732544291120) 图小｜[𝕏ABC-tv](https://x.com/asahi_tv/status/2107591732892213496)｜[𝕏TDB](https://x.com/talent_databank/status/2107591742489006426)
+    > #### 洸大现场发言：「去年に引き続き、2年連続『修学旅行で仲良くないグループに入りました』の現場で誕生日をお祝いしていただき、本当にうれしいです」「皆さん、最後まで怪我なく、健康に駆け抜けましょう。僕も頑張ります！」
 * **261005【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**
     > **特典摘要**: 特别版狐猪封底+infosquare特典六随一(单人2枚x2套+双人2枚)
     > **260820 情报解禁** ⇨ [𝕏购买链接(无图)](https://x.com/mag_scawaii_men/status/2090350665138937870)｜[𝕏文字介绍/特典详情(无图)](https://x.com/mag_scawaii_men/status/2090351304719950208)

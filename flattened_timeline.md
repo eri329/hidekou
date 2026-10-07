@@ -80,18 +80,23 @@ permalink: /flattened_timeline/
     > **【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red}
 * **261008**
     > **【修学旅行S2】花火大会拍摄群演募集** 10月8日(木)或9日(金) 地点未定/浴衣/秋季
-* **261007**
-    > **【修学旅行S2｜双人】长预告解禁!**{: .text-red}
-    > **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 开播**{: .text-solo} 四村健役
-* **261006**
-    > **【修学旅行S2】花火大会拍摄群演募集** 10月6日(火)或7日(水) 地点未定/浴衣/秋季
-    > **洸大21岁生日!**{: .text-red}
-    > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」发售**{: .text-solo-k}
 
 <div class="line"></div>
 
+* **261007**
+    > **【修学旅行S2｜双人】120s预告 & 剧照壁纸 & 渡会前女友演员解禁！**{: .text-red} ⇨ [𝕏120s预告](https://x.com/dramal_abc/status/2107591731827159227)/[ins](https://www.instagram.com/p/DeKzqwXE4dL/)/[youtube](https://youtu.be/tHbT5YMC9iU)｜四张剧照壁纸:[𝕏背影](https://x.com/dramal_abc/status/2107591981883158552)/[ins](https://www.instagram.com/p/DeKzwk9E_u_/), [𝕏生日](https://x.com/dramal_abc/status/2107592233474052548)/[ins](https://www.instagram.com/p/DeKzzBqk0f1/), [𝕏床咚](https://x.com/dramal_abc/status/2107592485245702535)/[ins](https://www.instagram.com/p/DeKzyOvE7po/), [𝕏约定](https://x.com/dramal_abc/status/2107592736899834102)/[ins](https://www.instagram.com/p/DeKzqGUE8rj/) 绝美壁纸！！！这套图ins官号发的最大但是画幅比X的要小，X里的背影那张很小，可以到Oricon的X上补存大图。
+        > **渡会前女友卡司解禁** [𝕏铃川纱由](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)
+        > **进藤导演发推&留言** ⇨ [𝕏](https://x.com/shindo59512/status/2107601157975859599) 留言:「ファンの皆さまのおかげで、シーズン2を撮れることになりました！前作と同じキャスト・スタッフが集結し、さらにパワーアップした修仲ワールドを楽しんでもらえると思います。日置のかわいさ！渡会の暴走！優しい三天王！そして辻谷劇場！愛しいすべてが詰まった撮影の日々です。彼らの高校最後の1年間をどうか温かく見守ってください！」
+        > **媒体报道** 见下方洸大生日通稿，全都同时宣传了修仲2
+    > **【生日｜藤本洸大】洸大21岁生日 和简秀吉的合照由媒体通稿放出** 原来合照在这里…媒体可以发本人不可以发😅所有媒体都发的同一张图 ⇨ [𝕏Oricon News](https://x.com/oricon/status/2107591732691095606) 有洸大的发言｜[𝕏TVG](https://x.com/TVGweb/status/2107591983518589349)｜[𝕏TV life](https://x.com/tv_life/status/2107595001362608133)｜[𝕏ABC-magazine](https://x.com/abc_mgzn/status/2107591732544291120) 图小｜[𝕏ABC-tv](https://x.com/asahi_tv/status/2107591732892213496)｜[𝕏TDB](https://x.com/talent_databank/status/2107591742489006426)｜[雅虎新闻](https://news.yahoo.co.jp/articles/a32652f1a60d0417d3dbf57abeb273cdbefa791a)
+    > **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 开播**{: .text-solo} 四村健役
+* **261006**
+    > **【修学旅行S2】花火大会拍摄群演募集** 10月6日(火)或7日(水) 地点未定/浴衣/秋季
+    > **【修学旅行S2】10/7 7:00~ coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2107460569242677257) 预告要来了!
+    > **【生日｜藤本洸大】洸大21岁生日!**{: .text-red} 洸大发了快拍(BGM:今津渉-結び)和ins(BGM:今津渉-あなたといたい)⬅️小简有点赞！（时隔10个月的点赞233）小简在10月6日23:59踩点发快拍祝福，同样用了《結び》当BGM，说今年要做最后一个贺生的人。 ⇨ [𝓲洸-宣传写真集/眼镜日置/和新井&蛋糕合照](https://www.instagram.com/p/DeJvffFFI5E/)｜[𝕏修仲官号](https://x.com/dramal_abc/status/2107422578424025149)/[ins](https://www.instagram.com/p/DeJmuSWTqb6/)｜[ins小简快拍存档](https://x.com/nano_hdku/status/2107488318653165724)
+    > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」发售**{: .text-solo-k}
 * **261005**
-    > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**{: .text-red} ⇨ []()
+    > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**
     > **【个人活动｜简秀吉｜藤本洸大】Rakuten GirlsAward 2026秋冬走秀 新闻报道:摩托罗拉展位简秀吉登场** ⇨ [prtimes](https://prtimes.jp/main/html/rd/p/000000043.000132917.html) 发售日刚好在小简生日那天，摩托罗拉送了小简一台motorola edge 70 fusion作为生日礼物。
 * **261004**
     > **【修学旅行S2】运动会拍摄** 长谷川导演/进藤导演/小简快拍都感谢了今天群演的参与和拍摄。⇨ [𝕏长谷川导演发推感谢](https://x.com/hasetaku0227/status/2106697748896796765)
