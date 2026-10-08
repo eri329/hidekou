@@ -21,6 +21,9 @@ permalink: /flattened_timeline/
 
 <div class="timeline-content" markdown='1'>
 
+<details markdown="1">
+<summary><strong>=================== Future Events(点击此行展开/收起)===================</strong></summary>
+
 * **2027年2~3月【个人活动｜藤本洸大】舞台剧「消えた花をさがして」公演**{: .text-solo-k}
 * **270110**
     > **【个人活动｜简秀吉】简秀吉写真集1st Photobook线上签售会**{: .text-solo}
@@ -51,6 +54,8 @@ permalink: /flattened_timeline/
 * **261103**
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大阪生日会**{: .text-solo} 14:00/17:30📍大阪エル・シアター
 
+</details>
+
 ### 2026.10
 {: #oct2026}
 
@@ -65,7 +70,7 @@ permalink: /flattened_timeline/
 * **261018**
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大宫生日会**{: .text-solo} 14:30/18:30📍大宮ソニックシティホール大ホール
 * **261017**
-    > **【修学旅行S2】修学旅行第二季开播!**{: .text-red}
+    > **【修学旅行S2】修学旅行第二季开播!**{: .text-red} 25:00~
 * **261014**
     > **【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)**{: .text-red} 10月14日(水)📍東京 18:25~；五天王到场
 * **261013**
@@ -78,18 +83,21 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】洸大1st写真集大阪签售会**{: .text-solo-k}
 * **261009**
     > **【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red}
-* **261008**
-    > **【修学旅行S2】花火大会拍摄群演募集** 10月8日(木)或9日(金) 地点未定/浴衣/秋季
 
 <div class="line"></div>
 
+* **261008**
+    > **【修学旅行S2】花火大会拍摄群演募集** 10月8日(木)或9日(金) 地点未定/浴衣/秋季
 * **261007**
     > **【修学旅行S2｜双人】120s预告 & 剧照壁纸 & 渡会前女友演员解禁！**{: .text-red} ⇨ [𝕏120s预告](https://x.com/dramal_abc/status/2107591731827159227)/[ins](https://www.instagram.com/p/DeKzqwXE4dL/)/[youtube](https://youtu.be/tHbT5YMC9iU)｜四张剧照壁纸:[𝕏背影](https://x.com/dramal_abc/status/2107591981883158552)/[ins](https://www.instagram.com/p/DeKzwk9E_u_/), [𝕏生日](https://x.com/dramal_abc/status/2107592233474052548)/[ins](https://www.instagram.com/p/DeKzzBqk0f1/), [𝕏床咚](https://x.com/dramal_abc/status/2107592485245702535)/[ins](https://www.instagram.com/p/DeKzyOvE7po/), [𝕏约定](https://x.com/dramal_abc/status/2107592736899834102)/[ins](https://www.instagram.com/p/DeKzqGUE8rj/) 绝美壁纸！！！这套图ins官号发的最大但是画幅比X的要小，X里的背影那张很小，可以到Oricon的X上补存大图。
         > **渡会前女友卡司解禁** [𝕏铃川纱由](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)
-        > **进藤导演发推&留言** ⇨ [𝕏](https://x.com/shindo59512/status/2107601157975859599) 留言:「ファンの皆さまのおかげで、シーズン2を撮れることになりました！前作と同じキャスト・スタッフが集結し、さらにパワーアップした修仲ワールドを楽しんでもらえると思います。日置のかわいさ！渡会の暴走！優しい三天王！そして辻谷劇場！愛しいすべてが詰まった撮影の日々です。彼らの高校最後の1年間をどうか温かく見守ってください！」
+        > **进藤导演发推&留言** ⇨ [𝕏](https://x.com/shindo59512/status/2107601157975859599)
+        > **DXTEEN发推认领相思想爱** ⇨ [𝕏](https://x.com/official_DXTEEN/status/2107599379381309446)
         > **媒体报道** 见下方洸大生日通稿，全都同时宣传了修仲2
-    > **【生日｜藤本洸大】洸大21岁生日 和简秀吉的合照由媒体通稿放出** 原来合照在这里…媒体可以发本人不可以发😅所有媒体都发的同一张图 ⇨ [𝕏Oricon News](https://x.com/oricon/status/2107591732691095606) 有洸大的发言｜[𝕏TVG](https://x.com/TVGweb/status/2107591983518589349)｜[𝕏TV life](https://x.com/tv_life/status/2107595001362608133)｜[𝕏ABC-magazine](https://x.com/abc_mgzn/status/2107591732544291120) 图小｜[𝕏ABC-tv](https://x.com/asahi_tv/status/2107591732892213496)｜[𝕏TDB](https://x.com/talent_databank/status/2107591742489006426)｜[雅虎新闻](https://news.yahoo.co.jp/articles/a32652f1a60d0417d3dbf57abeb273cdbefa791a)
+    > **【生日｜藤本洸大】洸大21岁生日 和简秀吉的合照由媒体通稿放出** 原来合照在这里…所有媒体都发的同一张图 ⇨ [𝕏修仲官号](https://x.com/dramal_abc/status/2107818231935439063)/[ins](https://www.instagram.com/p/DeMY9lazkls/) 只有官号和媒体照有一点点不同~｜[𝕏Oricon News](https://x.com/oricon/status/2107591732691095606) 有洸大的发言｜[𝕏TVG](https://x.com/TVGweb/status/2107591983518589349)｜[𝕏TV life](https://x.com/tv_life/status/2107595001362608133)｜[𝕏ABC-magazine](https://x.com/abc_mgzn/status/2107591732544291120) 图小｜[𝕏ABC-tv](https://x.com/asahi_tv/status/2107591732892213496)｜[𝕏TDB](https://x.com/talent_databank/status/2107591742489006426)｜[雅虎新闻](https://news.yahoo.co.jp/articles/a32652f1a60d0417d3dbf57abeb273cdbefa791a)
+    > **【修学旅行S2】修学旅行TVer收藏数达到35万!**{: .text-red} ⇨ [𝕏官推发帖(10/8)](https://x.com/dramal_abc/status/2108004949275914466)
     > **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 开播**{: .text-solo} 四村健役
+    > **【修学旅行S2】三浦健人(守崎辽翔)发推确认出演修仲2**{: .text-other} ⇨ [𝕏](https://www.instagram.com/p/DeMTjGRDgYw/) 大哥还是那个味儿！有辽翔哥单人剧照
 * **261006**
     > **【修学旅行S2】花火大会拍摄群演募集** 10月6日(火)或7日(水) 地点未定/浴衣/秋季
     > **【修学旅行S2】10/7 7:00~ coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2107460569242677257) 预告要来了!

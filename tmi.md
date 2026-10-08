@@ -278,6 +278,7 @@ permalink: /tmi/
 ### 三浦健人(守崎辽翔)
 {: #morini}
 
+* **261007 发推确认出演修仲2 & 守崎辽翔剧照** ⇨ [𝕏](https://www.instagram.com/p/DeMTjGRDgYw/) 大哥还是那个味儿！
 * **260301 和山田健人、长谷川导演吃饭了** ⇨ [ins](https://www.instagram.com/p/DVVjQmdDjse/)
 * **260109 又和山田健人去桑拿了** ⇨ [ins](https://www.instagram.com/p/DTSOqG4lM1y/)
 * **251223 和山田健人第二次出去玩** 去了桑拿 ⇨ [ins](https://www.instagram.com/p/DRzb8Pikv7H/)

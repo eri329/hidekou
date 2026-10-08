@@ -30,7 +30,7 @@ permalink: /timeline_s2/
 * **261021【杂志｜双人】《週刊TVガイド関東版》10/30号(10/21) 杂志发售**
     > **260914 双人登场情报解禁** ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099413528340050082) 711网店送手机尺寸小卡三随一
     > **260915 特典卡图柄解禁**{: .text-red} ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099770192238903570) <span>很好看的小卡:有线耳机/礼物缎带/小狗玩偶</span>{: .text-pink}
-* **261017【修学旅行S2】修学旅行第二季开播!**{: .text-red}
+* **261017【修学旅行S2】修学旅行第二季开播!**{: .text-red} 25:00~
     > **剧照** ⇨ [𝕏S2第1话剧照-床咚](https://x.com/dramal_abc/status/2104775674192146666)/[ins](https://www.instagram.com/p/Dd2zJAKE7ou/) <span>官号发的剧照已经很清晰了；ins多一张日置笑着看手机</span>{: .text-pink}｜[𝕏realsound](https://x.com/realsound_m/status/2104692629690781967) <span>多一张仲里日置在大巴</span>{: .text-pink}
 * **261014【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)**{: .text-red} 10月14日(水)📍東京 18:25~；五天王到场
     > **260929 FC抽选** ⇨ [𝕏小简FC](https://x.com/official_MR8/status/2104858246926438839)｜[𝕏洸大TC-FC](https://x.com/topcoat_staff/status/2104737932083179635)｜[𝕏DXTEEN-FC](https://x.com/official_DXTEEN/status/2104737944577950114)｜[𝕏海李FC](https://x.com/kairi_shimizu/status/2104860857469739377)
@@ -42,14 +42,23 @@ permalink: /timeline_s2/
     > **260917 泰国情报解禁** 9/18开票；2026年10月11日 ⇨ [𝕏](https://x.com/MajorGroup/status/2100525173921431987)
     > **261002 香港Dress Code+亲签板活动详细规则** ⇨ [ins](https://www.instagram.com/p/Dd_HMdYiGa4/)
 * **261009【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red}
-* **261007【修学旅行S2】120s预告 & 剧照壁纸解禁！**{: .text-red}
-    > **261006 10/7 7:00~ coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2107460569242677257)
 * **261007【杂志｜双人】《TV LIFE》10/23号(10/7) 杂志发售**
     > **260917 双人登场情报解禁** ⇨ [𝕏](https://x.com/tv_life/status/2100540283779706901) HMV预约送公交卡贴纸三随一
+> **261007【修学旅行S2】修学旅行TVer收藏数达到35万!**{: .text-red} ⇨ [𝕏官推发帖(10/8)](https://x.com/dramal_abc/status/2108004949275914466)
+* **261007【修学旅行S2】120s预告 & 剧照壁纸 & 渡会前女友演员解禁！**{: .text-red}
+    > **261006 10/7 7:00~ coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2107460569242677257)
+    > **120s预告** ⇨ [𝕏120s预告](https://x.com/dramal_abc/status/2107591731827159227)/[ins](https://www.instagram.com/p/DeKzqwXE4dL/)/[youtube](https://youtu.be/tHbT5YMC9iU)
+    > #### 谁来管管这个渡日真的太可爱了吧！！！感觉非常对味☺️两个人都各自有恋爱的烦恼～预告看起来是渡会希望日置对他多撒娇，而日置就是烦恼前女友了。日置脸贴墙滑下来真的超绝可爱啊啊啊。前女友卡司也解禁了，感觉是和原作珠珠完全不同的类型，外型气质微妙地和日置有些撞号……相思想爱的前奏果然还是很好听！副歌目前还是觉得没什么亮点🤔
+    > **剧照壁纸** 新剧照解禁！⇨ [𝕏背影](https://x.com/dramal_abc/status/2107591981883158552)/[ins](https://www.instagram.com/p/DeKzwk9E_u_/), [𝕏生日](https://x.com/dramal_abc/status/2107592233474052548)/[ins](https://www.instagram.com/p/DeKzzBqk0f1/), [𝕏床咚](https://x.com/dramal_abc/status/2107592485245702535)/[ins](https://www.instagram.com/p/DeKzyOvE7po/), [𝕏约定](https://x.com/dramal_abc/status/2107592736899834102)/[ins](https://www.instagram.com/p/DeKzqGUE8rj/) 
+    > #### 绝美壁纸！！！这套图ins官号发的最大但是画幅比X的要小，X里的背影那张很小，可以到Oricon的X上补存大图。站长超级喜欢夜灯下拉勾的那张和床咚🤤请把这个滤镜带进剧里好吗好的。作战会议我是一刻也等不及了！！
+    > **渡会前女友卡司解禁** [𝕏铃川纱由](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)
+    > **进藤导演发推&留言** ⇨ [𝕏](https://x.com/shindo59512/status/2107601157975859599) 留言:「ファンの皆さまのおかげで、シーズン2を撮れることになりました！前作と同じキャスト・スタッフが集結し、さらにパワーアップした修仲ワールドを楽しんでもらえると思います。日置のかわいさ！渡会の暴走！優しい三天王！そして辻谷劇場！愛しいすべてが詰まった撮影の日々です。彼らの高校最後の1年間をどうか温かく見守ってください！」
+    > **媒体报道** 见下方洸大生日通稿，全都同时宣传了修仲2
 * **261006【生日｜藤本洸大】洸大21岁生日快乐!**{: .text-red} ⇨ [𝓲洸-宣传写真集/眼镜日置/和新井&蛋糕合照](https://www.instagram.com/p/DeJvffFFI5E/)｜[𝕏修仲官号](https://x.com/dramal_abc/status/2107422578424025149)/[ins](https://www.instagram.com/p/DeJmuSWTqb6/)｜[ins小简快拍存档](https://x.com/nano_hdku/status/2107488318653165724)
     > #### 洸大发了快拍(BGM:今津渉-結び)和ins(BGM:今津渉-あなたといたい)⬅️小简有点赞！（时隔10个月的点赞233）洸大各个剧组和官号都发了祝福。修仲官号发的是洸大和新井元輝以及羽毛球部合照；山田健人、新井元輝、樱木雅哉、进藤导演都转快拍祝福。小简在10月6日23:59踩点发快拍祝福，同样用了《結び》当BGM，说今年要做最后一个贺生的人。 
-    > **261007 和简秀吉的合照由媒体通稿放出** 原来合照在这里…所有媒体都发的同一张图 ⇨ [𝕏Oricon News](https://x.com/oricon/status/2107591732691095606)｜[𝕏TVG](https://x.com/TVGweb/status/2107591983518589349)｜[𝕏TV life](https://x.com/tv_life/status/2107595001362608133)｜[𝕏ABC-magazine](https://x.com/abc_mgzn/status/2107591732544291120) 图小｜[𝕏ABC-tv](https://x.com/asahi_tv/status/2107591732892213496)｜[𝕏TDB](https://x.com/talent_databank/status/2107591742489006426)
+    > **261007 和简秀吉的合照由媒体通稿放出** 原来合照在这里…媒体可以发本人不可以发😅所有媒体都发的同一张图 ⇨ [𝕏Oricon News](https://x.com/oricon/status/2107591732691095606)｜[𝕏TVG](https://x.com/TVGweb/status/2107591983518589349)｜[𝕏TV life](https://x.com/tv_life/status/2107595001362608133)｜[𝕏ABC-magazine](https://x.com/abc_mgzn/status/2107591732544291120) 图小｜[𝕏ABC-tv](https://x.com/asahi_tv/status/2107591732892213496)｜[𝕏TDB](https://x.com/talent_databank/status/2107591742489006426)
     > #### 洸大现场发言：「去年に引き続き、2年連続『修学旅行で仲良くないグループに入りました』の現場で誕生日をお祝いしていただき、本当にうれしいです」「皆さん、最後まで怪我なく、健康に駆け抜けましょう。僕も頑張ります！」
+    > **261007 修仲官号发出秀洸合照** ⇨ [𝕏修仲官号](https://x.com/dramal_abc/status/2107818231935439063)/[ins](https://www.instagram.com/p/DeMY9lazkls/) <span>只有官号和媒体照有一点点不同~</span>{: .text-pink}
 * **261005【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**
     > **特典摘要**: 特别版狐猪封底+infosquare特典六随一(单人2枚x2套+双人2枚)
     > **260820 情报解禁** ⇨ [𝕏购买链接(无图)](https://x.com/mag_scawaii_men/status/2090350665138937870)｜[𝕏文字介绍/特典详情(无图)](https://x.com/mag_scawaii_men/status/2090351304719950208)
