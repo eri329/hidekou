@@ -142,6 +142,7 @@ permalink: /
     > **260704 官方ins在快拍征集「你最喜欢的小众场景」** ⇨ [𝕏](https://x.com/dramal_abc/status/2073395740718875023)
     > **260704 OST作者鈴木发推** ⇨ [𝕏](https://x.com/Yasu_coda/status/2073376356046606491) 说本来打算给主题BGM取名为《Five⭐︎stars》233
     > **260704 进藤导演的🧢監督メモ🧢** ⇨ [𝕏](https://x.com/shindo59512/status/2073654407821152675) 提到前阵子的韩国活动大家很热情233
+    > **260704 修学旅行TV再放送 第1话**
     > **260711 修学旅行TV再放送 第2话**
     > **260725 修学旅行TV再放送 第3话** ※24:25～24:55
     > **260801 修学旅行TV再放送 第4话**
@@ -150,7 +151,7 @@ permalink: /
     > **260905 修学旅行TV再放送 第7话** ⇨ [𝕏BeLuck发新剧照](https://x.com/BeLuckbunko/status/2096157638119604602) 其实发的剧照都是第6话的
     > **260912 修学旅行TV再放送 第8话** ⇨ [𝕏-BeLuck发新剧照](https://x.com/BeLuckbunko/status/2098694352726012277)
     > **261003 修学旅行TV再放送 第9话** ※※26:20～ ⇨ [𝕏BeLuck发新剧照](https://x.com/BeLuckbunko/status/2106304497828171879) 第3、4张都是没发过的角度！
-    > **261010 修学旅行TV再放送 第10话(最终回)** ※25:00～25:30
+    > **261010 修学旅行TV再放送 第10话(最终回)** ※25:00～25:30 ⇨ [𝕏-BeLuck发新剧照](https://x.com/BeLuckbunko/status/2108841212996465049)｜[𝕏修仲官推疑似还有新图存货](https://x.com/i/history/bookmarks/2105027008866742633)
 * **260703【修学旅行｜漫画】漫画第10话上线** ⇨ [𝕏](https://x.com/beluckbunko/status/2072988650426790386)
 * **260703【修学旅行｜漫画】漫画原作老师到池袋Animate画了色纸** ⇨ [𝕏](https://x.com/BeLuckbunko/status/2072952799881765253)
 * **260702【修学旅行】ちるちる映像大賞2026投票开始！**{: .text-other} 7/2~7/12, 可以投作品/主演/名场景/名台词, 需要注册 ⇨ [𝕏](https://x.com/chillchillbl/status/2072577260796690850)/[ins](https://www.instagram.com/p/DaSAWa9E3Xr/)｜[投票地址](https://www.chil-chil.net/electNominate/e/3/)

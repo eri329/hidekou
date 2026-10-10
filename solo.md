@@ -50,8 +50,12 @@ permalink: /solo/
     > **FC2次先行先着贩售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2093648820383121543)/[𝓲简](https://www.instagram.com/p/DcnuZ0lgbu1/) *造型师金田健志*{: .text-small}
     > **260912 小简SNS:生日会宣传+有努努周边暗示** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2098742344699027850)/[𝓲简](https://www.instagram.com/p/DdL7RPUgQ-j/)
     > **260920 第一部嘉宾:清水海李/福田步汰** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101521434720043141)
+    > **261006 官方谷子公开** 有棉花娃娃 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107442059116445864)/[𝓲简](https://www.instagram.com/p/DeJvuL7AXWA/)｜[详情](https://kan-hideyoshi.com/contents/1116632)
+    > **261010 収録映像配信チケット 收录配信票开售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108849682768380045) 不太清楚这是个什么票总之是配信票吧；販売期間：10月10日12:00～11月3日20:00；配信期間：10月19日18:00～11月3日23:59
 * **261007 电视剧「仮面教師」(假面教师) 开播** 四村健役 10月7日(水) 24時24分~
     > **260918 出演情报解禁** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2100795105108177066)/[𝓲简](https://www.instagram.com/p/Ddag-DDATHc/)
+    > **261007 开播** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107772213743239393)「四村、始動🫵🏻🫵🏻」
+    > **261008 第1话感言** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108146629769671097) ⚠️有对家合照
 * **261001 小简ins发照片:birthday month** ⇨ [𝓲简](https://www.instagram.com/p/Dd8p_iNgVOG/)
 
 ---
@@ -62,7 +66,7 @@ permalink: /solo/
     > **260707 电波手势舞**{: .text-red} ⇨ [TT电波手势舞](https://www.tiktok.com/@tgc__official/video/7659698620962213141)｜[𝕏拍摄花絮](https://x.com/TGCnews/status/2074436125914230818)/[ins](https://www.instagram.com/reel/DafM_t4ya4n/) 超超超超级可爱的大金毛！又幻视渡会中……
     > **260908 脸颊舞** ⇨ [𝕏](https://x.com/TGCnews/status/2097157985030308082)/[ins](https://www.instagram.com/p/DdAq78kSfNg/)
     > **260911 宣传小视频:最近吃的韩餐** ⇨ [ins](https://www.instagram.com/p/DdJZFYJztip/)
-    > **260921 小简发自己cut** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101693172682506322)/[𝓲简](https://www.instagram.com/p/Ddg5m-whna6/)｜照片:[𝓲简](https://www.instagram.com/p/Ddd4OMFgRo9/) ⚠️有拆家合照
+    > **260921 小简发自己cut** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101693172682506322)/[𝓲简](https://www.instagram.com/p/Ddg5m-whna6/)｜照片:[𝓲简](https://www.instagram.com/p/Ddd4OMFgRo9/) ⚠️有对家合照
 * **260909《FINEBOYS》10月号(9/9) 杂志发售**
     > **260904 封面解禁** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2095836780205338999)
     > **260909 小简发花絮** ⇨ [𝓲简-拍摄花絮](https://www.instagram.com/p/DdD7lasAWiX/)

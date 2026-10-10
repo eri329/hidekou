@@ -110,6 +110,8 @@ permalink: /drama/
     > 松嶋ほのか - 谷口彩菜 [X](https://x.com/ayana9932)/[Ins](https://www.instagram.com/taniguchi_ayana/)
     ---  第二季新卡司 ---
     > 新山珠々 - 鈴川紗由 *渡会前女友*{: .text-small} [X](https://x.com/suzukawa1227)/[Ins](https://www.instagram.com/sayu.suzukawa_official/)
+    > 藤本七菜 - 勝田彩月 [Ins](https://www.instagram.com/saaaki_1106/)
+    > 梅田柚那 - 烏丸きなり [Ins](https://www.instagram.com/kinari__iiko/)
 * **生日与年龄**
     > **剧中年龄(*修学旅行2025.6.25~6.27*)**
     > 日置朝陽(2008/5/22,17), 渡会紬嵩(2009/2/14, 16), 守崎尚哉(2008/11/26, 16), 仲里晴輝(2008/9/19, 16), 堀田颯斗(2008/6/30, 16)

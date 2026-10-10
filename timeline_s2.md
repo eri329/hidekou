@@ -41,7 +41,15 @@ permalink: /timeline_s2/
     > **260914 情报解禁** 2026年10月11日 📍K11 Art House (香港)；📍欣欣秀泰 SHOWTIME CINEMAS(台北) ⇨ [ins香港](https://www.instagram.com/p/DdQ7LQ8DWf7/)｜[ins台北](https://www.instagram.com/p/DdQw7Tkmsyn/)
     > **260917 泰国情报解禁** 9/18开票；2026年10月11日 ⇨ [𝕏](https://x.com/MajorGroup/status/2100525173921431987)
     > **261002 香港Dress Code+亲签板活动详细规则** ⇨ [ins](https://www.instagram.com/p/Dd_HMdYiGa4/)
-* **261009【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red}
+* **261010【修学旅行S2】修仲2将于10/18上线GagaooLala** ⇨ [𝕏](https://x.com/gagaoolala/status/2108860129344897484)/[ins](https://www.instagram.com/p/DeT0a7hDWBY/)/[ins中文](https://www.instagram.com/p/DeT0bM3F0Q5/) 日韩港澳地区除外
+    > **261008 GagaooLala修仲1全话限时免费! @Youtube**{: .text-red} ⇨ [Youtube](https://www.youtube.com/playlist?list=PLX0L-m3Pqoak)｜[ins](https://www.instagram.com/p/DeOq5G-l5-w/) 限时免费至10/17
+* **261009【修学旅行S2】S2新卡司陆续解禁中**
+    > **261009 藤本七菜役 by 勝田彩月** ⇨ [ins](https://www.instagram.com/p/DeRl07sGD7T/) 妹子表示第一季也是追剧一员很开心参演！「season1から毎週楽しみに観ていた 週仲の一部として生きられて幸せです🫶🏻」
+    > **261010 梅田柚那役 by 烏丸きなり** ⇨ [ins](https://www.instagram.com/p/DeTQsiwDw0E/) 「高校生役なんて中々ないから嬉しい〜！✨」
+* **261009【修学旅行S2｜双人】ABC电视台特别节目 秋季电视剧看点介绍**{: .text-red} ⇨ [🆈【修学旅行2 × SQUALL】 秋の新ドラマキャストが集結！藤本洸大×簡秀吉・莉子×吉澤要人の撮影裏話＆見どころ大公開！](https://www.youtube.com/watch?v=CUAapiGlr6E)
+    > #### 前2:25是修仲部分,最后还有一句话口播；1️⃣演了恋人角色才知道的对方的魅力点：（粉丝都快会背了）简->洸:脸蛋（戳x6）今天状态也很好呢。洸:谢谢！洸->简:总是会跳起舞来。简:我是dancer、entertainer嘛！；2️⃣二搭想演的角色：还是标准答案「警察搭档」但这次更详细了一点，洸大想演炸弹处理员去拆弹233；3️⃣对方令你意外的一面？洸(撒娇语气)：已经没有了喔～？不过我最近眉毛有点变化。简（盯）尊嘟假嘟！？现在被刘海挡住了等下我再仔细看（然后两个人双双抚摸abc吉祥物）4️⃣评价S2：洸「前女友袭来！羽毛球部会升级」简「高三生果然还是要学习和考虑进路呢。两个人还要面对很多挑战！」
+* **261009【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red} 00:00公开! ⇨ [𝕏](https://x.com/official_DXTEEN/status/2108210811999244794)｜[🆈Equally in Love](https://www.youtube.com/watch?v=WSIIIVRiX1w) <span>前奏好听！</span>{: .text-pink}｜[𝕏步汰留言/仲里单人照](https://x.com/official_DXTEEN/status/2108544592375427381) <span>「相思想愛が良すぎてネ申</span>{: .text-pink}
+仲里も喜んでる✌️」
 * **261007【杂志｜双人】《TV LIFE》10/23号(10/7) 杂志发售**
     > **260917 双人登场情报解禁** ⇨ [𝕏](https://x.com/tv_life/status/2100540283779706901) HMV预约送公交卡贴纸三随一
 > **261007【修学旅行S2】修学旅行TVer收藏数达到35万!**{: .text-red} ⇨ [𝕏官推发帖(10/8)](https://x.com/dramal_abc/status/2108004949275914466)
@@ -51,7 +59,7 @@ permalink: /timeline_s2/
     > #### 谁来管管这个渡日真的太可爱了吧！！！感觉非常对味☺️两个人都各自有恋爱的烦恼～预告看起来是渡会希望日置对他多撒娇，而日置就是烦恼前女友了。日置脸贴墙滑下来真的超绝可爱啊啊啊。前女友卡司也解禁了，感觉是和原作珠珠完全不同的类型，外型气质微妙地和日置有些撞号……相思想爱的前奏果然还是很好听！副歌目前还是觉得没什么亮点🤔
     > **剧照壁纸** 新剧照解禁！⇨ [𝕏背影](https://x.com/dramal_abc/status/2107591981883158552)/[ins](https://www.instagram.com/p/DeKzwk9E_u_/), [𝕏生日](https://x.com/dramal_abc/status/2107592233474052548)/[ins](https://www.instagram.com/p/DeKzzBqk0f1/), [𝕏床咚](https://x.com/dramal_abc/status/2107592485245702535)/[ins](https://www.instagram.com/p/DeKzyOvE7po/), [𝕏约定](https://x.com/dramal_abc/status/2107592736899834102)/[ins](https://www.instagram.com/p/DeKzqGUE8rj/) 
     > #### 绝美壁纸！！！这套图ins官号发的最大但是画幅比X的要小，X里的背影那张很小，可以到Oricon的X上补存大图。站长超级喜欢夜灯下拉勾的那张和床咚🤤请把这个滤镜带进剧里好吗好的。作战会议我是一刻也等不及了！！
-    > **渡会前女友卡司解禁** [𝕏铃川纱由](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)
+    > **渡会前女友卡司解禁** ⇨ [𝕏铃川纱由](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)「たくさんの方に愛されてきたこの作品に、今回参加させていただけることをとても嬉しく思います☺️」
     > **进藤导演发推&留言** ⇨ [𝕏](https://x.com/shindo59512/status/2107601157975859599) 留言:「ファンの皆さまのおかげで、シーズン2を撮れることになりました！前作と同じキャスト・スタッフが集結し、さらにパワーアップした修仲ワールドを楽しんでもらえると思います。日置のかわいさ！渡会の暴走！優しい三天王！そして辻谷劇場！愛しいすべてが詰まった撮影の日々です。彼らの高校最後の1年間をどうか温かく見守ってください！」
     > **媒体报道** 见下方洸大生日通稿，全都同时宣传了修仲2
 * **261006【生日｜藤本洸大】洸大21岁生日快乐!**{: .text-red} ⇨ [𝓲洸-宣传写真集/眼镜日置/和新井&蛋糕合照](https://www.instagram.com/p/DeJvffFFI5E/)｜[𝕏修仲官号](https://x.com/dramal_abc/status/2107422578424025149)/[ins](https://www.instagram.com/p/DeJmuSWTqb6/)｜[ins小简快拍存档](https://x.com/nano_hdku/status/2107488318653165724)

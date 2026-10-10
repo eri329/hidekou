@@ -300,6 +300,12 @@ permalink: /tmi/
 
 *※ 相羽妹子感觉是发修仲最多的*{: .text-small}
 
+* **261010 烏丸きなり(梅田) 角色解禁:梅田柚那役 by 烏丸きなり** ⇨ [ins](https://www.instagram.com/p/DeTQsiwDw0E/) 
+    >「高校生役なんて中々ないから嬉しい〜！✨」
+* **261009 勝田彩月(藤本) 角色解禁:藤本七菜役 by 勝田彩月** ⇨ [ins](https://www.instagram.com/p/DeRl07sGD7T/) 
+    > 妹子表示第一季也是追剧一员参演很开心!「season1から毎週楽しみに観ていた 週仲の一部として生きられて幸せです🫶🏻」
+* **261007 铃川纱由(新山) 渡会前女友角色解禁** ⇨ [𝕏](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)
+    >「たくさんの方に愛されてきたこの作品に、今回参加させていただけることをとても嬉しく思います☺️」
 * **260810 相羽星良(樱井)发女子组offshot祝贺第二季** ⇨ [𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
 
 ---

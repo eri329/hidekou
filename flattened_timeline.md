@@ -75,19 +75,27 @@ permalink: /flattened_timeline/
     > **【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)**{: .text-red} 10月14日(水)📍東京 18:25~；五天王到场
 * **261013**
     > ~ **【杂志｜双人】《TVガイドPERSON》vol.169(10/13) 杂志发售**{: .text-red}
+
+<div class="line"></div>
+
 * **261011**
     > ~ **【修学旅行】泰国/香港/台北第一季全话上映会** 所有观众赠送修学logo透卡；台北/香港均抽选2名送五天王亲签板
     > **【个人活动｜藤本洸大】洸大1st写真集东京签售会**{: .text-solo-k}
 * **261010**
-    > **【修学旅行｜正片】修学旅行TV再放送 第10话(最终回)** ※25:00～25:30
+    > **【修学旅行｜正片】修学旅行TV再放送 第10话(最终回)**{: .text-red} ※25:00～25:30 ⇨ [𝕏-BeLuck发新剧照](https://x.com/BeLuckbunko/status/2108841212996465049)｜[𝕏修仲官推疑似还有新图存货](https://x.com/i/history/bookmarks/2105027008866742633)
+    > **【修学旅行S2】修仲2将于10/18上线GagaooLala** ⇨ [𝕏](https://x.com/gagaoolala/status/2108860129344897484)/[ins](https://www.instagram.com/p/DeT0a7hDWBY/)/[ins中文](https://www.instagram.com/p/DeT0bM3F0Q5/) 日韩港澳地区除外
+    > **~【FC｜直播｜简秀吉】FC电台直播** 小简说他已经看了1-2话；提到最近一些修仲饭：10/8 和樱木雅哉&海李吃饭；10/9和步汰&海李吃饭讨论生日会。（最关键的洸大……）因为时间合不上一直没有机会吃饭「相思相愛なのに、どうなってんだ」；另外洸大在大阪签售会透露10/9和樱木雅哉一起吃了拉面。（站长：😢😢😢）
+    > **【修学旅行S2】风见野学生角色新卡司追加** 梅田柚那役 by 烏丸きなり ⇨ [ins](https://www.instagram.com/p/DeTQsiwDw0E/)「高校生役なんて中々ないから嬉しい〜！✨」
+    > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大宫生日会收录配信票开售**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108849682768380045) 不太清楚这是个什么票总之是配信票吧
     > **【个人活动｜藤本洸大】洸大1st写真集大阪签售会**{: .text-solo-k}
 * **261009**
-    > **【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red}
-
-<div class="line"></div>
-
+    > **【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red} 00:00公开! ⇨ [𝕏](https://x.com/official_DXTEEN/status/2108210811999244794)｜[🆈Equally in Love](https://www.youtube.com/watch?v=WSIIIVRiX1w) 前奏好听！｜[𝕏步汰留言/仲里单人照](https://x.com/official_DXTEEN/status/2108544592375427381)
+    > **【修学旅行S2｜双人】ABC电视台特别节目 秋季电视剧看点介绍**{: .text-red} ⇨ [🆈【修学旅行2 × SQUALL】 秋の新ドラマキャストが集結！藤本洸大×簡秀吉・莉子×吉澤要人の撮影裏話＆見どころ大公開！](https://www.youtube.com/watch?v=CUAapiGlr6E) 前2:25是修仲部分；洸大评价S2「前女友袭来！」想和小简演警察搭档去拆炸弹233
+    > **【修学旅行S2】风见野学生角色新卡司追加** 藤本七菜役 by 勝田彩月 ⇨ [ins](https://www.instagram.com/p/DeRl07sGD7T/) 妹子表示第一季也是追剧一员很开心参演！「season1から毎週楽しみに観ていた 週仲の一部として生きられて幸せです🫶🏻」
 * **261008**
     > **【修学旅行S2】花火大会拍摄群演募集** 10月8日(木)或9日(金) 地点未定/浴衣/秋季
+    > **【修学旅行】GagaooLala修仲1全话限时免费! @Youtube**{: .text-red} ⇨ [Youtube](https://www.youtube.com/playlist?list=PLX0L-m3Pqoak)｜[ins](https://www.instagram.com/p/DeOq5G-l5-w/) 限时免费至10/17
+    > **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 第1话感言**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108146629769671097) ⚠️有对家合照
 * **261007**
     > **【修学旅行S2｜双人】120s预告 & 剧照壁纸 & 渡会前女友演员解禁！**{: .text-red} ⇨ [𝕏120s预告](https://x.com/dramal_abc/status/2107591731827159227)/[ins](https://www.instagram.com/p/DeKzqwXE4dL/)/[youtube](https://youtu.be/tHbT5YMC9iU)｜四张剧照壁纸:[𝕏背影](https://x.com/dramal_abc/status/2107591981883158552)/[ins](https://www.instagram.com/p/DeKzwk9E_u_/), [𝕏生日](https://x.com/dramal_abc/status/2107592233474052548)/[ins](https://www.instagram.com/p/DeKzzBqk0f1/), [𝕏床咚](https://x.com/dramal_abc/status/2107592485245702535)/[ins](https://www.instagram.com/p/DeKzyOvE7po/), [𝕏约定](https://x.com/dramal_abc/status/2107592736899834102)/[ins](https://www.instagram.com/p/DeKzqGUE8rj/) 绝美壁纸！！！这套图ins官号发的最大但是画幅比X的要小，X里的背影那张很小，可以到Oricon的X上补存大图。
         > **渡会前女友卡司解禁** [𝕏铃川纱由](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)
@@ -96,12 +104,13 @@ permalink: /flattened_timeline/
         > **媒体报道** 见下方洸大生日通稿，全都同时宣传了修仲2
     > **【生日｜藤本洸大】洸大21岁生日 和简秀吉的合照由媒体通稿放出** 原来合照在这里…所有媒体都发的同一张图 ⇨ [𝕏修仲官号](https://x.com/dramal_abc/status/2107818231935439063)/[ins](https://www.instagram.com/p/DeMY9lazkls/) 只有官号和媒体照有一点点不同~｜[𝕏Oricon News](https://x.com/oricon/status/2107591732691095606) 有洸大的发言｜[𝕏TVG](https://x.com/TVGweb/status/2107591983518589349)｜[𝕏TV life](https://x.com/tv_life/status/2107595001362608133)｜[𝕏ABC-magazine](https://x.com/abc_mgzn/status/2107591732544291120) 图小｜[𝕏ABC-tv](https://x.com/asahi_tv/status/2107591732892213496)｜[𝕏TDB](https://x.com/talent_databank/status/2107591742489006426)｜[雅虎新闻](https://news.yahoo.co.jp/articles/a32652f1a60d0417d3dbf57abeb273cdbefa791a)
     > **【修学旅行S2】修学旅行TVer收藏数达到35万!**{: .text-red} ⇨ [𝕏官推发帖(10/8)](https://x.com/dramal_abc/status/2108004949275914466)
-    > **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 开播**{: .text-solo} 四村健役
+    > **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 开播**{: .text-solo} 四村健役 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107772213743239393)「四村、始動🫵🏻🫵🏻」
     > **【修学旅行S2】三浦健人(守崎辽翔)发推确认出演修仲2**{: .text-other} ⇨ [𝕏](https://www.instagram.com/p/DeMTjGRDgYw/) 大哥还是那个味儿！有辽翔哥单人剧照
 * **261006**
     > **【修学旅行S2】花火大会拍摄群演募集** 10月6日(火)或7日(水) 地点未定/浴衣/秋季
     > **【修学旅行S2】10/7 7:00~ coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2107460569242677257) 预告要来了!
     > **【生日｜藤本洸大】洸大21岁生日!**{: .text-red} 洸大发了快拍(BGM:今津渉-結び)和ins(BGM:今津渉-あなたといたい)⬅️小简有点赞！（时隔10个月的点赞233）小简在10月6日23:59踩点发快拍祝福，同样用了《結び》当BGM，说今年要做最后一个贺生的人。 ⇨ [𝓲洸-宣传写真集/眼镜日置/和新井&蛋糕合照](https://www.instagram.com/p/DeJvffFFI5E/)｜[𝕏修仲官号](https://x.com/dramal_abc/status/2107422578424025149)/[ins](https://www.instagram.com/p/DeJmuSWTqb6/)｜[ins小简快拍存档](https://x.com/nano_hdku/status/2107488318653165724)
+    > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 官方谷子公开** 比较特别的是有棉花娃娃 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107442059116445864)/[𝓲简](https://www.instagram.com/p/DeJvuL7AXWA/)｜[详情](https://kan-hideyoshi.com/contents/1116632)
     > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」发售**{: .text-solo-k}
 * **261005**
     > **【杂志｜双人】《S Cawaii! ME 2026 AUTUMN》(10/5) 杂志发售**
