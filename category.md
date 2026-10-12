@@ -123,7 +123,10 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261030 Preppy 12月号（双人封面）**
+* **261023 月刊TVガイド 12月号（双人封底）**
 * **261021 週刊TVガイド関東版 10/30号**
+* **261015 Stagefan vol.58** ⇨ [𝕏封面](https://x.com/fan_stage/status/2108762000977490158)
 * **261013 TVガイドPERSON vol.169（双人封底）** レスリーキー連載
 * **261007 TV LIFE 10/23号**
 * **261005 S Cawaii! ME 2026 AUTUMN（双人封底）** ⇨ [𝕏封面](https://x.com/mag_scawaii_men/status/2097248599944188029)｜[𝕏秀洸封底](https://x.com/mag_scawaii_men/status/2099835150259585379)
@@ -163,7 +166,10 @@ permalink: /category/
 <div class="small-text-container" markdown="1">
 
 * **261211【書籍】写真集「简秀吉1st Photobook」**
+* **261030 Preppy 12月号（表紙）**{: .text-red}
+* **261023 月刊TVガイド 12月号（BACK COVER）**{: .text-red}
 * **261021 週刊TVガイド関東版 10/30号**{: .text-red}
+* **261015 Stagefan vol.58**{: .text-red}
 * **261013 TVガイドPERSON vol.169（BACK COVER）**{: .text-red}
 * **261007 TV LIFE 10/23号**{: .text-red}
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
@@ -264,8 +270,15 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261030 awesome! Plus vol.51**
+* **261030 Preppy 12月号（表紙）**{: .text-red}
+* **261023 TVFan 12月号**
+* **261023 月刊TVガイド 12月号（BACK COVER）**{: .text-red}
 * **261021 週刊TVガイド関東版 10/30号**{: .text-red}
+* **261015 Stagefan vol.58**{: .text-red}
 * **261013 TVガイドPERSON vol.169（BACK COVER）**{: .text-red}
+* **261009 mini 11月号増刊** ⇨ [𝕏封面](https://x.com/mini_twjp/status/2105851540812812559)
+* **261008 FINEBOYS 11月号** 僕のスキなこと。⇨ [𝕏封面](https://x.com/hinode_pub/status/2107070800410890683)
 * **261007 TV LIFE 10/23号**{: .text-red}
 * **261006【書籍】写真集「藤本洸大ファースト写真集 ジンジャーハイ」**
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}

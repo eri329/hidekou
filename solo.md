@@ -52,10 +52,11 @@ permalink: /solo/
     > **260920 第一部嘉宾:清水海李/福田步汰** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2101521434720043141)
     > **261006 官方谷子公开** 有棉花娃娃 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107442059116445864)/[𝓲简](https://www.instagram.com/p/DeJvuL7AXWA/)｜[详情](https://kan-hideyoshi.com/contents/1116632)
     > **261010 収録映像配信チケット 收录配信票开售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108849682768380045) 不太清楚这是个什么票总之是配信票吧；販売期間：10月10日12:00～11月3日20:00；配信期間：10月19日18:00～11月3日23:59
+    > **261011 FC限定：官周摄影setlog** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2109250726631538763)｜[🔒【FC限定】Setlog 〜グッズ撮影編〜🎥🫧](https://kan-hideyoshi.com/movies/133390)
 * **261007 电视剧「仮面教師」(假面教师) 开播** 四村健役 10月7日(水) 24時24分~
     > **260918 出演情报解禁** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2100795105108177066)/[𝓲简](https://www.instagram.com/p/Ddag-DDATHc/)
     > **261007 开播** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107772213743239393)「四村、始動🫵🏻🫵🏻」
-    > **261008 第1话感言** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108146629769671097) ⚠️有对家合照
+    > **261008 第1话感言** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108146629769671097)/[ins](https://www.instagram.com/p/DeOvrE_gX5o/) ⚠️有对家合照
 * **261001 小简ins发照片:birthday month** ⇨ [𝓲简](https://www.instagram.com/p/Dd8p_iNgVOG/)
 
 ---
@@ -537,6 +538,7 @@ permalink: /solo/
 
 * **27年2月～3月 舞台剧「消えた花をさがして」公演**
     > **260911 情报解禁** ⇨ [官网](https://office300.co.jp/kietahana.html)
+* **27年1月 朗读剧「一富士茄子牛焦げルギー」公演** 270107~270110 东京5场@IMM シアター；270113~270116 大阪4场@サンケイホールブリーゼ
 * **270108 电影「高校生家族」上映** 佐野隼（さのはやと）役
     > **260723 登场情报解禁** ⇨ [𝓲洸](https://www.instagram.com/p/DbIntMxlHio/)｜[𝕏](https://x.com/kokosei_kazoku/status/2080050253051658538)
     > **260902 海报解禁** 洸大在左上角的小角落里(站长:也太小了…) ⇨ [𝕏](https://x.com/kokosei_kazoku/status/2094908407052648829)
@@ -559,8 +561,15 @@ permalink: /solo/
 * **261024 神戸女学院大学岡田山祭 藤本洸大talkshow** 16:30~
     > **260801 情报解禁** ⇨ [𝕏](https://x.com/festival_kc/status/2083135735197278607)
     > **260914 售票详情** ⇨ [𝕏](https://x.com/festival_kc/status/2099302111955796340)
-* **261011 洸大1st写真集东京签售会**{: .text-red}
+* **261011 洸大1st写真集东京签售会**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DeWxQe6lLE1/) 洸大写了很长的感言，日记里也写了今天的活动。
 * **261010 洸大1st写真集大阪签售会**{: .text-red}
+* **261009《mini》11月号増刊(10/9) 杂志发售**
+    > **261002 登场情报解禁** ⇨ [𝕏封面](https://x.com/mini_twjp/status/2105851540812812559)
+    > **261006 发售日变更为10/15** 受台风影响，正式发售日为10/15，但10/9也有一些书店偷跑的。
+* **261008《FINEBOYS》11月号(10/8) 杂志发售**
+    > **261001 登场情报解禁** ⇨ [𝕏](https://x.com/FINEBOYS_JP/status/2105477800639561843)
+    > **261005 封面解禁** ⇨ [𝕏封面](https://x.com/hinode_pub/status/2107070800410890683)
+    > **261009 宣传口播视频** ⇨ [ins](https://www.instagram.com/reel/DeQ2qCUS_4g/) 这期的主题是「僕のスキなこと。」聊了很多洸大喜欢的料理和衣服。
 * **261006 洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」(姜汁威士忌苏打)10月6日发售**{: .text-red}
     > **260714 写真集+特典+签售会情报解禁** 7/17开始预约, 8/23抽选截止 ⇨ [ins-TC(图)](https://www.instagram.com/p/DawfdOGknFr/)｜[𝕏JUNON(干杯视频)](https://x.com/JUNON_jp/status/2076864692153381156)/[ins](https://www.instagram.com/reels/DawfBB0COiK/) 干杯告知~｜[JUNON详情页(含洸大寄语+签售会情报+各店特典)](https://www.junon-tv.jp/articles/4421)｜[Oricon news](https://www.oricon.co.jp/news/2467623/)｜[推し楽news](https://fan.books.rakuten.co.jp/articles/9039) ｜[𝕏Emomiu](https://x.com/emo_miu/status/2077644352789369017)
     > 签售会两场: 2026年10月10日（土） @大阪府 HMV&BOOKS NAMBA; 2026年10月11日（日）@東京都 HMV&BOOKS SHIBUYA，7/17～8/23可购入抽选册。
@@ -1102,9 +1111,10 @@ permalink: /solo/
 
 <!-- * **26「」** ⇨ [🔒FC]() -->
 
-* **261004「百感交集」:** 对修仲2的完成度感到很兴奋；玩了桌游algo。想去船上钓鱼、想玩户外攀爬游戏 ⇨ [🔒FC](https://sp.tcland.jp/contents/1116133)
-* **260927「青春死遊」:** 死亡青春游戏最终回&拍摄的各种感想｜GirlsAward走秀 ⇨ [🔒FC](https://sp.tcland.jp/contents/1113773)
-* **260920「天命を待つ」:** 马上就要21岁了有点不舍的小孩的哲学思考；想要挑战新的东西、增加兴趣爱好、增加朋友｜fineboys beauty vol.14 ⇨ [🔒FC](https://sp.tcland.jp/contents/1112041)
+* **261011「宿縁奇遇」** 仔细品味那数十秒的相遇，今后的一年还会继续努力。希望成为大家能挺起胸膛说自己是藤本洸大粉丝的人。｜东京签售会⇨ [🔒FC](https://sp.tcland.jp/contents/1118126)
+* **261004「百感交集」** 对修仲2的完成度感到很兴奋；玩了桌游algo。想去船上钓鱼、想玩户外攀爬游戏 ⇨ [🔒FC](https://sp.tcland.jp/contents/1116133)
+* **260927「青春死遊」** 死亡青春游戏最终回&拍摄的各种感想｜GirlsAward走秀 ⇨ [🔒FC](https://sp.tcland.jp/contents/1113773)
+* **260920「天命を待つ」** 马上就要21岁了有点不舍的小孩的哲学思考；想要挑战新的东西、增加兴趣爱好、增加朋友｜fineboys beauty vol.14 ⇨ [🔒FC](https://sp.tcland.jp/contents/1112041)
 * **260913「一葉知秋」** 日记依然是修仲拍摄，夏天快结束了，提到山田健人｜同窗会 ⇨ [🔒FC](https://sp.tcland.jp/contents/1109888)
 * **260906「自尊自愛」**{: .text-solo-k} 修仲开始拍摄了｜ SCawaii 260604 ⇨ [🔒FC](https://sp.tcland.jp/contents/1107968)
 * **260830「縦情恣欲」** 明天某个电视剧杀青；最近买衣服的心得｜TVdan 260820 ⇨ [🔒FC](https://sp.tcland.jp/contents/1105858)
