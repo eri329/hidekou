@@ -123,11 +123,16 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261104 TV station 11/7号（双人封底）**
+* **261030 GIANNAPLUS 12（双人封面封底）**
 * **261030 Preppy 12月号（双人封面）**
 * **261023 月刊TVガイド 12月号（双人封底）**
-* **261021 週刊TVガイド関東版 10/30号**
+* **261021 週刊TVガイド関東版 10/30号** ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2111009098397565222)
+* **261017 FAST采访后篇(web)** ⇨ [藤本洸大×簡秀吉](https://fast-tokyo.com/schooltrip-2/)
+* **261016 FAST采访前篇(web)** ⇨ [藤本洸大×簡秀吉](https://fast-tokyo.com/schooltrip-1/)
 * **261015 Stagefan vol.58** ⇨ [𝕏封面](https://x.com/fan_stage/status/2108762000977490158)
 * **261013 TVガイドPERSON vol.169（双人封底）** レスリーキー連載
+* **261012 推し楽采访(web)** ⇨ [藤本洸大＆簡秀吉が語るドラマ「修学旅行２」の楽しみ方とは？「恋は付き合ってからが勝負」](https://fan.books.rakuten.co.jp/articles/rbx913amzkawp700b94scv1w)
 * **261007 TV LIFE 10/23号**
 * **261005 S Cawaii! ME 2026 AUTUMN（双人封底）** ⇨ [𝕏封面](https://x.com/mag_scawaii_men/status/2097248599944188029)｜[𝕏秀洸封底](https://x.com/mag_scawaii_men/status/2099835150259585379)
 * **260924 JUNON 11月号（双人封底）** ⇨ []()
@@ -147,7 +152,7 @@ permalink: /category/
 * **251104 CINEMA SQUARE vol.156** 秋のBLドラマSelection｜修仲校服｜4p ⇨ [𝕏封面](https://x.com/hinode_pub/status/1983473890308612277)｜[📕内页(AwU)](http://xhslink.com/o/ALx3gUONuxk)
 * **251031 GIANNA PLUS 06（双人封面封底）** Threads of Connection｜白西装/红配绿/毛衣/棕色格子大衣｜28p ⇨ [𝕏封面](https://x.com/GIANNABOYFRIEND/status/1981553521679094271) <span>狐猪个人/双人均首次登上杂志封面</span>{: .text-red}
 * **251030 S Cawaii!特別編集　Pair 尊い二人。** 関西弁の二人の自然な会話。｜格子衬衫/套头衫｜7p ⇨ [𝕏封面](https://x.com/mag_scawaii/status/1983730582115832181)｜[📕内页(雨夜)](http://xhslink.com/o/50XpcAIDbSO)
-* **251025 Emo!miu采访（web）** 应募拍立得｜修仲校服｜21p ⇨[【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)
+* **251025 Emo!miu采访（web）** 应募拍立得｜修仲校服｜21p ⇨ [【藤本洸大×簡秀吉インタビュー】ふたりで古着屋デートへ？♡お互いの印象は「ギャップにやられました」「僕よりピュア」](https://emomiu.jp/news/244577/)
 * **251023 月刊 TV navi 12月号** 修仲校服｜2p ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/1981216227805843476)｜[📕内页(雨夜)](http://xhslink.com/o/4TTPsTEDoYE)
 * **251020 Seventeen采访(web)** 应募拍立得｜修仲校服｜7p ⇨ [【チェキプレあり】藤本洸大＆簡秀吉W主演！ドラマ『修学旅行で仲良くないグループに入りました』](https://seventeen-web.jp/entertainment/e-news/23790)
 * **251018 TVguide Web采访(web)** 应募拍立得｜全用的截图 ⇨ [「修学旅行で仲良くないグループに入りました」藤本洸大＆簡秀吉が“青春”な撮影裏話を告白](https://www.tvguide.or.jp/feature/feature-4071895/)
@@ -166,11 +171,16 @@ permalink: /category/
 <div class="small-text-container" markdown="1">
 
 * **261211【書籍】写真集「简秀吉1st Photobook」**
+* **261104 TV station 11/7号（BACK COVER）**{: .text-red}
+* **261030 GIANNAPLUS 12（表紙&BACK COVER）**{: .text-red}
 * **261030 Preppy 12月号（表紙）**{: .text-red}
 * **261023 月刊TVガイド 12月号（BACK COVER）**{: .text-red}
 * **261021 週刊TVガイド関東版 10/30号**{: .text-red}
+* **261017 FAST采访后篇(web)**{: .text-red}
+* **261016 FAST采访前篇(web)**{: .text-red}
 * **261015 Stagefan vol.58**{: .text-red}
 * **261013 TVガイドPERSON vol.169（BACK COVER）**{: .text-red}
+* **261012 推し楽采访(web)**{: .text-red} ⇨ [藤本洸大＆簡秀吉が語るドラマ「修学旅行２」の楽しみ方とは？「恋は付き合ってからが勝負」](https://fan.books.rakuten.co.jp/articles/rbx913amzkawp700b94scv1w)
 * **261007 TV LIFE 10/23号**{: .text-red}
 * **261005 S Cawaii! ME 2026 AUTUMN（BACK COVER）**{: .text-red}
 * **260924 JUNON 11月号（BACK COVER）**{: .text-red}
@@ -270,13 +280,18 @@ permalink: /category/
 
 <div class="small-text-container" markdown="1">
 
+* **261104 TV station 11/7号（BACK COVER）**{: .text-red}
+* **261030 GIANNAPLUS 12（表紙&BACK COVER）**{: .text-red}
 * **261030 awesome! Plus vol.51**
 * **261030 Preppy 12月号（表紙）**{: .text-red}
 * **261023 TVFan 12月号**
 * **261023 月刊TVガイド 12月号（BACK COVER）**{: .text-red}
 * **261021 週刊TVガイド関東版 10/30号**{: .text-red}
+* **261017 FAST采访后篇(web)**{: .text-red}
+* **261016 FAST采访前篇(web)**{: .text-red}
 * **261015 Stagefan vol.58**{: .text-red}
 * **261013 TVガイドPERSON vol.169（BACK COVER）**{: .text-red}
+* **261012 推し楽采访(web)**{: .text-red} ⇨ [藤本洸大＆簡秀吉が語るドラマ「修学旅行２」の楽しみ方とは？「恋は付き合ってからが勝負」](https://fan.books.rakuten.co.jp/articles/rbx913amzkawp700b94scv1w)
 * **261009 mini 11月号増刊** ⇨ [𝕏封面](https://x.com/mini_twjp/status/2105851540812812559)
 * **261008 FINEBOYS 11月号** 僕のスキなこと。⇨ [𝕏封面](https://x.com/hinode_pub/status/2107070800410890683)
 * **261007 TV LIFE 10/23号**{: .text-red}

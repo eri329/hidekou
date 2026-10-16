@@ -10,7 +10,7 @@ permalink: /timeline_s2/
 [【修仲百景】]({{ site.baseurl }}/tmi/) - 修仲幕后/其他演员
 
 ### [2026](#year2026)
-* [2026.8](#aug2026) *※第二季启动*{: .text-small .text-red}｜ [2026.9](#sep2026) ｜ [2026.10](#oct2026)
+* [2026.8](#aug2026) *※第二季启动*{: .text-small .text-red}｜ [2026.9](#sep2026) ｜ [2026.10](#oct2026) ｜ [2026.11](#nov2026)
 
 <div class="line"></div>
 
@@ -24,12 +24,21 @@ permalink: /timeline_s2/
 * **261207【修学旅行S2】主题曲DXTEEN「相思想愛」digital release & MV公开**
     > **261209 「相思想愛」CD release**
 
+### 2026.11
+{: #nov2026}
+
+* **261104【杂志｜双人】《TV station》11/7号(11/4) 杂志发售** 双人封底+特典三种生写真
+    > **261016 登场情报解禁 & 特典图解禁** 711特典生写真三选一/全套保配 ⇨ [𝕏特典图](https://x.com/TVGweb/status/2111004219368976683)｜[详情](https://prtimes.jp/main/html/rd/p/000003552.000006568.html)｜[𝕏7net购买链接](https://x.com/7_netshopping/status/2111007990434484667)｜[𝕏推し楽-有特典单张大图](https://x.com/oshiraku/status/2111066653018726541)
+
 ### 2026.10
 {: #oct2026}
 
 * **261030【杂志｜双人】《Preppy》12月号(10/30) 杂志发售** 双人封面
     > **260925 登场情报解禁** ⇨ [𝕏](https://x.com/preppy_magazine/status/2103326126483652722) 双人封面；特典B5大照片，一共三版：heritage/amazon/hmv,7net,towner records online
     > **260930 双人口播宣传视频** ⇨ [𝕏](https://x.com/preppy_magazine/status/2105251313571479644)
+* **261030【杂志｜双人】《GIANNAPLUS 12》(10/30) 杂志发售**
+    > **260925 双人登场情报解禁** ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/2103321206338515391) 封面封底+26p；特别附录「A4サイズ片観音ピンナップ」(折叠后是A4大小，但包括4面A4的长海报)；会有6套妆造；店铺特典❤️乐天books:A4贴纸❤️HMV:A4两面照片纸POP版 ❤️Tower Record＆紀伊國屋書店:A4两面照片纸COOL版
+    > **261015 双人MOVIE.01 解禁** ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/2110572945013928408)
 * **261023【杂志｜双人】《月刊TVガイド》12月号(10/23) 杂志发售** 双人封底
     > **261002 登场情报解禁** ⇨ [𝕏](https://x.com/GEKKAN_TVGUIDE/status/2105935665703870699)｜[𝕏封底&特典解禁](https://x.com/GEKKAN_TVGUIDE/status/2105934958074466453) バックカバー＆SPグラビア💘 藤本洸大＆簡秀吉；711方卡三随一
 * **261021【杂志｜双人】《週刊TVガイド関東版》10/30号(10/21) 杂志发售**
@@ -37,14 +46,20 @@ permalink: /timeline_s2/
     > **260915 特典卡图柄解禁**{: .text-red} ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099770192238903570) <span>很好看的小卡:有线耳机/礼物缎带/小狗玩偶</span>{: .text-pink}
 * **261017【修学旅行S2】修学旅行第二季开播!**{: .text-red} 25:00~
     > **剧照** ⇨ [𝕏S2第1话剧照-床咚](https://x.com/dramal_abc/status/2104775674192146666)/[ins](https://www.instagram.com/p/Dd2zJAKE7ou/) <span>官号发的剧照已经很清晰了；ins多一张日置笑着看手机</span>{: .text-pink}｜[𝕏realsound](https://x.com/realsound_m/status/2104692629690781967) <span>多一张仲里日置在大巴</span>{: .text-pink}｜[𝕏合宿日程表](https://x.com/dramal_abc/status/2109411220151541954)/[ins](https://www.instagram.com/p/DeXvB9qE-Ic/) <span>还有一张渡会男友力max帮日置拿包的壁纸，滤镜很美！</span>{: .text-pink}
+* **261016~261017【采访｜双人】藤本洸大×簡秀吉 FAST**
+    > **261015 采访预告** 10/16 18:00 ⇨ [𝕏](https://x.com/fast_japan_/status/2110651640890249545)
+    > **261016 前篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111019567200055334)｜[FAST](https://fast-tokyo.com/schooltrip-1/)
+    > #### 问了很多拍摄第二季的心境和变化。洸大在拍摄时一直在思考、想加入一些变化，但好像还是没怎么变。小简在开机前两天把第一季重新看了一遍，交织着“还能再演渡会呀”和“要继续演渡会了呢”的奇妙心情。开机第一天就有两个人的对手戏，小简感受到了S1时没有的表演中的“接受感”（应该是指很容易接住戏上手很轻松的感觉），「那就是这一年里积累下来的东西吧」洸大回复「是吗？好开心」
 * **261015【杂志｜双人】《Stagefan》vol.58(10/15) 杂志发售**
     > **261010 秀洸登场情报解禁** ⇨ [𝕏封面](https://x.com/fan_stage/status/2108762000977490158)
+* **261014【修学旅行S2】DXTEEN发Tiktok小视频:五天王cha相思想爱** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7696513187654536455)/[ins](https://www.instagram.com/p/DeegFEdM_xm/)
 * **261014【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)**{: .text-red} 10月14日(水)📍東京 18:25~；五天王到场
     > **260929 FC抽选** ⇨ [𝕏小简FC](https://x.com/official_MR8/status/2104858246926438839)｜[𝕏洸大TC-FC](https://x.com/topcoat_staff/status/2104737932083179635)｜[𝕏DXTEEN-FC](https://x.com/official_DXTEEN/status/2104737944577950114)｜[𝕏海李FC](https://x.com/kairi_shimizu/status/2104860857469739377)
     > **260930 🚌制作発表＆1話試写💨 官号情报解禁** 官号转发抽10名观众参加 ⇨ [𝕏](https://x.com/dramal_abc/status/2105274974751830518)
+    > **261015 官号发制作发表会5人口播视频** ⇨ [𝕏](https://x.com/dramal_abc/status/2110499064169283817)
 * **261013【杂志｜双人】《TVガイドPERSON》vol.169(10/13) 杂志发售**{: .text-red} 双人封底+名摄影特辑 ＜裏表紙&レスリーキー連載＞
     > **260915 情报解禁** ⇨ [𝕏](https://x.com/TVguidePERSON/status/2099770263290409245)
-* **261012【修学旅行S2｜双人】推し楽采访：藤本洸大＆簡秀吉**{: .text-red} ⇨ [𝕏](https://x.com/oshiraku/status/2109418777117110743)｜[藤本洸大＆簡秀吉が語るドラマ「修学旅行２」の楽しみ方とは？「恋は付き合ってからが勝負」](https://fan.books.rakuten.co.jp/articles/rbx913amzkawp700b94scv1w?scid=we_ork_twt_20261009) 很多图！又清晰又美丽！
+* **261012【修学旅行S2｜双人】推し楽采访：藤本洸大＆簡秀吉**{: .text-red} ⇨ [𝕏](https://x.com/oshiraku/status/2109418777117110743)｜[藤本洸大＆簡秀吉が語るドラマ「修学旅行２」の楽しみ方とは？「恋は付き合ってからが勝負」](https://fan.books.rakuten.co.jp/articles/rbx913amzkawp700b94scv1w)｜[𝕏摄影师須田卓馬认领](https://x.com/takuphoto/status/2109642740724305955) 很多图！又清晰又美丽！
     > #### 是浅黄背景+粉蓝气球的西瓜头制服秀洸，特别乖的一套。有洸大趴在小简背上的姿势☺️比较有用的信息：> 演起来很开心的戏份是？简:第一话最后学习集训的夜晚，还有各种学校活动、体育祭。洸:我最期待的是渡会的前女友出场。那里大概是整部剧最修罗场的地方了。> 现实生活中被渡会那样追的话？洸:我会受不了（简:笑）我觉得还是彼此留点空间比较好，不过，比起消极对待肯定还是积极追求更好。> 洸大说S1之后大概每个月都会一起取材，所以即使没有私下见面也没有生疏的感觉。> 现在两个人的关系？简:拥有共同目标的人。洸:比起竞争对手更像战友。> 喜欢的对方身上的部分？洸->简:面部的线条，简->洸:脸颊～（这里推乐特别拍了两个人互相摸对方脸上部位的照片，干得漂亮！）> 简桑会觉得藤本桑也很可爱吗？简:那是当然！是笑点很低很爱笑的孩子，笑起来的样子真的非常可爱。（你很懂！！）最后小简向洸大推荐了高尾山，洸大说可以去爬爬看~
 * **261012【修学旅行S2】修仲2线下广告正在张贴中@池袋站** 広告掲載中🚃 池袋駅北改札外 BIGシート 10/12～10/18 ⇨ [𝕏](https://x.com/dramal_abc/status/2109418776793952645)/[ins](https://www.instagram.com/p/DeXFG-gznzL/)｜[𝕏粉丝repo1](https://x.com/ayt0330/status/2109435718284304501)/[𝕏粉丝repo2](https://x.com/gkbr_chidori/status/2109451895177871483) <span> 没见过的背背照！甜死了！ABC好会啊好大一面墙的广告好有排面！</span>{: .text-pink}
 * **261011【修学旅行】第一季全话上映会 泰国/香港/台北场** 所有观众赠送修学logo透卡；台北/香港均抽选2名送五天王亲签板
@@ -61,6 +76,7 @@ permalink: /timeline_s2/
     > **261011 早瀬奈津美役 by 貴瀬真衣** ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)「実は修仲シーズン1が大好きで、去年は毎週楽しみに観ていた1人でした🙌🏻」又是个修仲粉www
 * **261009【修学旅行S2｜双人】ABC电视台特别节目 秋季电视剧看点介绍**{: .text-red} ⇨ [🆈【修学旅行2 × SQUALL】 秋の新ドラマキャストが集結！藤本洸大×簡秀吉・莉子×吉澤要人の撮影裏話＆見どころ大公開！](https://www.youtube.com/watch?v=CUAapiGlr6E)
     > #### 前2:25是修仲部分,最后还有一句话口播；1️⃣演了恋人角色才知道的对方的魅力点：（粉丝都快会背了）简->洸:脸蛋（戳x6）今天状态也很好呢。洸:谢谢！洸->简:总是会跳起舞来。简:我是dancer、entertainer嘛！；2️⃣二搭想演的角色：还是标准答案「警察搭档」但这次更详细了一点，洸大想演炸弹处理员去拆弹233；3️⃣对方令你意外的一面？洸(撒娇语气)：已经没有了喔～？不过我最近眉毛有点变化。简（盯）尊嘟假嘟！？现在被刘海挡住了等下我再仔细看（然后两个人双双抚摸abc吉祥物）4️⃣评价S2：洸「前女友袭来！羽毛球部会升级」简「高三生果然还是要学习和考虑进路呢。两个人还要面对很多挑战！」
+    > **261013 官号切片** ⇨ [𝕏](https://x.com/dramal_abc/status/2109962367433859549)
 * **261009【修学旅行S2】主题曲「相思想愛」streaming release 音源公开**{: .text-red} 00:00公开! ⇨ [𝕏](https://x.com/official_DXTEEN/status/2108210811999244794)｜[🆈Equally in Love](https://www.youtube.com/watch?v=WSIIIVRiX1w) <span>前奏好听！</span>{: .text-pink}｜[𝕏步汰留言/仲里单人照](https://x.com/official_DXTEEN/status/2108544592375427381) <span>「相思想愛が良すぎてネ申</span>{: .text-pink}
 仲里も喜んでる✌️」
 * **261007【杂志｜双人】《TV LIFE》10/23号(10/7) 杂志发售**

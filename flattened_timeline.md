@@ -55,6 +55,8 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】藤本洸大香港见面会**{: .text-solo-k} 12:00/17:00 @ヒルトン・ガーデン・イン香港旺角 ⇨ [𝓲洸-海报/情报](https://www.instagram.com/p/DcdoS9XFCSl/)
 * **261204**
     > **【修学旅行S2】主题曲DXTEEN「相思想愛」MV预告片解禁**
+* **261104**
+    > **【杂志｜双人】《TV station》11/7号(11/4) 杂志发售**
 * **261103**
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大阪生日会**{: .text-solo} 14:00/17:30📍大阪エル・シアター
 
@@ -66,36 +68,54 @@ permalink: /flattened_timeline/
 * **261031**
     > **【个人活动｜简秀吉】神户学院大学大学祭 简秀吉talkshow**{: .text-solo} 14:00~
 * **261030**
+    > **【杂志｜双人】《GIANNAPLUS 12》(10/30) 杂志发售**
     > **【杂志｜双人】《Preppy》12月号(10/30) 杂志发售**
     > ~ **【杂志】《awesome! Plus》vol.51(10/30) 杂志发售**
 * **261024**
     > **【个人活动｜藤本洸大】神戸女学院大学岡田山祭 藤本洸大talkshow**{: .text-solo-k} 16:30~
 * **261023**
-    > **小简24岁生日!**{: .text-red}
+    > **【生日｜简秀吉】小简24岁生日!**{: .text-red}
     > **【杂志｜双人】《月刊TVガイド》12月号(10/23) 杂志发售**
     > ~ **【杂志】《TVFan》12月号(10/23) 杂志发售**
 * **261021**
-    > ~ **【杂志｜双人】《週刊TVガイド関東版》10/30号(10/21) 杂志发售**
+    > **【杂志｜双人】《週刊TVガイド関東版》10/30号(10/21) 杂志发售**
 * **261018**
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大宫生日会**{: .text-solo} 14:30/18:30📍大宮ソニックシティホール大ホール
-* **261017**
-    > **【修学旅行S2】修学旅行第二季开播!**{: .text-red} 25:00~
-    > ~ **【采访】FAST后篇**
-* **261016**
-    > ~ **【采访】FAST前篇**
-* **261015**
-    > **【杂志｜双人】《Stagefan》vol.58(10/15) 杂志发售**
-* **261014**
-    > **【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)**{: .text-red} 10月14日(水)📍東京 18:25~；五天王到场
-* **261013**
-    > **【杂志｜双人】《TVガイドPERSON》vol.169(10/13) 杂志发售**{: .text-red}
 
 <div class="line"></div>
 
+* **261017**
+    > **【修学旅行S2】修学旅行第二季开播!**{: .text-red} 25:00~
+    > **【采访｜双人】藤本洸大×簡秀吉 FAST后篇** ⇨ [𝕏]()｜[FAST]()
+    > ~ **【修学旅行S2】长谷川导演发推:还有24小时!最近把腿扭伤了** 拄着拐杖的导演；但是拍摄很顺利，大家看到我这个样子反而都笑了 ⇨ [𝕏](https://x.com/hasetaku0227/status/2111120959717744826)/[ins](https://www.instagram.com/p/Dej40IxD4O-/)
+* **261016**
+    > ~ **【修学旅行S2｜藤本洸大】洸大发日置剧照** ⇨ [𝓲洸](https://www.instagram.com/p/Dejfk4kFBrJ/)「ついに明日放送‼️」抱着书包的日置可爱~
+    > ~ **【修学旅行S2】10PM 官号发五天王剧照:请期待明天公开的OP** 竟然把OP憋到了正片解禁 ⇨ [𝕏五天王围个圈](https://x.com/dramal_abc/status/2111079724734947765)/[ins](https://www.instagram.com/p/DejlF8fTuDm/)
+    > ~ **【修学旅行S2】8PM 官号发拍摄日志(照片):明日放送!** 旅馆床边的渡日in摄影监视器 ⇨ [𝕏](https://x.com/dramal_abc/status/2111050935866933736)/[ins](https://www.instagram.com/p/DejYuOuz_m1/)
+    > ~ **【修学旅行S2】6PM 官号发花絮视频:还有1天!** ⇨ [𝕏疑似7天王走OP台步](https://x.com/dramal_abc/status/2111020042360107466)/[ins](https://www.instagram.com/p/DejKvgfT94e/) 辻谷真的太好笑了山健的天选角色 ※超糊画质
+    > ~ **【修学旅行S2】10AM 官号发切片**{: .text-red} ⇨ [𝕏渡会合集-日置太可爱了](https://x.com/dramal_abc/status/2110898520836476931)/[ins](https://www.instagram.com/p/DeidDqizhEF/)「1話から"愛重めな渡会"をチラ見せ」爆炸可爱！撒娇又有点矫情的渡会和懵懵不理解但配合的日置真是绝配！※超糊画质
+    > ~ **【修学旅行S2】进藤导演发推:🧢監督メモ🧢 明日放送！**{: .text-red}「请期待OP里7个人的身影；7个人到底在看什么呢！？」⇨ [𝕏](https://x.com/shindo59512/status/2111027253173952762) ⬅️7天王合照+渡日摸脸｜[ins](https://www.instagram.com/p/DejLSIJkc9v/) 大量花絮照/剧照！！
+    > **【采访｜双人】藤本洸大×簡秀吉 FAST前篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111019567200055334)｜[FAST](https://fast-tokyo.com/schooltrip-1/)
+    > **【杂志｜双人】《TV station》11/7号(11/4) 登场情报解禁 双人封底** 711特典生写真三选一/全套保配 ⇨ [𝕏特典图](https://x.com/TVGweb/status/2111004219368976683)｜[详情](https://prtimes.jp/main/html/rd/p/000003552.000006568.html)｜[𝕏7net购买链接](https://x.com/7_netshopping/status/2111007990434484667)｜[𝕏推し楽-有特典单张大图](https://x.com/oshiraku/status/2111066653018726541)
+* **261015**
+    > ~ **【修学旅行S2】官号发剧照 & 第1话剧情简介**{: .text-red} ⇨ [𝕏第1话综合剧照](https://x.com/dramal_abc/status/2110672029154246744)/[ins](https://www.instagram.com/p/DegsefBk6-_/) 摸脸太有渡日味儿了！
+    > ~ **【修学旅行S2】官号发花絮:还有2天!** 五天王上大巴 & 大巴前合影 ⇨ [𝕏视频](https://x.com/dramal_abc/status/2110656059732066409)/[ins](https://www.instagram.com/p/DeglJZwzJdq/)｜[𝕏合影](https://x.com/dramal_abc/status/2110704101499822589)/[ins](https://www.instagram.com/p/DegyAjEzolO/)
+    > **【修学旅行S2】官号发制作发表会5人口播视频** ⇨ [𝕏](https://x.com/dramal_abc/status/2110499064169283817)/[ins](https://www.instagram.com/p/DefdvpvTDkN/)
+    > **【杂志｜双人】《Stagefan》vol.58(10/15) 杂志发售**
+    > **【杂志｜双人】《GIANNAPLUS 12》(10/30) 双人MOVIE.01 解禁** ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/2110572945013928408)
+    > **【采访｜双人】藤本洸大×簡秀吉 FAST采访预告** 10/16 18:00 ⇨ [𝕏](https://x.com/fast_japan_/status/2110651640890249545)
+* **261014**
+    > **【修学旅行S2｜双人】修仲S2制作发表会/第1话上映会(10/14)**{: .text-red} 10月14日(水)📍東京 18:25~；五天王到场
+    > ~ **【修学旅行S2】官号发剧照:还有3天** ⇨ [𝕏开心看手机的日置](https://x.com/dramal_abc/status/2110294602863550895)「うれぴお」｜[ins闹别扭的渡会](https://www.instagram.com/p/DeeAxD3zWFb/)｜[𝕏守崎和堀仲](https://x.com/dramal_abc/status/2110309727293108687)｜[ins三天王](https://www.instagram.com/p/DeeHphLT3VM/)
+    > **【修学旅行S2】DXTEEN发Tiktok小视频:五天王cha相思想爱** ⇨ [TT](https://www.tiktok.com/@official_dxteen/video/7696513187654536455)/[ins](https://www.instagram.com/p/DeegFEdM_xm/)
+* **261013**
+    > ~ **【修学旅行S2】官号发剧照:还有4天** ⇨ [𝕏渡会满面笑容来日置班里](https://x.com/dramal_abc/status/2109977464449425585)/[ins](https://www.instagram.com/p/Debwj3-E0RA/)｜[𝕏伸懒腰日置](https://x.com/dramal_abc/status/2109992554553074077)/[ins](https://www.instagram.com/p/Deb3ZN7kxsV/)
+    > **【修学旅行S2｜双人】官号又发了一遍: ABC电视台特别节目 秋季电视剧看点介绍切片** ⇨ [𝕏](https://x.com/dramal_abc/status/2109962367433859549)/[ins](https://www.instagram.com/p/DebqINfTDfF/)
+    > **【杂志｜双人】《TVガイドPERSON》vol.169(10/13) 杂志发售**{: .text-red}
 * **261012**
     > **【修学旅行S2】修仲2线下广告正在张贴中@池袋站** 広告掲載中🚃 池袋駅北改札外 BIGシート 10/12～10/18 ⇨ [𝕏](https://x.com/dramal_abc/status/2109418776793952645)/[ins](https://www.instagram.com/p/DeXFG-gznzL/)｜[𝕏粉丝repo1](https://x.com/ayt0330/status/2109435718284304501)/[𝕏粉丝repo2](https://x.com/gkbr_chidori/status/2109451895177871483) 没见过的背背照！甜死了！
     > **【修学旅行S2】第一话开播预热:合宿日程表/五天王合宿出发背影** ⇨ [𝕏](https://x.com/dramal_abc/status/2109411220151541954)/[ins](https://www.instagram.com/p/DeXvB9qE-Ic/) 滤镜好美！
-    > **【修学旅行S2｜双人】推し楽采访：藤本洸大＆簡秀吉**{: .text-red} ⇨ [𝕏](https://x.com/oshiraku/status/2109418777117110743)｜[藤本洸大＆簡秀吉が語るドラマ「修学旅行２」の楽しみ方とは？「恋は付き合ってからが勝負」](https://fan.books.rakuten.co.jp/articles/rbx913amzkawp700b94scv1w?scid=we_ork_twt_20261009) 浅黄背景+粉蓝气球的西瓜头制服秀洸～
+    > **【修学旅行S2｜双人】推し楽采访：藤本洸大＆簡秀吉**{: .text-red} ⇨ [𝕏](https://x.com/oshiraku/status/2109418777117110743)｜[藤本洸大＆簡秀吉が語るドラマ「修学旅行２」の楽しみ方とは？「恋は付き合ってからが勝負」](https://fan.books.rakuten.co.jp/articles/rbx913amzkawp700b94scv1w)｜[𝕏摄影师认领](https://x.com/takuphoto/status/2109642740724305955) 浅黄背景+粉蓝气球的西瓜头制服秀洸～
 * **261011**
     > **【修学旅行】泰国/香港/台北第一季全话上映会** 所有观众赠送修学logo透卡；台北/香港均抽选2名送五天王亲签板
     > **【修学旅行S2】风见野学生角色新卡司追加** 无角色名 by 八神龍之介 ⇨ [𝕏](https://x.com/Ryunosuke_ygm/status/2109157347226689541) 这个小哥好像还是小简粉丝👀25年小简生日发了推祝福来着。｜早瀬奈津美役 by 貴瀬真衣 ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)「実は修仲シーズン1が大好きで、去年は毎週楽しみに観ていた1人でした🙌🏻」又是个修仲粉www
@@ -132,9 +152,9 @@ permalink: /flattened_timeline/
     > **【个人活动｜简秀吉】电视剧「仮面教師」(假面教师) 开播**{: .text-solo} 四村健役 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107772213743239393)「四村、始動🫵🏻🫵🏻」
     > **【修学旅行S2】三浦健人(守崎辽翔)发推确认出演修仲2**{: .text-other} ⇨ [𝕏](https://www.instagram.com/p/DeMTjGRDgYw/) 大哥还是那个味儿！有辽翔哥单人剧照
 * **261006**
+    > **【生日｜藤本洸大】洸大21岁生日!**{: .text-red} 洸大发了快拍(BGM:今津渉-結び)和ins(BGM:今津渉-あなたといたい)⬅️小简有点赞！（时隔10个月的点赞233）小简在10月6日23:59踩点发快拍祝福，同样用了《結び》当BGM，说今年要做最后一个贺生的人。 ⇨ [𝓲洸-宣传写真集/眼镜日置/和新井&蛋糕合照](https://www.instagram.com/p/DeJvffFFI5E/)｜[𝕏修仲官号](https://x.com/dramal_abc/status/2107422578424025149)/[ins](https://www.instagram.com/p/DeJmuSWTqb6/)｜[ins小简快拍存档](https://x.com/nano_hdku/status/2107488318653165724)
     > **【修学旅行S2】花火大会拍摄群演募集** 10月6日(火)或7日(水) 地点未定/浴衣/秋季
     > **【修学旅行S2】10/7 7:00~ coming soon** ⇨ [𝕏](https://x.com/dramal_abc/status/2107460569242677257) 预告要来了!
-    > **【生日｜藤本洸大】洸大21岁生日!**{: .text-red} 洸大发了快拍(BGM:今津渉-結び)和ins(BGM:今津渉-あなたといたい)⬅️小简有点赞！（时隔10个月的点赞233）小简在10月6日23:59踩点发快拍祝福，同样用了《結び》当BGM，说今年要做最后一个贺生的人。 ⇨ [𝓲洸-宣传写真集/眼镜日置/和新井&蛋糕合照](https://www.instagram.com/p/DeJvffFFI5E/)｜[𝕏修仲官号](https://x.com/dramal_abc/status/2107422578424025149)/[ins](https://www.instagram.com/p/DeJmuSWTqb6/)｜[ins小简快拍存档](https://x.com/nano_hdku/status/2107488318653165724)
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 官方谷子公开** 比较特别的是有棉花娃娃 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107442059116445864)/[𝓲简](https://www.instagram.com/p/DeJvuL7AXWA/)｜[详情](https://kan-hideyoshi.com/contents/1116632)
     > **【个人活动｜藤本洸大】洸大1st写真集「藤本洸大ファースト写真集 ジンジャーハイ」发售**{: .text-solo-k}
 * **261005**
@@ -208,6 +228,7 @@ permalink: /flattened_timeline/
 * **260925**
     > **【修学旅行S2】S2预热:🚌人物紹介💨 3-3 仲里晴輝**{: .text-other} ⇨ [𝕏(没有新图)](https://x.com/dramal_abc/status/2103414824722182305)/[ins](https://www.instagram.com/p/DdtINxOzhpU/)｜**🚌season1振り返り💨**{: .text-other} ⇨ [ins](https://www.instagram.com/p/DdtIbu0zqaP/)
     > **【杂志｜双人】《Preppy》12月号(10/30) 双人登场&封面** ⇨ [𝕏](https://x.com/preppy_magazine/status/2103326126483652722) 特典B5大照片，一共三版：heritage/amazon/hmv,7net,towner records online
+    > **【杂志｜双人】《GIANNAPLUS 12》(10/30) 双人登场情报解禁** ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/2103321206338515391) 封面封底+26p；特别附录「A4サイズ片観音ピンナップ」(折叠后是A4大小，但包括4面A4的长海报)；会有6套妆造；店铺特典❤️乐天books:A4贴纸❤️HMV:A4两面照片纸POP版 ❤️Tower Record＆紀伊國屋書店:A4两面照片纸COOL版
 * **260924**
     > **【杂志｜双人】《JUNON》11月号(9/24) 杂志发售** ⇨ 小简发单人cut:[𝕏简](https://x.com/kan_hideyoshi/status/2103081267063619915)/[𝓲简](https://www.instagram.com/p/Ddqusq5AR3-/) 裁单人/删合照的操作真是有点迷惑…
     > **【修学旅行S2】S2预热:🚌人物紹介💨 3-5 守崎尚哉**{: .text-other} ⇨ [𝕏](https://x.com/dramal_abc/status/2103063882759913506)/[ins](https://www.instagram.com/p/DdqonQWzwLg/)｜**🚌season1振り返り💨**{: .text-other} ⇨ [ins](https://www.instagram.com/p/Ddqo175TyZi/)
