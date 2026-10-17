@@ -112,6 +112,7 @@ permalink: /tmi/
 *※ 海李转了很多官推，梗超多，活人感很强*{: .text-small}
 *※ 他在自己的X上简直是一个步汰梦男夸夸狂魔！*{: .text-small}
 
+* **261016 明日开播:堀田画伯；修仲开播第1日纪要** 惯例的了~ ⇨[ins](https://www.instagram.com/p/DejinFWo8W5/)
 * **260902 海李ins快拍发理发后照片** 堀田归来!
 * **260810 夏日同窗会&修仲第二季!** ⇨ [𝕏海李](https://x.com/kairi_shimizu/status/2086800555926868068)/[ins海李](https://www.instagram.com/p/Db3H0Fjkidu/)
     > 「皆様の声が確実に届きましたよ！みんなありがとう！堀田進級できたぞ！よくやった！🔥よりパワーアップした"修仲"をお届けできるよう一丸となって撮影臨んでいきます！」海李心心念念的升三年级终于做到了！双向奔赴泪目ing
@@ -225,6 +226,7 @@ permalink: /tmi/
 
 *※ 未标注的发自雅哉个人Ins，标注原自分的发自团号*{: .text-small}
 
+* **261016 明日开播:写作业的守崎** ⇨ [ins](https://www.instagram.com/p/DejSSrlT6eG/)
 * **260811【原自分】修仲男团组步汰和雅哉cha舞 - 火宴** ⇨ [ins-火宴](https://www.instagram.com/p/Db5N3HohDwW/)
 * **260810 同窗会合照&修仲第二季** ⇨ [ins](https://www.instagram.com/p/Db3CSIHTwoy/)｜[𝕏原自分-问候视频](https://x.com/genjibu_sdr/status/2086784627147002308)
 
@@ -300,12 +302,18 @@ permalink: /tmi/
 
 *※ 相羽妹子感觉是发修仲最多的*{: .text-small}
 
-* **261011 貴濑真衣(早濑) 角色解禁:早瀬奈津美役 by 貴瀬真衣** ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)
+* **261016 青波姫叶(学生役)参演解禁** ⇨ [ins](https://www.instagram.com/p/DejEDzLmVgC/) 3年2組
+* **261015 谷口彩菜(松嶋)/楓月(赤城)/橋本真咲(宮澤)发推继续参演S2** ⇨ 谷口:[𝕏](https://x.com/ayana9932/status/2110699219619320045)/[ins](https://www.instagram.com/p/Deg40WGhfSh/)｜｜楓月:[ins](https://www.instagram.com/p/Deg7NSMGO-n/) 2年5組｜橋本:[ins](https://www.instagram.com/p/DegvmD7j0Nm/) 这也是个很真诚的妹子！「やっとはじまりますね〜😭どきどき！！！」
+* **261015 桜井くるみ(市原)角色解禁** ⇨ [ins](https://www.instagram.com/p/DehBZINSQ1Y/) 3年2組
+* **261015 横野遥(髙橋)角色解禁** ⇨ [𝕏](https://x.com/cadis_official/status/2110551260386758745)
+* **261013 西田華乃音(唐沢)发推继续参演S2** ⇨ [ins](https://www.instagram.com/p/DebbJGMkZtj/)
+* **261011 貴濑真衣(早濑) 角色解禁** ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)
     > 又是个修仲粉www「実は修仲シーズン1が大好きで、去年は毎週楽しみに観ていた1人でした🙌🏻今回、一緒に高3になることができて凄く嬉しいです😭最近は放送が待ち切れず、シーズン1を何度も見返してキュンキュンしてます」
-* **261010 烏丸きなり(梅田) 角色解禁:梅田柚那役 by 烏丸きなり** ⇨ [ins](https://www.instagram.com/p/DeTQsiwDw0E/) 
+* **261010 烏丸きなり(梅田) 角色解禁** ⇨ [ins](https://www.instagram.com/p/DeTQsiwDw0E/) 
     >「高校生役なんて中々ないから嬉しい〜！✨」
-* **261009 勝田彩月(藤本) 角色解禁:藤本七菜役 by 勝田彩月** ⇨ [ins](https://www.instagram.com/p/DeRl07sGD7T/) 
+* **261009 勝田彩月(藤本) 角色解禁** ⇨ [ins](https://www.instagram.com/p/DeRl07sGD7T/) 
     > 妹子表示第一季也是追剧一员参演很开心!「season1から毎週楽しみに観ていた 週仲の一部として生きられて幸せです🫶🏻」
+* **261008 楓月(赤城)发去年的修仲S1offshot** ⇨ [ins](https://www.instagram.com/p/DePH5j5mI4p/)｜[ins](https://www.instagram.com/p/DeO_qckmEwi/) ⬅️其实提前就发了S2的角色解禁
 * **261007 铃川纱由(新山) 渡会前女友角色解禁** ⇨ [𝕏](https://x.com/suzukawa1227/status/2107657698011668551)/[ins](https://www.instagram.com/p/DeLRBsuktNT/)
     >「たくさんの方に愛されてきたこの作品に、今回参加させていただけることをとても嬉しく思います☺️」
 * **260810 相羽星良(樱井)发女子组offshot祝贺第二季** ⇨ [𝕏](https://x.com/aibaseira0819/status/2086809184654471635)
@@ -313,6 +321,8 @@ permalink: /tmi/
 ---
 * **260725 相羽星良(樱井) 第3话再放送;女子组旋转木马offshot**{: .text-red} ⇨ [𝕏](https://x.com/aibaseira0819/status/2080982407478649136) 还有一张鬼屋剧照
 * **260704 相羽星良(樱井) 修仲再放送;樱井遥花第2话剧照** ⇨ [𝕏](https://x.com/aibaseira0819/status/2073384235193561228/)
+* **261023 橋本真咲(宮澤)修仲最终回感想** ⇨ [ins](https://www.instagram.com/p/DSkH2rij9Y_/) 是妹子开始演戏接的第一个常规角色，妹子有很多感想~
+    > 「ABCテレビなのは関係あるのか分かりませんが、主演のお2人方も関西出身で、関西弁も行き交う現場だったのが印象的です。」「私自身、台本をいただいて初めて、BL作品というものに触れたのですが、男だから、女だから、というのを超えて「渡会が、渡会だから好き」というふうに思える気持ちって本当に尊いなと思いました。」
 * **251221 彩香(相良)发女子组offshot** ⇨ [ins](https://www.instagram.com/p/DShsBx3DwoJ/)
 * **251221 相羽星良(樱井)发一大波修仲offshot** ⇨ [ins](https://www.instagram.com/p/DShsXxwj6hw/) 游乐园、鬼屋、女子组女仆
     > 「きっとこれからもずっと愛されていく作品に参加できたこと、本当に光栄です☺️」妹妹好会说！！
@@ -321,26 +331,43 @@ permalink: /tmi/
 * **251219 相羽星良(樱井) 明日最终回;女仆装女子组/杏那合照** ⇨ [ins](https://www.instagram.com/p/DScOhmYD-Bi/)
 * **251206 泉有乃(东云) 本日第8话;送信剧照** ⇨ [ins](https://www.instagram.com/p/DR6HO6lEhJZ/)
 * **251206 水戸由菜(叶山)cha两片想Tiktok小视频** 葉山陽菜役 ⇨ [TT](https://www.tiktok.com/@sabuyuna_4747/video/7580695527033998613)
-* **251201 谷口彩菜(学生役)发角色offshot** ⇨ [ins](https://www.instagram.com/p/DRtwg2hkhjo/) 不为人知(?)的修学女子组!
+* **251201 谷口彩菜(松嶋)发角色offshot** ⇨ [ins](https://www.instagram.com/p/DRtwg2hkhjo/) 不为人知(?)的修学女子组!
 * **251129 泉有乃(东云) 本日第7话;渡会递笔剧照** ⇨ [ins](https://www.instagram.com/p/DRoYGzOkiNj/)
-* **251022 谷口彩菜(学生役)杀青发和海李合照** ⇨ [𝕏](https://x.com/ayana9932/status/1981005304239362188)
+* **261023 橋本真咲(宮澤)个人杀青感想** ⇨ [ins](https://www.instagram.com/p/DQJm5Rhj2kG/)
+* **251022 谷口彩菜(松嶋)杀青发和海李合照** ⇨ [𝕏](https://x.com/ayana9932/status/1981005304239362188)
 * **251019 相羽星良(樱井) 第1话结束;和剧本自拍** ⇨ [ins](https://www.instagram.com/p/DP_TrSkjwyO/)
 * **251019 彩香(相良) 第1话结束;剧本/和修学旅行小册子自拍** ⇨ [ins](https://www.instagram.com/p/DP_WQehDxOs/)
-* **251009 谷口彩菜(学生役)发和海李合照** ⇨ [𝕏](https://x.com/ayana9932/status/1976182936564347312)/[ins](https://www.instagram.com/p/DPlfxh3EqKv/)
-* **251009 谷口彩菜(学生役)角色解禁** ⇨ [𝕏](https://x.com/ayana9932/status/1976115656283259104)/[ins](https://www.instagram.com/p/DPlfxh3EqKv/)
+* **261018 橋本真咲(宮澤)宣传修仲** ⇨ [ins](https://www.instagram.com/p/DP8oC7Pj003/) 很真诚的妹子，说自己从没接触过BL但是读过台本真的感受到了恋爱的美好。
+    > 「正直、私はBL作品に触れたことがありませんでした。しかし、台本を頂いて読んでみると、ありきたりの恋愛とは違う葛藤やそれでも相手が好きだという感情、それを受け入れる優しさ、受け入れられるように相手を想う心など、とっても暖かく繊細で、「人を好きになる」というのはすごく素敵なことなんだなと真剣に思わせていただきました。腐女子なんて言葉もありますが、それが分かる女の子は本当は尊いんだと、今はそう思います💭」
+* **251009 西田華乃音(唐沢)角色解禁** ⇨ [ins](https://www.instagram.com/p/DPlQd7eEQvv/)
+* **251009 谷口彩菜(松嶋)发和海李合照** ⇨ [𝕏](https://x.com/ayana9932/status/1976182936564347312)/[ins](https://www.instagram.com/p/DPlfxh3EqKv/)
+* **251009 谷口彩菜(松嶋)角色解禁** ⇨ [𝕏](https://x.com/ayana9932/status/1976115656283259104)/[ins](https://www.instagram.com/p/DPlfxh3EqKv/)
 
 
 ### 男子组
 {: #boys}
 
-* **262022 八神龍之介参演解禁** ⇨ [𝕏](https://x.com/Ryunosuke_ygm/status/2109157347226689541)
+* **261016 岡村瑞貴(小宮)角色解禁** ⇨ [ins](https://www.instagram.com/p/DeiliDwk_4D/) 这甚至是他第一篇ins
+* **261016 日向渓(学生役)参演解禁** ⇨ [𝕏](https://x.com/kei_hyuga44/status/2111015863289893154)
+* **261016 鈴木涼太(梅津)角色解禁** ⇨ [𝕏](https://x.com/01ryota__28/status/2111053231786975331)/[ins](https://www.instagram.com/p/Deg3CYeCUGf/) 这位同学说自己一般都穿绿色开衫
+* **261015 新井元輝(猪野)/下村未空(水無瀬)/中村克晟(真壁)发推继续参演S2** ⇨ 新井:[𝕏](https://x.com/araimotokidayo/status/2110649264036810901)/[ins](https://www.instagram.com/p/DeghtctvkaZ/)「バド部も進級です！！！」熟悉的小伙伴！｜下村:[𝕏-三地王合照](https://x.com/misora0131/status/2110728065945121256)/[ins](https://www.instagram.com/p/Degmnb6NHYZ/)｜中村:[𝕏](https://x.com/ko47454_kosei/status/2110663522216759735)/[ins](https://www.instagram.com/p/Def7aSNHepA/) 这位同学写了很长的post很真诚！
+* **261015 床井覇月(成松)角色解禁** ⇨ [ins](https://www.instagram.com/p/Deglt9LoCaG/) 这位小哥也演了恋二度
+* **261015 鷲山祈晋(寺内)角色解禁** ⇨ [𝕏](https://x.com/kishin_eagle_7/status/2110686133021749414)
+* **261014 柴草優太(岩井)角色解禁** ⇨ [ins](https://www.instagram.com/p/DeeI3GZGV86/)
+* **261014 関秀斗(外山)角色解禁** ⇨ [ins](https://www.instagram.com/p/DeeVUmDAZZv/)
+    > 「組は3年2組‼︎レギュラー生徒として1から見ていたBL作品、そして憧れのあった学園ものに携われること有り難く思います。全身全霊どうやったらこの作品が面白くなるかを考え、全力で向き合った作品の一つです。」
+* **261014 兒玉幸穏(園田)角色解禁** ⇨ [ins](https://www.instagram.com/p/DeeCdb8mXg1/) 和渡口和志是好朋友，发了合照
+* **261013 渡口和志(朝比奈)发推继续参演S2** ⇨ [𝕏](https://x.com/kazumammostar/status/2110012818594611310)/[ins](https://www.instagram.com/p/Deb9zRWGeT5/) 讲渡会坏话涂唇膏的那个同学！
+* **261011 八神龍之介(学生役)参演解禁** ⇨ [𝕏](https://x.com/Ryunosuke_ygm/status/2109157347226689541)
 * **260812 中村克晟(学生役)祝贺第二季** ⇨ [𝕏](https://x.com/ko47454_kosei/status/2087428128859885878) 他发了教室的花絮截图说当时只有他一个人看向了别的地方233
 
 ---
-* **260705 中村克晟(学生役)祝贺再放送+发自己的offshot** ⇨ [𝕏](https://x.com/ko47454_kosei/status/2073639838654607435) 6/29,7/4他都转发了官方再放送的推
+* **260705 中村克晟(真壁)祝贺再放送+发自己的offshot** ⇨ [𝕏](https://x.com/ko47454_kosei/status/2073639838654607435)/[ins](https://www.instagram.com/p/DaaLGZIHU5L/) 6/29,7/4他都转发了官方再放送的推
+* **251221 中村克晟(真壁) 最终回;杀青->进组回顾** ⇨ [ins](https://www.instagram.com/p/DShgtjUEyHM/)
 * **251221 下村未空(水無瀬)发杀青照;本日最终回** ⇨ [ins](https://www.instagram.com/p/DSfa6qwklwg/)
     > 「本当にバド部、楽しかったです！！！寂しい、、。！この4人でバド部四天王を出来たことが何より嬉しいです😁🌻」
 * **251220 新井元輝(猪野) 本日最终回;羽毛球社合照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/2002357239009419584/)/[ins](https://www.instagram.com/p/DSfER_yET0h/)
+* **251214 中村克晟(真壁) 文化祭当日** ⇨ [ins](https://www.instagram.com/p/DSPfTduk4Io/) 发了自己的文化祭照片
 * **251213 新井元輝(猪野) 本日第9话;第8-9话羽毛球社剧照/花絮照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/1999809154547069426)
 * **251213 下村未空(水無瀬) 本日第9话;羽毛球社合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DSM7fqsko4_/)
 * **251207 下村未空(水無瀬) 本日第8话;羽毛球社合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DR7Uw0QEvDd/)
@@ -350,9 +377,9 @@ permalink: /tmi/
 * **251116 新井元輝(猪野) 第5话结束;羽毛球社合照**{: .text-blue} ⇨ [𝕏](https://x.com/araimotokidayo/status/1989880653094248696)/[ins](https://www.instagram.com/p/DRGaox6EgL6/)
 * **251116 下村未空(水無瀬) 第5话结束;羽毛球社合照**{: .text-blue} ⇨ [ins](https://www.instagram.com/p/DRFYraUEo2Y/)
 * **251114 下村未空(水無瀬)/新井元輝(猪野)发ins第5话登场** ⇨ [ins水无濑](https://www.instagram.com/p/DRCby7dkoWb/)｜[𝕏猪野](https://x.com/araimotokidayo/status/1989330705265074329)/[ins](https://www.instagram.com/p/DRCg-jlEfDR/)
-* **251102 中村克晟(学生役) 第3话结束;自己的offshot** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1984946817377943610)
-* **251018 中村克晟(学生役) 本日开播;修仲便当照** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1979514674711507376)
-* **251015 中村克晟(学生役)角色情报解禁** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1978359337773879346)
+* **251102 中村克晟(真壁) 第3话结束;自己的offshot** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1984946817377943610)
+* **251018 中村克晟(真壁) 本日开播;修仲便当照** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1979514674711507376)
+* **251015 中村克晟(真壁)角色情报解禁** ⇨ [𝕏](https://x.com/ko47454_kosei/status/1978359337773879346)/[ins](https://www.instagram.com/p/DP1BnRdk6qG/)
 * **251012 新井元輝(猪野)角色情报解禁** ⇨ [𝕏](https://x.com/araimotokidayo/status/1977306800342122522)/[ins](https://www.instagram.com/p/DPtGIf7EbRF/)
 * **251008 下村未空(水無瀬)角色情报解禁** ⇨ [ins](https://www.instagram.com/p/DPi2RhgkvOH/)
 
@@ -370,6 +397,7 @@ permalink: /tmi/
 *※ 进藤导演发了很多其他地方没有的花絮照!*{: .text-small}
 *※ 快拍in progress……*{: .text-small}
 
+* **261013 群演募集追加** ⇨ [𝕏](https://x.com/shindo59512/status/2109957772997705809)
 * **261007 剧照壁纸解禁** ⇨ [𝕏](https://x.com/shindo59512/status/2107601157975859599)
 * **261003~261004 快拍:感谢群演的参与** 拍了运动会
 * **260929 30s预告解禁:今年也要去旅行**「还会在旅馆发生这样那样的大家都爱看的事」⇨ [𝕏](https://x.com/shindo59512/status/2104696104419983364)｜让大家关注夹在渡会和日置中间的辻谷 ⇨ [ins](https://www.instagram.com/p/Dd2QNkIE18g/)

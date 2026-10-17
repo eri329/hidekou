@@ -38,6 +38,7 @@ permalink: /solo/
     > **260830 小简写真集账号:旧视频彩色版** ⇨ [𝕏](https://x.com/kanhideyoshi1st/status/2093973395293839689)/[ins](https://www.instagram.com/p/DcqCxLZSFcA/)
     > **260901 小简ins:趴床小视频🥱😴😪** ⇨ [𝓲简](https://www.instagram.com/reel/DcvoxQRhdUv/)
     > **260902 小简X:预售截止日!** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2095071375732125932)
+    > **261014 1月10日线上见面会二次抽选开始** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2110341495987523645) 申请期间:10/14~10/20
 * **261103 简秀吉24岁生日会&见面会 大阪生日会**{: .text-red} 14:00/17:30📍大阪エル・シアター
 
 ---

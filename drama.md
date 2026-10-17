@@ -106,14 +106,29 @@ permalink: /drama/
     > 守崎遼翔 - 三浦健人 *守崎的哥哥*{: .text-small} [Ins](https://www.instagram.com/kento.go/)
     > 2年5組担任（美術科）- 宮島はるか *班主任*{: .text-small}
     > 朝比奈蓮 - 渡口和志 *番外篇日置pocky game的对象；第7话说渡会坏话的男同学*{: .text-small} [X](https://x.com/kazumammostar)/[Ins](https://www.instagram.com/ooops_kazu/)
-    > 真壁伊吹 - 中村克晟 [X](https://x.com/ko47454_kosei) *背景板男同学*{: .text-small}
+    > 真壁伊吹 - 中村克晟 [X](https://x.com/ko47454_kosei)/[Ins](https://www.instagram.com/kosei_nakamura/) *背景板男同学*{: .text-small}
     > 松嶋ほのか - 谷口彩菜 [X](https://x.com/ayana9932)/[Ins](https://www.instagram.com/taniguchi_ayana/)
+    > 唐沢莉子 - 西田華乃音 [Ins](https://www.instagram.com/kanon.nishida_/)
+    > 赤城咲希 - 楓月 [Ins](https://www.instagram.com/ruruciel_/)
+    > 宮澤夏帆 - 橋本真咲 [Ins](https://www.instagram.com/masaki.hashimoto_official/)
     ---  第二季新卡司 ---
     > 新山珠々 - 鈴川紗由 *渡会前女友*{: .text-small} [X](https://x.com/suzukawa1227)/[Ins](https://www.instagram.com/sayu.suzukawa_official/)
     > 藤本七菜 - 勝田彩月 [Ins](https://www.instagram.com/saaaki_1106/)
     > 梅田柚那 - 烏丸きなり [Ins](https://www.instagram.com/kinari__iiko/)
-    > 八神龍之介 [X](https://x.com/Ryunosuke_ygm)
     > 早瀬奈津美 - 貴瀬真衣 [X](https://x.com/mai_taka_07)
+    > 髙橋真柚香 - 横野遥
+    > 園田史樹 - 兒玉幸穏 [Ins](https://www.instagram.com/yukito.kodama/)
+    > 岩井泰弘 - 柴草優太 [Ins](https://www.instagram.com/4893_yuta/)
+    > 外山康生 - 関秀斗 [Ins](https://www.instagram.com/shuto_seki.official/)
+    > 寺内碧輝 - 鷲山祈晋 [X](https://x.com/kishin_eagle_7)
+    > 成松海斗 - 床井覇月 [Ins](https://www.instagram.com/hazuki_tokoi_official/)
+    > 梅津凌空 - 鈴木涼太 [X](https://x.com/01ryota__28)/[Ins](https://www.instagram.com/r_yota0128/)
+    > 小宮陽翔斗 - 岡村瑞貴 [Ins](https://www.instagram.com/mizuki_okamura_/)
+    > 市原莉菜 - 桜井くるみ [Ins](https://www.instagram.com/sakurai.kurumi/)
+    > 矢島学 - ラブ守永 *2班班主任*{: .text-small} [Ins](https://www.instagram.com/rabumori/)
+    > 八神龍之介 [X](https://x.com/Ryunosuke_ygm)
+    > 日向渓 [X](https://x.com/kei_hyuga44)
+    > 青波姫叶 [Ins](https://www.instagram.com/hinano_aonami_77/)
 * **生日与年龄**
     > **剧中年龄(*修学旅行2025.6.25~6.27*)**
     > 日置朝陽(2008/5/22,17), 渡会紬嵩(2009/2/14, 16), 守崎尚哉(2008/11/26, 16), 仲里晴輝(2008/9/19, 16), 堀田颯斗(2008/6/30, 16)
