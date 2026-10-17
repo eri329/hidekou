@@ -84,11 +84,20 @@ permalink: /flattened_timeline/
 
 <div class="line"></div>
 
-<!-- > **【采访｜双人】藤本洸大×簡秀吉 FAST后篇** ⇨ [𝕏]()｜[FAST]() -->
-
+* **261018**
+    > ~ **【修学旅行S2】修学旅行第二季开播!第1话**{: .text-red} 10/17 25:00~（10/18 1:00~）OP还是和第一季一样 ⇨ [𝕏TVer配信开始](https://x.com/dramal_abc/status/2111494951427002590)｜[𝕏TVer第1话5分钟剪辑](https://x.com/TVer_info/status/2111496060212572267)｜[𝕏FOD配信](https://x.com/fujitvplus/status/2111494997216489694)｜[𝕏官号感谢收看](https://x.com/dramal_abc/status/2111502504785768675)
+        > **第2话预告** ⇨ [🆈第2话30s预告](https://www.youtube.com/watch?v=2kxBbrBxzEU)｜[官网第2话剧照简介更新](https://www.asahi.co.jp/schooltrip/story/)
+    > ~ **【修学旅行S2】官号第1话宣传/剧照/花絮汇总** ⇨ 12AM:[𝕏五天王台步](https://x.com/dramal_abc/status/2111472401846546892)/[ins](https://www.instagram.com/p/DemYZR4k91j/)｜12:50AM:还有10分钟 [𝕏大巴远景](https://x.com/dramal_abc/status/2111484975669555692)/[ins](https://www.instagram.com/p/DemeFPLE9q7/)｜<span>1AM:🚌第1話 放送スタート💨</span>{: .text-red} [𝕏教室黑板画空镜](https://x.com/dramal_abc/status/2111487403470860607)｜2AM:[𝕏体育服渡日花絮](https://x.com/dramal_abc/status/2111505015559111114)｜[𝕏娱乐榜Trend4位](https://x.com/dramal_abc/status/2111508064641962320)
+    > ~ **【修学旅行S2】官号实时纯文字Re第1话** ⇨ 1:06AM:「渡会さん、勉強してください」[𝕏](https://x.com/dramal_abc/status/2111489021264503272)｜1:13AM:「仲里の仕業で 集合写真が、"あ"の口になりました」[𝕏](https://x.com/dramal_abc/status/2111490729466007755)｜1:22AM:「間違いなく史上最強の男です」[𝕏](https://x.com/dramal_abc/status/2111493124216545757)
+    > ~ **【修学旅行S2】官号发切片** ⇨ [𝕏男朋友可以为所欲为吗](https://x.com/dramal_abc/status/2111510048564269552)
+    > ~ **【修学旅行S2】杏那实时追剧中** 杏那酱也是一刻没耽误！「修仲ガチ神やね……分かりますわ……（by部外者の杏那さん）」⇨ [𝕏](https://x.com/shiori_iwanami/status/2111501019167490166)
 * **261017**
-    > **【修学旅行S2】修学旅行第二季开播!**{: .text-red} 25:00~
-    > ~ **【修学旅行S2】第1话宣传/剧照/预热** ⇨ 8AM:[𝕏15sPR](https://x.com/dramal_abc/status/2111230718277775431)/[ins](https://www.instagram.com/reels/Dekqfdbk-og/)｜10AM:[𝕏电车站广告图渡会背日置](https://x.com/dramal_abc/status/2111260913135460577)｜[𝕏TVG剧照-渡日自拍/摸嘴唇](https://x.com/TVGweb/status/2111230960079708640)｜[𝕏mdpr剧照](https://x.com/modelpress/status/2111260923843473492)
+    > **【修学旅行S2｜双人+海李】突击ins直播 8:45~9:00PM**{: .text-red} ⇨ 8:39PM:[𝕏直播预告](https://x.com/dramal_abc/status/2111421789998072000)｜[](https://x.com/haembuki/status/2111478098797735961) 一开始4分半是秀洸双人，中途海李加入三人直播到了最后。观众6700人。有一个特别萌的戳脸小剧场www洸大被海李意外抢先戳了脸小简大怒，被海李吐槽（你那个生气的语气）是秀吉吧！！
+    > ~ **【修学旅行S2｜简秀吉】8:40PM 小简发推本日第1话!**{: .text-red} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2111422168433307808)｜[ins图更多还有小视频](https://www.instagram.com/p/DemBR5sAUxJ/)｜[📕简-也有新图](https://xhslink.com/o/AkK2ShB3WoR)「渡会ただいま🖐🏻」
+    > ~ **【修学旅行S2】官号第1话宣传/剧照/预热**{: .text-red} ⇨ 8AM:[𝕏15sPR](https://x.com/dramal_abc/status/2111230718277775431)/[ins](https://www.instagram.com/reels/Dekqfdbk-og/)｜10AM:[𝕏电车站广告图渡会背日置](https://x.com/dramal_abc/status/2111260913135460577)/[ins](https://www.instagram.com/p/Dek4Rilk9YA/)｜12PM:[𝕏五天王口播](https://x.com/dramal_abc/status/2111291121120809339)/[ins](https://www.instagram.com/p/DelGBBGk0xm/)｜3PM:还有10小时 [𝕏渡日对视单人](https://x.com/dramal_abc/status/2111336620544946444)/[ins](https://www.instagram.com/p/DelbHTuk0Fp/)｜5PM:[𝕏大巴旧图](https://x.com/dramal_abc/status/2111368551269568833)/[ins](https://www.instagram.com/p/DelpMhzE-WJ/)｜7PM:[𝕏夜晚渡日背影](https://x.com/dramal_abc/status/2111396803639697452)/[ins多一张日置单人](https://www.instagram.com/p/Del2BHbkyNq/)｜8PM:[𝕏女生找日置](https://x.com/dramal_abc/status/2111411913741783529)/[ins](https://www.instagram.com/p/Del81YdE7q-/)｜11PM:[𝕏日置辻谷/渡日对视双人](https://x.com/dramal_abc/status/2111457212648603771)/[ins](https://www.instagram.com/p/DemRd1xk4zW/) 日置把辻谷掰下来真的好青春啊~
+        > 其他媒体: [𝕏TVG剧照-渡日自拍/摸嘴唇](https://x.com/TVGweb/status/2111230960079708640)｜[𝕏mdpr剧照](https://x.com/modelpress/status/2111260923843473492)｜[𝕏ABC电视台剧照-渡会想牵手](https://x.com/asahi_tv/status/2111291108697481377)｜[𝕏Oricon News](https://x.com/oricon/status/2111293623832571958) ⬅️大量剧照28张
+        > 三天王: [𝕏堀田花絮剧照](https://x.com/kairi_shimizu/status/2111451657762648449)｜[𝕏仲里花絮照(10/18)](https://x.com/official_DXTEEN/status/2111494950919778333)
+    > **【采访｜双人】藤本洸大×簡秀吉 FAST后篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111381955082121561)｜[FAST](https://fast-tokyo.com/schooltrip-2/)
     > ~ **【修学旅行S2】长谷川导演发推:还有24小时!最近把腿扭伤了** 拄着拐杖的导演；但是拍摄很顺利，大家看到我这个样子反而都笑了 ⇨ [𝕏](https://x.com/hasetaku0227/status/2111120959717744826)/[ins](https://www.instagram.com/p/Dej40IxD4O-/)
 * **261016**
     > ~ **【修学旅行S2｜藤本洸大】洸大发日置剧照** ⇨ [𝓲洸](https://www.instagram.com/p/Dejfk4kFBrJ/)「ついに明日放送‼️」抱着书包的日置可爱~

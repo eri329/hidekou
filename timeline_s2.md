@@ -46,6 +46,8 @@ permalink: /timeline_s2/
     > **260915 特典卡图柄解禁**{: .text-red} ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099770192238903570) <span>很好看的小卡:有线耳机/礼物缎带/小狗玩偶</span>{: .text-pink}
 * **261017【修学旅行S2】修学旅行第二季开播!**{: .text-red} 25:00~
     > **剧照** ⇨ [𝕏S2第1话剧照-床咚](https://x.com/dramal_abc/status/2104775674192146666)/[ins](https://www.instagram.com/p/Dd2zJAKE7ou/) <span>官号发的剧照已经很清晰了；ins多一张日置笑着看手机</span>{: .text-pink}｜[𝕏realsound](https://x.com/realsound_m/status/2104692629690781967) <span>多一张仲里日置在大巴</span>{: .text-pink}｜[𝕏合宿日程表](https://x.com/dramal_abc/status/2109411220151541954)/[ins](https://www.instagram.com/p/DeXvB9qE-Ic/) <span>还有一张渡会男友力max帮日置拿包的壁纸，滤镜很美！</span>{: .text-pink}
+* **261017【修学旅行S2｜双人+海李】突击ins直播 8:45~9:00PM @修仲官号**{: .text-red} ⇨ 8:39PM:[𝕏直播预告](https://x.com/dramal_abc/status/2111421789998072000)
+    > #### 一开始4分半是秀洸双人，中途海李加入三人直播到了最后。观众6700人。聊了第1话的看点、OP、问大家的推，强调恋爱的终点不是交往，还有一个特别萌的戳脸小剧场www1️⃣洸大被海李意外抢先戳了脸小简大怒，被海李吐槽（你那个生气的语气）是秀吉吧！！2️⃣还有小简说大家换推我会生气的哟，被洸大瞪住含糊地说了一嘴“怎么能生气呢”（站长被萌到）3️⃣海李的出场也很有意思，一开始海李在评论区回复我在家里，播了一会儿小简说你很闲吧来找我们吧，然后海李马上跳进了镜头2333感觉是安排好的节目XD 4️⃣长谷川导演和进藤导演好像也来了，简「5分钟前我还在和他们拍戏呢」5️⃣洸大说请大家关注OP里堀田和日置打闹的一个场景
 * **261016~261017【采访｜双人】藤本洸大×簡秀吉 FAST**
     > **261015 采访预告** 10/16 18:00 ⇨ [𝕏](https://x.com/fast_japan_/status/2110651640890249545)
     > **261016 前篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111019567200055334)｜[FAST](https://fast-tokyo.com/schooltrip-1/)
