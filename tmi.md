@@ -307,7 +307,7 @@ permalink: /tmi/
 * **261015 桜井くるみ(市原)角色解禁** ⇨ [ins](https://www.instagram.com/p/DehBZINSQ1Y/) 3年2組
 * **261015 横野遥(髙橋)角色解禁** ⇨ [𝕏](https://x.com/cadis_official/status/2110551260386758745)
 * **261013 西田華乃音(唐沢)发推继续参演S2** ⇨ [ins](https://www.instagram.com/p/DebbJGMkZtj/)
-* **261011 貴濑真衣(早濑) 角色解禁** ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)
+* **261011 貴濑真衣(早濑) 角色解禁** ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)/[ins](https://www.instagram.com/p/DeWUlu9GGNM/)
     > 又是个修仲粉www「実は修仲シーズン1が大好きで、去年は毎週楽しみに観ていた1人でした🙌🏻今回、一緒に高3になることができて凄く嬉しいです😭最近は放送が待ち切れず、シーズン1を何度も見返してキュンキュンしてます」
 * **261010 烏丸きなり(梅田) 角色解禁** ⇨ [ins](https://www.instagram.com/p/DeTQsiwDw0E/) 
     >「高校生役なんて中々ないから嬉しい〜！✨」

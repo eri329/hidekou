@@ -66,10 +66,16 @@ permalink: /drama/
     > 251220 25:00~ 第10话「一生心に残り続けていく日々」(最终回)
     > 251228 0:00~ 番外篇前篇「息もできない」
     > 260104 0:00~ 番外篇后篇「嵐の夜」
-* **分集剧情**
-    > 1:
+<details markdown="1">
+<summary><strong>=================== 第一季剧情(点击此行展开/收起)===================</strong></summary>
+</details>
+
 * **第二季**
-    > 261017 25:00~ 第1话
+    > 261017 25:00~ 第1话「平凡男子、人生初彼氏に悩む」
+<details markdown="1">
+<summary><strong>=================== 第二季剧情(点击此行展开/收起)===================</strong></summary>
+> **第1话**：S1前情提要｜渡会看日置打羽毛球，提出一起回家｜渡日回家走天桥，渡会没牵到手，引出学习合宿｜合宿出发当天坐大巴，渡日颗粒度没对齐｜休息站渡会严防死守，有女生想和日置合照被渡会截胡｜合宿渡日完全没有重合的行程，渡会崩溃｜渡日错过，日置得到启发开始反思自己太淡定｜日置穿辻谷的衣服被渡会逮到｜渡会拉日置直接去旅馆房间办事
+</details>
 
 ## 修学旅行制作组
 {: #staff}
@@ -79,7 +85,8 @@ permalink: /drama/
     > 2, 3, 4话: 藤澤浩和 [X](https://x.com/fujisawa44) (《低体温男子になつかれました。》)
     > 5, 6话, 番外前篇: ハセガワタクヤ(長谷川 卓也) [X](https://x.com/hasetaku0227)/[Ins](https://www.instagram.com/hasegawa_takuya0227/)
     > 9话, 疑似番外后篇: 安見悟朗 [X](https://x.com/lennono560)/[Ins](https://www.instagram.com/goroyasumi/)
-    -- S2 --
+    -- S2(不完全) --
+    > 1, 2话: 進藤丈広
     > 4, 5话: 安見悟朗
 * **其他**
     > 录音师: 柴田陽一郎 [X](https://x.com/topnotetokyo)
@@ -115,7 +122,7 @@ permalink: /drama/
     > 新山珠々 - 鈴川紗由 *渡会前女友*{: .text-small} [X](https://x.com/suzukawa1227)/[Ins](https://www.instagram.com/sayu.suzukawa_official/)
     > 藤本七菜 - 勝田彩月 [Ins](https://www.instagram.com/saaaki_1106/)
     > 梅田柚那 - 烏丸きなり [Ins](https://www.instagram.com/kinari__iiko/)
-    > 早瀬奈津美 - 貴瀬真衣 [X](https://x.com/mai_taka_07)
+    > 早瀬奈津美 - 貴瀬真衣 [X](https://x.com/mai_taka_07)/[Ins](https://www.instagram.com/mai_taka_07/)
     > 髙橋真柚香 - 横野遥
     > 園田史樹 - 兒玉幸穏 [Ins](https://www.instagram.com/yukito.kodama/)
     > 岩井泰弘 - 柴草優太 [Ins](https://www.instagram.com/4893_yuta/)
@@ -194,6 +201,17 @@ permalink: /drama/
 > 8话: 最高3位(12/07)
 > 9话: 最高3位(12/14)
 > 10话: 最高2位(12/21)
+* **TVer实时电视剧榜排名（S2）**
+> 1话: 最高 位(10/18)
+> 2话: 最高 位
+> 3话: 最高 位
+> 4话: 最高 位
+> 5话: 最高 位
+> 6话: 最高 位
+> 7话: 最高 位
+> 8话: 最高 位
+> 9话: 最高 位
+> 10话: 最高 位
 * **Ins粉丝数**
 > **简秀吉:** <span>10.6万(25/8/8)</span>{: .text-blue}→11万(10/18)→11.4万(10/23)→12.5万(11/1)→13.1万(11/5)→13.3万(11/7)→14万(11/12)→17.8万(11/26)→18.6万(11/29)→<span>20万(12/6)</span>{: .text-red}→25万(12/25)→27万(26/1/4)→27.3万(1/5)→28.4万(1/11)→<span>30万(2/6)</span>{: .text-red}→33万(8/1)
 > <span>[第二季宣布]</span>{: .text-red}→<span>33.3万(8/11)</span>{: .text-blue}→33.9万(8/21)→34.2万(8/31)→34.5万(9/10)→34.8万(9/20)→35.1万(9/30)→35.5万(10/12)

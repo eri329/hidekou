@@ -79,25 +79,28 @@ permalink: /flattened_timeline/
     > ~ **【杂志】《TVFan》12月号(10/23) 杂志发售**
 * **261021**
     > **【杂志｜双人】《週刊TVガイド関東版》10/30号(10/21) 杂志发售**
-* **261018**
-    > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大宫生日会**{: .text-solo} 14:30/18:30📍大宮ソニックシティホール大ホール
 
 <div class="line"></div>
 
 * **261018**
-    > ~ **【修学旅行S2】修学旅行第二季开播!第1话**{: .text-red} 10/17 25:00~（10/18 1:00~）OP还是和第一季一样 ⇨ [𝕏TVer配信开始](https://x.com/dramal_abc/status/2111494951427002590)｜[𝕏TVer第1话5分钟剪辑](https://x.com/TVer_info/status/2111496060212572267)｜[𝕏FOD配信](https://x.com/fujitvplus/status/2111494997216489694)｜[𝕏官号感谢收看](https://x.com/dramal_abc/status/2111502504785768675)
+    > ~ **【修学旅行S2】修学旅行第二季开播!第1话「平凡男子、人生初彼氏に悩む」**{: .text-red} 10/17 25:00~（10/18 1:00~）OP还是和第一季一样 ⇨ [𝕏TVer配信开始](https://x.com/dramal_abc/status/2111494951427002590)｜[𝕏TVer第1话5分钟剪辑](https://x.com/TVer_info/status/2111496060212572267)｜[𝕏FOD配信](https://x.com/fujitvplus/status/2111494997216489694)｜[𝕏Gaga](https://x.com/gagaoolala/status/2111623457318281456)｜[𝕏官号感谢收看](https://x.com/dramal_abc/status/2111502504785768675)/[ins](https://www.instagram.com/p/Demm3GuE246/)
         > **第2话预告** ⇨ [🆈第2话30s预告](https://www.youtube.com/watch?v=2kxBbrBxzEU)｜[官网第2话剧照简介更新](https://www.asahi.co.jp/schooltrip/story/)
-    > ~ **【修学旅行S2】官号第1话宣传/剧照/花絮汇总** ⇨ 12AM:[𝕏五天王台步](https://x.com/dramal_abc/status/2111472401846546892)/[ins](https://www.instagram.com/p/DemYZR4k91j/)｜12:50AM:还有10分钟 [𝕏大巴远景](https://x.com/dramal_abc/status/2111484975669555692)/[ins](https://www.instagram.com/p/DemeFPLE9q7/)｜<span>1AM:🚌第1話 放送スタート💨</span>{: .text-red} [𝕏教室黑板画空镜](https://x.com/dramal_abc/status/2111487403470860607)｜2AM:[𝕏体育服渡日花絮](https://x.com/dramal_abc/status/2111505015559111114)｜[𝕏娱乐榜Trend4位](https://x.com/dramal_abc/status/2111508064641962320)
+        > **亲妈3点发帖** ⇨ [𝕏](https://x.com/RcNfe37/status/2111515464648315093)「あまりにも好きなシーンが多すぎるのであと100周してから寝ます😿✧˚₊‧」（喜欢的片段太多了我要循环100遍再睡觉）
+    > ~ **【修学旅行S2】官号第1话宣传/剧照/花絮汇总** ⇨ 12AM:[𝕏五天王台步](https://x.com/dramal_abc/status/2111472401846546892)/[ins](https://www.instagram.com/p/DemYZR4k91j/)｜12:50AM:还有10分钟 [𝕏大巴远景](https://x.com/dramal_abc/status/2111484975669555692)/[ins](https://www.instagram.com/p/DemeFPLE9q7/)｜<span>1AM:🚌第1話 放送スタート💨</span>{: .text-red} [𝕏教室黑板画空镜](https://x.com/dramal_abc/status/2111487403470860607)｜2AM:[𝕏体育服渡会挑下巴](https://x.com/dramal_abc/status/2111505015559111114)/[ins](https://www.instagram.com/p/DemnRISk1-T/)｜[𝕏娱乐榜Trend4位](https://x.com/dramal_abc/status/2111508064641962320)｜8AM:[𝕏渡日辻谷@校门口](https://x.com/dramal_abc/status/2111593102045794668)/[ins](https://www.instagram.com/p/DenPUb4k6yR/)｜1PM:[𝕏旅馆渡日对视](https://x.com/dramal_abc/status/2111675308462227851)/[ins](https://www.instagram.com/p/Den0sMfE65b/)
     > ~ **【修学旅行S2】官号实时纯文字Re第1话** ⇨ 1:06AM:「渡会さん、勉強してください」[𝕏](https://x.com/dramal_abc/status/2111489021264503272)｜1:13AM:「仲里の仕業で 集合写真が、"あ"の口になりました」[𝕏](https://x.com/dramal_abc/status/2111490729466007755)｜1:22AM:「間違いなく史上最強の男です」[𝕏](https://x.com/dramal_abc/status/2111493124216545757)
-    > ~ **【修学旅行S2】官号发切片** ⇨ [𝕏男朋友可以为所欲为吗](https://x.com/dramal_abc/status/2111510048564269552)
+    > ~ **【修学旅行S2】官号发切片** ⇨ [𝕏男朋友可以为所欲为吗](https://x.com/dramal_abc/status/2111510048564269552)/[ins](https://www.instagram.com/p/DeneJxgToTT/)｜[𝕏渡会畅想和日置的合宿](https://x.com/dramal_abc/status/2111698794219728928)/[ins](https://www.instagram.com/reel/Den_Y0tkx7Q/)
     > ~ **【修学旅行S2】杏那实时追剧中** 杏那酱也是一刻没耽误！「修仲ガチ神やね……分かりますわ……（by部外者の杏那さん）」⇨ [𝕏](https://x.com/shiori_iwanami/status/2111501019167490166)
+    > ~ **【修学旅行S2】官号发【修学旅行2 × SQUALL】节目切片** 修学主演向SQUALL主演的提问 ⇨ [𝕏以前发过的片段](https://x.com/dramal_abc/status/2111654257732768137)｜[𝕏新的片段](https://x.com/dramal_abc/status/2111654861867774295)｜[🆈原片](https://www.youtube.com/watch?v=CUAapiGlr6E)
+    > ~ **【修学旅行S2】进藤导演发推🧢監督メモ🧢** ⇨ [𝕏没有新图](https://x.com/shindo59512/status/2111615181327573387)/[ins大量花絮剧照](https://www.instagram.com/p/DenYJ2dj1uu/) OP和第一场戏都是第一天拍的，黑板上的画都是大家自己画的。修仲2的标题一半是洸大、另一半是小简亲自写的！辻谷的名牌也是山田健人亲笔写的XD 第1话以及下周的第2话都是进藤导演的集数。
+    > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 大宫生日会**{: .text-solo} 14:30/18:30📍大宮ソニックシティホール大ホール
 * **261017**
     > **【修学旅行S2｜双人+海李】突击ins直播 8:45~9:00PM**{: .text-red} ⇨ 8:39PM:[𝕏直播预告](https://x.com/dramal_abc/status/2111421789998072000)｜[](https://x.com/haembuki/status/2111478098797735961) 一开始4分半是秀洸双人，中途海李加入三人直播到了最后。观众6700人。有一个特别萌的戳脸小剧场www洸大被海李意外抢先戳了脸小简大怒，被海李吐槽（你那个生气的语气）是秀吉吧！！
-    > ~ **【修学旅行S2｜简秀吉】8:40PM 小简发推本日第1话!**{: .text-red} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2111422168433307808)｜[ins图更多还有小视频](https://www.instagram.com/p/DemBR5sAUxJ/)｜[📕简-也有新图](https://xhslink.com/o/AkK2ShB3WoR)「渡会ただいま🖐🏻」
+    > ~ **【修学旅行S2｜简秀吉】8:40PM 小简发推本日第1话!**{: .text-red} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2111422168433307808)｜[ins图更多更大还有小视频](https://www.instagram.com/p/DemBR5sAUxJ/)｜[📕简-也有新图](https://xhslink.com/o/AkK2ShB3WoR)「渡会ただいま🖐🏻」
+    > ~ **【修学旅行S2｜藤本洸大】9PM 洸大发ins本日第1话!**{: .text-red} ⇨ [𝓲洸](https://www.instagram.com/p/DemD3gTlNjb/)
     > ~ **【修学旅行S2】官号第1话宣传/剧照/预热**{: .text-red} ⇨ 8AM:[𝕏15sPR](https://x.com/dramal_abc/status/2111230718277775431)/[ins](https://www.instagram.com/reels/Dekqfdbk-og/)｜10AM:[𝕏电车站广告图渡会背日置](https://x.com/dramal_abc/status/2111260913135460577)/[ins](https://www.instagram.com/p/Dek4Rilk9YA/)｜12PM:[𝕏五天王口播](https://x.com/dramal_abc/status/2111291121120809339)/[ins](https://www.instagram.com/p/DelGBBGk0xm/)｜3PM:还有10小时 [𝕏渡日对视单人](https://x.com/dramal_abc/status/2111336620544946444)/[ins](https://www.instagram.com/p/DelbHTuk0Fp/)｜5PM:[𝕏大巴旧图](https://x.com/dramal_abc/status/2111368551269568833)/[ins](https://www.instagram.com/p/DelpMhzE-WJ/)｜7PM:[𝕏夜晚渡日背影](https://x.com/dramal_abc/status/2111396803639697452)/[ins多一张日置单人](https://www.instagram.com/p/Del2BHbkyNq/)｜8PM:[𝕏女生找日置](https://x.com/dramal_abc/status/2111411913741783529)/[ins](https://www.instagram.com/p/Del81YdE7q-/)｜11PM:[𝕏日置辻谷/渡日对视双人](https://x.com/dramal_abc/status/2111457212648603771)/[ins](https://www.instagram.com/p/DemRd1xk4zW/) 日置把辻谷掰下来真的好青春啊~
         > 其他媒体: [𝕏TVG剧照-渡日自拍/摸嘴唇](https://x.com/TVGweb/status/2111230960079708640)｜[𝕏mdpr剧照](https://x.com/modelpress/status/2111260923843473492)｜[𝕏ABC电视台剧照-渡会想牵手](https://x.com/asahi_tv/status/2111291108697481377)｜[𝕏Oricon News](https://x.com/oricon/status/2111293623832571958) ⬅️大量剧照28张
-        > 三天王: [𝕏堀田花絮剧照](https://x.com/kairi_shimizu/status/2111451657762648449)｜[𝕏仲里花絮照(10/18)](https://x.com/official_DXTEEN/status/2111494950919778333)
-    > **【采访｜双人】藤本洸大×簡秀吉 FAST后篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111381955082121561)｜[FAST](https://fast-tokyo.com/schooltrip-2/)
+        > 三天王: [𝕏堀田花絮剧照](https://x.com/kairi_shimizu/status/2111451657762648449)｜[𝕏仲里花絮照(10/18)](https://x.com/official_DXTEEN/status/2111494950919778333)｜[原自分PR(10/18)](https://x.com/genjibu_sdr/status/2111577997019074895)
+    > **【采访｜双人】藤本洸大×簡秀吉 FAST后篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111381955082121561)/[ins](https://www.instagram.com/p/DelvOTQDdX7/)｜[FAST](https://fast-tokyo.com/schooltrip-2/)
     > ~ **【修学旅行S2】长谷川导演发推:还有24小时!最近把腿扭伤了** 拄着拐杖的导演；但是拍摄很顺利，大家看到我这个样子反而都笑了 ⇨ [𝕏](https://x.com/hasetaku0227/status/2111120959717744826)/[ins](https://www.instagram.com/p/Dej40IxD4O-/)
 * **261016**
     > ~ **【修学旅行S2｜藤本洸大】洸大发日置剧照** ⇨ [𝓲洸](https://www.instagram.com/p/Dejfk4kFBrJ/)「ついに明日放送‼️」抱着书包的日置可爱~
@@ -106,7 +109,7 @@ permalink: /flattened_timeline/
     > ~ **【修学旅行S2】6PM 官号发花絮视频:还有1天!** ⇨ [𝕏疑似7天王走OP台步](https://x.com/dramal_abc/status/2111020042360107466)/[ins](https://www.instagram.com/p/DejKvgfT94e/) 辻谷真的太好笑了山健的天选角色 ※超糊画质
     > ~ **【修学旅行S2】10AM 官号发切片**{: .text-red} ⇨ [𝕏渡会合集-日置太可爱了](https://x.com/dramal_abc/status/2110898520836476931)/[ins](https://www.instagram.com/p/DeidDqizhEF/)「1話から"愛重めな渡会"をチラ見せ」爆炸可爱！撒娇又有点矫情的渡会和懵懵不理解但配合的日置真是绝配！※超糊画质
     > ~ **【修学旅行S2】进藤导演发推:🧢監督メモ🧢 明日放送！**{: .text-red}「请期待OP里7个人的身影；7个人到底在看什么呢！？」⇨ [𝕏](https://x.com/shindo59512/status/2111027253173952762) ⬅️7天王合照+渡日摸脸｜[ins](https://www.instagram.com/p/DejLSIJkc9v/) ⬅️大量花絮照/剧照！！
-    > **【采访｜双人】藤本洸大×簡秀吉 FAST前篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111019567200055334)｜[FAST](https://fast-tokyo.com/schooltrip-1/) 有什么东西缠上日置了！！
+    > **【采访｜双人】藤本洸大×簡秀吉 FAST前篇** ⇨ [𝕏](https://x.com/fast_japan_/status/2111019567200055334)/[ins](https://www.instagram.com/p/DejKbdQlOsi/)｜[FAST](https://fast-tokyo.com/schooltrip-1/) 有什么东西缠上日置了！！
     > **【杂志｜双人】《TV station》11/7号(11/4) 登场情报解禁 双人封底** 711特典生写真三选一/全套保配 ⇨ [𝕏特典图](https://x.com/TVGweb/status/2111004219368976683)｜[详情](https://prtimes.jp/main/html/rd/p/000003552.000006568.html)｜[𝕏7net购买链接](https://x.com/7_netshopping/status/2111007990434484667)｜[𝕏推し楽-单张特典图](https://x.com/oshiraku/status/2111066653018726541)
     > ~ **【修学旅行S2】海李/樱木发帖:明日开播!**{: .text-other} 惯例的堀田画伯/修仲开播第1日纪要 ⇨ [ins](https://www.instagram.com/p/DejinFWo8W5/)｜樱木:[ins](https://www.instagram.com/p/DejSSrlT6eG/)
     > **【修学旅行S2】风见野学生角色新卡司追加**{: .text-other} 梅津凌空役 by 鈴木涼太 ⇨ [𝕏](https://x.com/01ryota__28/status/2111053231786975331)/[ins](https://www.instagram.com/p/Deg3CYeCUGf/) 这位同学说自己一般都穿绿色开衫 ｜学生役 日向渓 ⇨ [𝕏](https://x.com/kei_hyuga44/status/2111015863289893154)｜小宮陽翔斗役 by 岡村瑞貴 ⇨ [ins](https://www.instagram.com/p/DeiliDwk_4D/) 这甚至是他第一篇ins｜学生役(3年2組) 青波姫叶 ⇨ [ins](https://www.instagram.com/p/DejEDzLmVgC/)
@@ -140,10 +143,10 @@ permalink: /flattened_timeline/
     > **【个人活动｜藤本洸大】朗读剧「一富士茄子牛焦げルギー」出演情报解禁**{: .text-solo-k} 「僕」役；27年1月在东京和大阪上演 ⇨ [𝓲洸](https://www.instagram.com/p/DeZQ17ypiNG/)
 * **261011**
     > **【修学旅行】泰国/香港/台北第一季全话上映会** 所有观众赠送修学logo透卡；台北/香港均抽选2名送五天王亲签板
-    > **【修学旅行S2】风见野学生角色新卡司追加** 无角色名 by 八神龍之介 ⇨ [𝕏](https://x.com/Ryunosuke_ygm/status/2109157347226689541) 这个小哥好像还是小简粉丝👀25年小简生日发了推祝福来着。｜早瀬奈津美役 by 貴瀬真衣 ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)「実は修仲シーズン1が大好きで、去年は毎週楽しみに観ていた1人でした🙌🏻」又是个修仲粉www
     > **【个人活动｜简秀吉】简秀吉24岁生日会&见面会 FC限定：官周摄影setlog**{: .text-solo} ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2109250726631538763)｜[🔒【FC限定】Setlog 〜グッズ撮影編〜🎥🫧](https://kan-hideyoshi.com/movies/133390)
     > **【个人活动｜藤本洸大】洸大1st写真集东京签售会**{: .text-solo-k} ⇨ [𝓲洸](https://www.instagram.com/p/DeWxQe6lLE1/) 洸大写了很长的感言，日记里也写了今天的活动：希望成为大家能挺起胸膛说自己是藤本洸大粉丝的人。
     > **【FC｜藤本洸大】洸大日记「宿縁奇遇」**{: .text-solo-k} ⇨ [🔒FC-东京签售会](https://sp.tcland.jp/contents/1118126) 仔细品味那数十秒的相遇，今后的一年还会继续努力。
+    > **【修学旅行S2】风见野学生角色新卡司追加**{: .text-other} 无角色名 by 八神龍之介 ⇨ [𝕏](https://x.com/Ryunosuke_ygm/status/2109157347226689541) 这个小哥好像还是小简粉丝👀25年小简生日发了推祝福来着。｜早瀬奈津美役 by 貴瀬真衣 ⇨ [𝕏](https://x.com/mai_taka_07/status/2109256218887983318)/[ins](https://www.instagram.com/p/DeWUlu9GGNM/)「実は修仲シーズン1が大好きで、去年は毎週楽しみに観ていた1人でした🙌🏻」又是个修仲粉www
 * **261010**
     > **【修学旅行｜正片】修学旅行TV再放送 第10话(最终回)**{: .text-red} ※25:00～25:30 ⇨ [𝕏-BeLuck发新剧照](https://x.com/BeLuckbunko/status/2108841212996465049)｜[𝕏修仲官推疑似还有新图存货](https://x.com/i/history/bookmarks/2105027008866742633)
     > **【修学旅行S2】修仲2将于10/18上线GagaooLala** ⇨ [𝕏](https://x.com/gagaoolala/status/2108860129344897484)/[ins](https://www.instagram.com/p/DeT0a7hDWBY/)/[ins中文](https://www.instagram.com/p/DeT0bM3F0Q5/) 日韩港澳地区除外
