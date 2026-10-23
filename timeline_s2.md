@@ -41,9 +41,16 @@ permalink: /timeline_s2/
     > **261015 双人MOVIE.01 解禁** ⇨ [𝕏](https://x.com/GIANNABOYFRIEND/status/2110572945013928408)
 * **261023【杂志｜双人】《月刊TVガイド》12月号(10/23) 杂志发售** 双人封底
     > **261002 登场情报解禁** ⇨ [𝕏](https://x.com/GEKKAN_TVGUIDE/status/2105935665703870699)｜[𝕏封底&特典解禁](https://x.com/GEKKAN_TVGUIDE/status/2105934958074466453) バックカバー＆SPグラビア💘 藤本洸大＆簡秀吉；711方卡三随一
+* **261023【生日｜简秀吉】小简24岁生日!**{: .text-red} ⇨ [𝕏修仲官号发五天庆生合照](https://x.com/dramal_abc/status/2113465434116608242)/[ins](https://www.instagram.com/p/De0ir7VE6i6/)｜[📕简](https://xhslink.com/o/6UVUUEz8ZkR)｜[𝕏简](https://x.com/kan_hideyoshi/status/2113574484255158492)｜[𝓲简-有小视频](https://www.instagram.com/p/De1U18FgRcN/)｜22:00~ 小简FC直播
+    > #### 反而是洸大戴了生日帽233 小简直播解释是他让洸大戴上的，是“秀吉文化”：他在过生日的时候会让别人戴上生日goods，别人过生日的时候他也要戴生日眼镜XD 小简每个平台都发了不同的五天王庆生照~洸大在23日晚上快拍转发官号帖子祝福「kanさんおめでとうございます‼️🎊最高の作品を作り上げましょう！」
 * **261021【杂志｜双人】《週刊TVガイド関東版》10/30号(10/21) 杂志发售**
     > **260914 双人登场情报解禁** ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099413528340050082) 711网店送手机尺寸小卡三随一
     > **260915 特典卡图柄解禁**{: .text-red} ⇨ [𝕏](https://x.com/weekly_tvguide/status/2099770192238903570) <span>很好看的小卡:有线耳机/礼物缎带/小狗玩偶</span>{: .text-pink}
+* **261020【修学旅行S2】官方Tiktok小视频:堀田仲里宣传电视剧** 蛙化注意（站长笑死了，太可爱了！）⇨ [TT](https://www.tiktok.com/@schooltrip_abc/video/7698671563599514900)
+* **261019【修学旅行S2】官号祝山田健人生日快乐！** ⇨ [𝕏](https://x.com/dramal_abc/status/2112046086013784071)/[ins](https://www.instagram.com/p/DeqdS6Fk9un/) 又一个在剧组过生日的寿星~
+* **261019【修学旅行S2】官号发TVer排名** 昨晚最高到了8位! ⇨ [𝕏](https://x.com/dramal_abc/status/2111973578006835235) 秋季黄金档对手太强大了😢
+* **261018【修学旅行S2｜双人】秀洸合体比心手势舞小视频**{: .text-red} 🚌season2開幕💨 ⇨ [ins](https://www.instagram.com/p/DeoU8L1TZY_/) cha了Goose house的《オトノナルホウヘ》；超级可爱！
+* **261018【修学旅行S2｜直播｜藤本洸大】洸大ins直播:第1话同时视听大会**{: .text-red} ⇨ [𝓲洸/直播存档](https://www.instagram.com/p/Deo2ot8CZqn/)
 * **261017【修学旅行S2】修学旅行第二季开播!第1话「平凡男子、人生初彼氏に悩む」**{: .text-red} 25:00~ ※剧照/花絮实时更新在【平铺时间线】，第2话开播后再整理归档到这里
     > **剧照** ⇨ [𝕏S2第1话剧照-床咚](https://x.com/dramal_abc/status/2104775674192146666)/[ins](https://www.instagram.com/p/Dd2zJAKE7ou/) <span>官号发的剧照已经很清晰了；ins多一张日置笑着看手机</span>{: .text-pink}｜[𝕏realsound](https://x.com/realsound_m/status/2104692629690781967) <span>多一张仲里日置在大巴</span>{: .text-pink}｜[𝕏合宿日程表](https://x.com/dramal_abc/status/2109411220151541954)/[ins](https://www.instagram.com/p/DeXvB9qE-Ic/) <span>还有一张渡会男友力max帮日置拿包的壁纸，滤镜很美！</span>{: .text-pink}
 * **261017【修学旅行S2｜双人+海李】突击ins直播 8:45~9:00PM @修仲官号**{: .text-red} ⇨ 8:39PM:[𝕏直播预告](https://x.com/dramal_abc/status/2111421789998072000)

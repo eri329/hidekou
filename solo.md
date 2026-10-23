@@ -39,6 +39,8 @@ permalink: /solo/
     > **260901 小简ins:趴床小视频🥱😴😪** ⇨ [𝓲简](https://www.instagram.com/reel/DcvoxQRhdUv/)
     > **260902 小简X:预售截止日!** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2095071375732125932)
     > **261014 1月10日线上见面会二次抽选开始** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2110341495987523645) 申请期间:10/14~10/20
+    > **261020 mini小册子封面封底解禁!** 眼镜小简 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2112515686753017882)/[𝓲简](https://www.instagram.com/p/Detyea5ATeO/)
+    > **261020 先行cut/6%的腹肌** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2112471263054884969)/[𝓲简](https://www.instagram.com/p/DeteW5lAUlv/) 很有feel的一套图！樱木雅哉回复「その腹筋、特殊メイクー？！」233
 * **261103 简秀吉24岁生日会&见面会 大阪生日会**{: .text-red} 14:00/17:30📍大阪エル・シアター
 
 ---
@@ -54,6 +56,7 @@ permalink: /solo/
     > **261006 官方谷子公开** 有棉花娃娃 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107442059116445864)/[𝓲简](https://www.instagram.com/p/DeJvuL7AXWA/)｜[详情](https://kan-hideyoshi.com/contents/1116632)
     > **261010 収録映像配信チケット 收录配信票开售** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2108849682768380045) 不太清楚这是个什么票总之是配信票吧；販売期間：10月10日12:00～11月3日20:00；配信期間：10月19日18:00～11月3日23:59
     > **261011 FC限定：官周摄影setlog** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2109250726631538763)｜[🔒【FC限定】Setlog 〜グッズ撮影編〜🎥🫧](https://kan-hideyoshi.com/movies/133390)
+    > **261019 小简发ins感谢 & 回放配信开始** 本日18:00可以收看回放 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2112112188857180383)/[𝓲简](https://www.instagram.com/p/Deq7ETFDA0y/)
 * **261007 电视剧「仮面教師」(假面教师) 开播** 四村健役 10月7日(水) 24時24分~
     > **260918 出演情报解禁** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2100795105108177066)/[𝓲简](https://www.instagram.com/p/Ddag-DDATHc/)
     > **261007 开播** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2107772213743239393)「四村、始動🫵🏻🫵🏻」
