@@ -79,11 +79,11 @@ permalink: /flattened_timeline/
         > **官号第2话宣传/剧照/花絮照** ⇨ 12AM:[𝕏渡会看手机](https://x.com/dramal_abc/status/2114009022110081471)/[ins](https://www.instagram.com/p/De4Z8znk-yX/)｜12:50AM:[𝕏长椅送礼物](https://x.com/dramal_abc/status/2114021597887746532)/[ins](https://www.instagram.com/p/De4fnFHk7Se/)｜2AM:[𝕏感谢收看/渡日换衣服花絮照](https://x.com/dramal_abc/status/2114039216628011432)/[ins渡会狮吼](https://www.instagram.com/p/De4nsiXE2vB/)｜2:10PM:[𝕏渡日榻榻米合照](https://x.com/dramal_abc/status/2114041730622439642)/[ins](https://www.instagram.com/p/De4ox3UkzqA/)
         > **网站配信** ⇨ [𝕏TVer配信开始](https://x.com/dramal_abc/status/2114031666188501187)｜[𝕏FOD配信]()｜[𝕏Gaga]()
         > **第3话预告** ⇨ [🆈第3话30s预告](https://www.youtube.com/watch?v=dagxbK08HPg)｜[官网第3话剧照简介更新](https://www.asahi.co.jp/schooltrip/story/)
-        > **小简发帖感谢收看第2话** ⇨ [𝕏简]()/[𝓲简]()/[📕简]()
         > **官号实时纯文字Re第2话** ⇨ 1:03AM:「察する探偵守崎🕵️‍♂️」[𝕏](https://x.com/dramal_abc/status/2114025031714103639)｜1:09AM:「修学旅行、いろいろ事件もあって楽しかったですよね」[𝕏](https://x.com/dramal_abc/status/2114026410620903426)｜1:16AM:「朝陽事件ふたたび免疫て」[𝕏](https://x.com/dramal_abc/status/2114028264419479718)｜1:22AM:「2個も⁉︎」[𝕏](https://x.com/dramal_abc/status/2114029889498280168)｜回复亲妈的谜团枕头大战的时候仲里到底在做什么？「枕カバーをポッケから出して白旗をあげた」⬅️把口袋里的枕套摇起来当作白旗🏳️ [𝕏](https://x.com/dramal_abc/status/2114043141603131727)
         > **杏那追剧**「今回も体感5秒やな」⇨ [𝕏](https://x.com/shiori_iwanami/status/2114034299146236087)
-        > **【修学旅行S2】官号发切片** ⇨ [𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()
+        > **官号发切片** ⇨ [𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()｜[𝕏]()/[ins]()
     > **【修学旅行S2】官方谷子情报解禁！** 🚌公式グッズ販売決定💨 ⇨ [𝕏](https://x.com/dramal_abc/status/2114031665295372460)/[ins](https://www.instagram.com/p/De4kNkCk4Px/)/[官网详情](https://www.asahi.co.jp/schooltrip/goods/) 坐牌/立牌/文件夹/大头名字钥匙扣盲抽
+    <!-- > **小简发帖感谢收看第2话** ⇨ [𝕏简]()/[𝓲简]()/[📕简]() -->
     <!-- > **【修学旅行S2｜直播｜藤本洸大】洸大ins直播:第2话同时视听大会**{: .text-red} ⇨ [𝓲洸/直播存档]() 
     > **【修学旅行S2】进藤导演发推🧢監督メモ🧢** ⇨ [𝕏]()/[ins大量花絮剧照]()
     > **【FC｜藤本洸大】洸大日记「」**{: .text-solo-k} ｜ ⇨ [🔒FC]() -->
