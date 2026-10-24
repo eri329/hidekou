@@ -40,13 +40,15 @@ permalink: /solo/
     > **260902 小简X:预售截止日!** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2095071375732125932)
     > **261014 1月10日线上见面会二次抽选开始** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2110341495987523645) 申请期间:10/14~10/20
     > **261020 mini小册子封面封底解禁!** 眼镜小简 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2112515686753017882)/[𝓲简](https://www.instagram.com/p/Detyea5ATeO/)
-    > **261020 先行cut/6%的腹肌** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2112471263054884969)/[𝓲简](https://www.instagram.com/p/DeteW5lAUlv/) 很有feel的一套图！樱木雅哉回复「その腹筋、特殊メイクー？！」233
+    > **261020 先行cut/6%的腹肌** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2112471263054884969)/[𝓲简](https://www.instagram.com/p/DeteW5lAUlv/)/[📕简](https://xhslink.com/o/9gARYTZhu6H) 很有feel的一套图！樱木雅哉回复「その腹筋、特殊メイクー？！」233
 * **261103 简秀吉24岁生日会&见面会 大阪生日会**{: .text-red} 14:00/17:30📍大阪エル・シアター
 
 ---
 * **261031 神户学院大学大学祭 简秀吉talkshow**{: .text-red} 14:00~ @神戸学院大学 ポートアイランドキャンパス B302教室
     > **260717 情报解禁** 外部观众7/25~开票，很便宜而且不是抽选! ⇨ [𝕏](https://x.com/135fes/status/2078038469792903451)｜[ins详情](https://www.instagram.com/p/Da4vcXvkQMo/)
     > **250718 校内申请开放** ⇨ [ins](https://www.instagram.com/p/Da6c-gzE8oy/)
+* **261023《CanCam》12月号(10/23) 杂志发售** 「もぐもぐ記念日。」
+    > **261021 小简登场/封面解禁** ⇨ [𝕏](https://x.com/cancamtv/status/2112790715625509060)
 * **261018 简秀吉24岁生日会&见面会 大宫生日会**{: .text-red} 14:30/18:30📍大宮ソニックシティホール大ホール
     > **260801 情报解禁** ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2083516878979502158)｜[𝕏简-另一条](https://x.com/kan_hideyoshi/status/2083517088162087370)/[ins](https://www.instagram.com/p/DbfvSnlBos-/)/[微博](https://weibo.com/7984735683/RbpjysWCK)
     > **260803 FC先行抽选** 8/3~8/16 ⇨ [𝕏简](https://x.com/kan_hideyoshi/status/2084222976032137308)｜[𝓲简](https://www.instagram.com/p/DbkwxbgAa8A/)｜[微博](https://weibo.com/7984735683/RbHFRhh0L) 很帅的黑白西装!
@@ -1115,7 +1117,8 @@ permalink: /solo/
 
 <!-- * **26「」** ⇨ [🔒FC]() -->
 
-* **261011「宿縁奇遇」** 仔细品味那数十秒的相遇，今后的一年还会继续努力。希望成为大家能挺起胸膛说自己是藤本洸大粉丝的人。｜东京签售会⇨ [🔒FC](https://sp.tcland.jp/contents/1118126)
+* **261018「美麗字句」** 最近看了《ダウンタイム》(一个整容医疗剧)，想变得更真实｜日置动物园拍摄 ⇨ [🔒FC](https://sp.tcland.jp/contents/1120082)
+* **261011「宿縁奇遇」** 仔细品味那数十秒的相遇，今后的一年还会继续努力。希望成为大家能挺起胸膛说自己是藤本洸大粉丝的人。｜东京签售会 ⇨ [🔒FC](https://sp.tcland.jp/contents/1118126)
 * **261004「百感交集」** 对修仲2的完成度感到很兴奋；玩了桌游algo。想去船上钓鱼、想玩户外攀爬游戏 ⇨ [🔒FC](https://sp.tcland.jp/contents/1116133)
 * **260927「青春死遊」** 死亡青春游戏最终回&拍摄的各种感想｜GirlsAward走秀 ⇨ [🔒FC](https://sp.tcland.jp/contents/1113773)
 * **260920「天命を待つ」** 马上就要21岁了有点不舍的小孩的哲学思考；想要挑战新的东西、增加兴趣爱好、增加朋友｜fineboys beauty vol.14 ⇨ [🔒FC](https://sp.tcland.jp/contents/1112041)

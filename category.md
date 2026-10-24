@@ -126,6 +126,8 @@ permalink: /category/
 * **261104 TV station 11/7号（双人封底）**
 * **261030 GIANNAPLUS 12（双人封面封底）**
 * **261030 Preppy 12月号（双人封面）**
+* **261023 月刊 TVnavi 12月号** ⇨ [𝕏封面](https://x.com/TVnavi_PR/status/2112775252870844458)
+* **261023 TV Fan 12月号** ⇨ [𝕏封面](https://x.com/tvfan_tw/status/2112449994380968010)
 * **261023 月刊TVガイド 12月号（双人封底）**
 * **261021 週刊TVガイド関東版 10/30号** ⇨ [𝕏封面](https://x.com/weekly_tvguide/status/2111009098397565222)
 * **261017 FAST采访后篇(web)** ⇨ [藤本洸大×簡秀吉](https://fast-tokyo.com/schooltrip-2/)
@@ -174,6 +176,9 @@ permalink: /category/
 * **261104 TV station 11/7号（BACK COVER）**{: .text-red}
 * **261030 GIANNAPLUS 12（表紙&BACK COVER）**{: .text-red}
 * **261030 Preppy 12月号（表紙）**{: .text-red}
+* **261023 CanCam 12月号** もぐもぐ記念日。⇨ [封面𝕏](https://x.com/cancamtv/status/2112790715625509060)
+* **261023 月刊 TVnavi 12月号**{: .text-red}
+* **261023 TV Fan 12月号**{: .text-red}
 * **261023 月刊TVガイド 12月号（BACK COVER）**{: .text-red}
 * **261021 週刊TVガイド関東版 10/30号**{: .text-red}
 * **261017 FAST采访后篇(web)**{: .text-red}
@@ -284,7 +289,8 @@ permalink: /category/
 * **261030 GIANNAPLUS 12（表紙&BACK COVER）**{: .text-red}
 * **261030 awesome! Plus vol.51**
 * **261030 Preppy 12月号（表紙）**{: .text-red}
-* **261023 TVFan 12月号**
+* **261023 月刊 TVnavi 12月号**{: .text-red}
+* **261023 TV Fan 12月号**{: .text-red}
 * **261023 月刊TVガイド 12月号（BACK COVER）**{: .text-red}
 * **261021 週刊TVガイド関東版 10/30号**{: .text-red}
 * **261017 FAST采访后篇(web)**{: .text-red}

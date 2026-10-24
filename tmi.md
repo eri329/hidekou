@@ -250,6 +250,7 @@ permalink: /tmi/
 ### 岩波詩織(杏那)
 {: #anna}
 
+* **261018 杏那实时追剧中** 杏那酱也是一刻没耽误！「修仲ガチ神やね……分かりますわ……（by部外者の杏那さん）」⇨ [𝕏](https://x.com/shiori_iwanami/status/2111501019167490166)
 * **260809 杏那新的offshot** ⇨ [𝕏](https://x.com/shiori_iwanami/status/2086458616190758957) 嗯嗯大概是知道明天是什么日子所以发了新图XD｜[𝕏](https://x.com/shiori_iwanami/status/2086459552711807416) 岩波妹子碎碎念被安见导演鼓励了第二季公开后导演还说了下次也请多关照!
 * **251228 杏那和渡会的offshot**{: .text-green} ⇨ [𝕏](https://x.com/shiori_iwanami/status/2005289131153457395)「謎の距離感」⬅️笑死
 * **251222 杏那演员在X里默默追剧** ⇨ [𝕏](https://x.com/shiori_iwanami/status/2002804439019913554) 碎碎念了好几条X，很可爱的妹妹
@@ -280,6 +281,7 @@ permalink: /tmi/
 ### 三浦健人(守崎辽翔)
 {: #morini}
 
+* **261016 事务所发三浦健人/守崎遼翔cut** ⇨ [𝕏](https://x.com/from1pro/status/2111004382011777291)
 * **261007 发推确认出演修仲2 & 守崎辽翔剧照** ⇨ [𝕏](https://www.instagram.com/p/DeMTjGRDgYw/) 大哥还是那个味儿！
 * **260301 和山田健人、长谷川导演吃饭了** ⇨ [ins](https://www.instagram.com/p/DVVjQmdDjse/)
 * **260109 又和山田健人去桑拿了** ⇨ [ins](https://www.instagram.com/p/DTSOqG4lM1y/)
@@ -397,6 +399,8 @@ permalink: /tmi/
 *※ 进藤导演发了很多其他地方没有的花絮照!*{: .text-small}
 *※ 快拍in progress……*{: .text-small}
 
+* **261018 🧢監督メモ🧢** ⇨ [𝕏没有新图](https://x.com/shindo59512/status/2111615181327573387)/[ins大量花絮剧照](https://www.instagram.com/p/DenYJ2dj1uu/) OP和第一场戏都是第一天拍的，黑板上的画都是大家自己画的。修仲2的标题一半是洸大、另一半是小简亲自写的！辻谷的名牌也是山田健人亲笔写的XD 第1话以及下周的第2话都是进藤导演的集数。
+* **261016 🧢監督メモ🧢: 明日放送！**「请期待OP里7个人的身影；7个人到底在看什么呢！？」⇨ [𝕏](https://x.com/shindo59512/status/2111027253173952762)｜[ins](https://www.instagram.com/p/DejLSIJkc9v/) ⬅️大量花絮照/剧照
 * **261013 群演募集追加** ⇨ [𝕏](https://x.com/shindo59512/status/2109957772997705809)
 * **261007 剧照壁纸解禁** ⇨ [𝕏](https://x.com/shindo59512/status/2107601157975859599)
 * **261003~261004 快拍:感谢群演的参与** 拍了运动会
@@ -466,6 +470,8 @@ permalink: /tmi/
 *※ 很爱修学的一位导演*{: .text-small}
 *※ 不怎么发新花絮照但是写了很多文字花絮*{: .text-small}
 
+* **261022 X:感谢昨天的群演!** ⇨ [𝕏](https://x.com/hasetaku0227/status/2113132865865265396) 昨天拍摄了重要的场景！感谢大家关心他的腿，还跟他说喜欢S1第5话www
+* **261017 X:还有24小时!最近把腿扭伤了** 拄着拐杖的导演；但是拍摄很顺利，大家看到我这个样子反而都笑了 ⇨ [𝕏](https://x.com/hasetaku0227/status/2111120959717744826)/[ins](https://www.instagram.com/p/Dej40IxD4O-/)
 * **251004 快拍/X:依然感谢群演** ⇨ [𝕏](https://x.com/hasetaku0227/status/2106697748896796765)
 * **261003 快拍/X:今天要拍有募集群演的内容** ⇨ [𝕏](https://x.com/hasetaku0227/status/2106376762154471768) 长谷川导演说看到修仲饭的大家幸福的表情有点想哭。⬅️太性情了导演！
     > 「実際に番組ファンの皆様の幸せそうな顔を見ると、ちょっと泣きそうになったのは秘密です。」
